@@ -1,0 +1,170 @@
+{
+  "main": {
+    "id": "db99fe36cfd95b53",
+    "type": "split",
+    "children": [
+      {
+        "id": "ca9af7e1b0a33d8c",
+        "type": "tabs",
+        "children": [
+          {
+            "id": "4a79e4891ede4994",
+            "type": "leaf",
+            "state": {
+              "type": "empty",
+              "state": {}
+            }
+          }
+        ]
+      }
+    ],
+    "direction": "vertical"
+  },
+  "left": {
+    "id": "a2a774d0e6fe3da4",
+    "type": "split",
+    "children": [
+      {
+        "id": "605d3e0516f958ad",
+        "type": "tabs",
+        "children": [
+          {
+            "id": "cae18b189083064c",
+            "type": "leaf",
+            "state": {
+              "type": "file-explorer",
+              "state": {
+                "sortOrder": "alphabetical"
+              }
+            }
+          },
+          {
+            "id": "3eb79df7f76d3e44",
+            "type": "leaf",
+            "state": {
+              "type": "search",
+              "state": {
+                "query": "",
+                "matchingCase": false,
+                "explainSearch": false,
+                "collapseAll": false,
+                "extraContext": false,
+                "sortOrder": "alphabetical"
+              }
+            }
+          },
+          {
+            "id": "54f9059b165e295c",
+            "type": "leaf",
+            "state": {
+              "type": "bookmarks",
+              "state": {}
+            }
+          }
+        ]
+      }
+    ],
+    "direction": "horizontal",
+    "width": 300
+  },
+  "right": {
+    "id": "782b2139fefb92cb",
+    "type": "split",
+    "children": [
+      {
+        "id": "3703cdda1cbf3392",
+        "type": "tabs",
+        "children": [
+          {
+            "id": "2dad7f8635942b5a",
+            "type": "leaf",
+            "state": {
+              "type": "backlink",
+              "state": {
+                "collapseAll": false,
+                "extraContext": false,
+                "sortOrder": "alphabetical",
+                "showSearch": false,
+                "searchQuery": "",
+                "backlinkCollapsed": false,
+                "unlinkedCollapsed": true
+              }
+            }
+          },
+          {
+            "id": "f6aee78ff37308f1",
+            "type": "leaf",
+            "state": {
+              "type": "outgoing-link",
+              "state": {
+                "linksCollapsed": false,
+                "unlinkedCollapsed": true
+              }
+            }
+          },
+          {
+            "id": "55c4da4a4527ada0",
+            "type": "leaf",
+            "state": {
+              "type": "tag",
+              "state": {
+                "sortOrder": "frequency",
+                "useHierarchy": true
+              }
+            }
+          },
+          {
+            "id": "c45078173a650ebd",
+            "type": "leaf",
+            "state": {
+              "type": "outline",
+              "state": {}
+            }
+          }
+        ]
+      }
+    ],
+    "direction": "horizontal",
+    "width": 300,
+    "collapsed": true
+  },
+  "left-ribbon": {
+    "hiddenItems": {
+      "switcher:打开快速切换": false,
+      "graph:查看关系图谱": false,
+      "canvas:新建白板": false,
+      "templates:插入模板": false,
+      "command-palette:打开命令面板": false,
+      "workspaces:管理工作区布局": false
+    }
+  },
+  "active": "4a79e4891ede4994",
+  "lastOpenFiles": [
+    "FreckledBitches - 🍋This Love.md",
+    "DeadlyPole - 🍋Shinji and Asuka.md",
+    "Bardic Jester - ❤️This Way.md",
+    "Daquarma - ❤️Open Your Eyes.md",
+    "Random1377 - Sanshuunoomoi.md",
+    "silentmusic16 - Discordant.md",
+    "sydneyeliza - Finding Asuka Langley.md",
+    "Shizumaru - The Quiet Moments.md",
+    "skyf0x - Confidence.md",
+    "atare - Don't wark at me!.md",
+    "Andrew Aelfwine - The Children and the Fury.md",
+    "Aki-Chan04 - Das Ewige Dasein (The Eternal Life).md",
+    "AgentKaji - ❤️The Asuka Variations.md",
+    "A. LaRosa - Rough Waters.md",
+    "A Writer With No Name - Asuka's First Back Rub.md",
+    "YourBlandestNightmare - Eight Notes.md",
+    "YourBlandestNightmare - Broken Hands.md",
+    "Yih - So I Love You Now.md",
+    "Wolfcry66 - Condolence and Comfort.md",
+    "The Silent One1 - Asuka, My Love.md",
+    "The Forth Man - Breakfast, Of Course：Asuka's POV.md",
+    "Tenshi - Fallen Tenshi Story 1.md",
+    "Tashikawa - Shinji, Asuka and The Last Angel.md",
+    "Snafu the Great - Asuka's Christmas Carol.md",
+    "Shizumaru - In other words.md",
+    "Shizumaru - I Mustn't Run Away.md"
+  ]
+}

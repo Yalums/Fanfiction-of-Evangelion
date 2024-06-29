@@ -1,0 +1,18 @@
+{
+  "showLineNumber": false,
+  "attachmentFolderPath": "./",
+  "alwaysUpdateLinks": true,
+  "focusNewTab": false,
+  "promptDelete": false,
+  "spellcheck": false,
+  "legacyEditor": false,
+  "vimMode": false,
+  "readableLineLength": true,
+  "pdfExportSettings": {
+    "pageSize": "Legal",
+    "landscape": false,
+    "margin": "1",
+    "downscalePercent": 100
+  },
+  "rightToLeft": false
+}
