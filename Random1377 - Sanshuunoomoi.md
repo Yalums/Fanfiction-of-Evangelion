@@ -1,4 +1,4 @@
-[Random1377](https://m.fanfiction.net/u/64284/)
+[Random1377](https://fanfiction.net/u/64284/)
 Shinji Ikari sat at the small kitchen table, a can of juice in one hand and a small paperback in the other. "Weird stuff…" he muttered, keeping his thumb in the middle of the book so as not to lose his page and flipping the cover closed. "Droogies…" he said thoughtfully, "I think I can see why this is Misses Souske's favorite… but what's a clockwork?"  
 碇真嗣坐在小厨房的桌子旁，一手拿着果汁罐，另一手拿着一本小巧的平装书。“奇怪的东西……”他喃喃自语，用拇指夹住书页以防丢失进度，然后将封面合上。“德鲁吉……”他若有所思地说，“我想我能明白为什么这是苏斯克小姐的最爱……但什么是发条呢？”
 

@@ -1,4 +1,4 @@
-[Shizumaru](https://m.fanfiction.net/u/36117/)
+[Shizumaru](https://fanfiction.net/u/36117/)
 Elsa Bibat made this little challenge, you see, to include a fewselect paragraphs that she had written into a fic-any series, anycharacters, as long as it contained those lines. This had been justafter I had made a few inquiries about Shinji-Asuka fics, and thoselines just screamed at me... As it turned out, after the initial piece,I decided to re-write the section, to better suit the needs of thisstory. Still, because it was that bit which got the story to gel, I'veincluded it at the end. You'll be able to see easily where it fit in atfirst.  
 艾尔莎·比巴特（Elsa Bibat）提出了这个小小的挑战，你看，她把她写成小说的几个精选段落包括在内——任何系列，任何角色，只要它包含这些台词。这是在我询问了一些关于真嗣-明日香小说之后，那些台词只是对我尖叫......事实证明，在最初的文章之后，我决定重写这一部分，以更好地适应这个故事的需要。不过，因为正是那一点让故事变得凝固，所以我把它放在了最后。首先，您将能够轻松看到它的位置。
 

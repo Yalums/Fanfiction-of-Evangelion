@@ -1,4 +1,4 @@
-[Axel Terizaki](https://m.fanfiction.net/u/4917/)
+[Axel Terizaki](https://fanfiction.net/u/4917/)
 SHINJI, WILL YOU DANCE WITH ME? (a sequel to "Asuka, Will You Dance With Me?")  
 真嗣，你愿意与我共舞吗？（《明日香，你愿意与我共舞吗？》续篇）
 

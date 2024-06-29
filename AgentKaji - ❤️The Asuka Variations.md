@@ -1,4 +1,4 @@
-[AgentKaji](https://m.fanfiction.net/u/946314/)  
+[AgentKaji](https://fanfiction.net/u/946314/)  
 **Author notes:** Planned before the release of 3.0+1.0. My take on Asuka from Rebuild thrown into the TV series timeline. Hope you enjoy reading it.  
 作者注：本文构思于 3.0+1.0 发布之前。我将《福音战士新剧场版》中的明日香投射到 TV 版的时间线中，尝试我的解读。希望你喜欢阅读。
 

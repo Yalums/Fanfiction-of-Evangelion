@@ -1,4 +1,4 @@
-[Shizumaru](https://m.fanfiction.net/u/36117/)
+[Shizumaru](https://fanfiction.net/u/36117/)
 A side story in the "I Mustn't Run Away"/"In Other Words" continuity,now named _The Heart, the Soul_. Shortly after IOW. Please read thepreceding fics before this one. Spoiler warnings from those apply here, ofcourse. And also, remember, this Shinji is the manga characterization-themore well-adjusted one with backbone.  
 《我绝不能逃》/《换句话说》系列的一个支线故事，现定名为《心与魂》。故事紧随 IOW 之后。在阅读本篇前，请务必先阅读系列前作。前作的剧透警告同样适用于此。此外，请注意，本作中的真嗣是漫画中的形象——一个更为成熟、有担当的角色。
 

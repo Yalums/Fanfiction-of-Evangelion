@@ -1,4 +1,4 @@
-[enigmasky](https://m.fanfiction.net/u/1686822/)
+[enigmasky](https://fanfiction.net/u/1686822/)
 **Author's Update and Note: Yes, I'm fully aware the proper holiday is St. White's Day and not Valentines. Reason for this is to delve into a more familiar holiday without explanations and for the sake of story telling. I'm also aware there's no couch (or visible one) in the actual apartment but for the sake of storytelling let's pretend there is one. I do not mind corrections but the story is about their romance and that is what the focus is. Thanks to whom have stated these errors but I would like to clarify the story is heavily based on their relationship and not about surroundings. The gist (theme) is pretty much the same and the underlying message is still the same. Thanks and enjoy.  
 作者更新与说明：确实，我清楚正确的节日应为圣怀特日，而非情人节。如此设定是为了借助一个大家更为熟悉的节日，便于故事展开，无需过多解释。另外，我知道实际公寓中并无沙发（或显眼的沙发），但为了故事情节，我们姑且假设存在。对于指正，我并不介意，但故事的核心在于他们的爱情，这是焦点所在。感谢那些指出错误的朋友，但我想强调，故事着重描绘的是两人的情感纠葛，而非环境细节。故事的主旨（主题）和深层寓意保持不变。感谢阅读，愿您享受其中。  
 **

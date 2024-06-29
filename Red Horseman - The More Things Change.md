@@ -1,4 +1,4 @@
-[Red Horseman](https://m.fanfiction.net/u/39885/)  
+[Red Horseman](https://fanfiction.net/u/39885/)  
 
 The More Things Change: Reunion  
 变幻无常：重逢

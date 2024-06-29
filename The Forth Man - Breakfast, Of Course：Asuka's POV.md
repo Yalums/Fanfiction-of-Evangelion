@@ -1,4 +1,4 @@
-[The Forth Man](https://m.fanfiction.net/u/483603/)
+[The Forth Man](https://fanfiction.net/u/483603/)
 4:30 AM, that's what the clock says.  
 凌晨 4:30，时钟上是这么显示的。
 

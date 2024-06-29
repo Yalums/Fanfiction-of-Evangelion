@@ -1,4 +1,4 @@
-[Ps3udonym](https://m.fanfiction.net/u/465540/)
+[Ps3udonym](https://fanfiction.net/u/465540/)
 Rain fell on two pedestrians, the constant pitter-patter of water on umbrella drowning out the din of early morning rush hour. The small, flimsy canvas barely covered them, forcing the two to squeeze close against each other to stay sheltered. Close enough to each other that a certain Japanese boy could almost smell the faintest hint of a certain redhead's shampoo.  
 雨滴落在两位行人身上，伞面上持续的滴答声淹没了清晨高峰期的喧嚣。那把小而脆弱的伞布勉强遮住他们，迫使两人紧贴在一起以保持干燥。近到那个日本男孩几乎能闻到某个红发女孩洗发水的淡淡香气。
 

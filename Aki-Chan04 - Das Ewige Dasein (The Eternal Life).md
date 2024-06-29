@@ -1,4 +1,4 @@
-[Aki-Chan04](https://m.fanfiction.net/u/35627/)
+[Aki-Chan04](https://fanfiction.net/u/35627/)
 
 Das Ewige Dasein 永恒的存在
 

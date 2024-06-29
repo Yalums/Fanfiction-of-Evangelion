@@ -1,4 +1,4 @@
-[FreckledBitches](https://m.fanfiction.net/u/1740538/)
+[FreckledBitches](https://fanfiction.net/u/1740538/)
 A/N: I don't even know if I can explain this one. There is no real rhyme or reason for this short little fic other then I felt like writing it. I'm giving it an M rating for the brief talk of rape.
 作者的话：我甚至不知道我是否能解释这一篇。这篇短小的同人文并没有真正的韵律或理由，只是我突然想写而已。我给它一个 M 评级，因为其中简短地提到了强奸。
 

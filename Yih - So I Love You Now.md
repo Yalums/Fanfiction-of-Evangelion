@@ -1,4 +1,4 @@
-[Yih](https://m.fanfiction.net/u/27874/)
+[Yih](https://fanfiction.net/u/27874/)
 Title: **So I Love You Now  
 标题：如今我深爱着你  
 **Author: Yih 作者：伊  

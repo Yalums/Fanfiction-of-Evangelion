@@ -1,4 +1,4 @@
-[gunman](https://m.fanfiction.net/u/544647/)  
+[gunman](https://fanfiction.net/u/544647/)  
 
 Disclaimer: Don't own anything, spent the money on candy.  
 声明：我一无所有，钱都花在糖果上了。

@@ -1,4 +1,4 @@
-[LightBlueAbyss](https://m.fanfiction.net/u/8154165/)
+[LightBlueAbyss](https://fanfiction.net/u/8154165/)
 "Are you scared of the dark?" Asuka's voice cut through the darkness. I could feel the sheets rustle as she moved to become more comfortable. She never seems to be comfortable with the way things are. I lay there for a moment, back to back with Asuka. I look out the window to see what stars may be visible, but the city lights of Tokyo-3 are too bright to let any sort of natural light through.  
 “你怕黑吗？”明日香的声音划破了黑暗。我能感觉到床单随着她调整姿势而沙沙作响，她似乎总是对现状感到不自在。我躺在那里，背对着背与明日香。我望向窗外，试图寻找可能可见的星星，但第三新东京市的灯光太过明亮，无法让任何自然光线透进来。
 

@@ -1,4 +1,4 @@
-[Marshall Banana](https://m.fanfiction.net/u/227734/)
+[Marshall Banana](https://fanfiction.net/u/227734/)
 ### Chapter 1: Enter Asuka  
 第 1 章：明日香登场  
 

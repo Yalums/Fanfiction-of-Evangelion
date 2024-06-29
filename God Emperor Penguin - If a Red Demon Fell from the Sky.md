@@ -1,4 +1,4 @@
-[God Emperor Penguin](https://m.fanfiction.net/u/2324139/)
+[God Emperor Penguin](https://fanfiction.net/u/2324139/)
 **Chapter One 第一章**
 
 _When a Demon Falls from the Sky  

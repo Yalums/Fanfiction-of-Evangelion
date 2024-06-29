@@ -1,4 +1,4 @@
-[atare](https://m.fanfiction.net/u/14923666/)  
+[atare](https://fanfiction.net/u/14923666/)  
 
 **School 学校**
 

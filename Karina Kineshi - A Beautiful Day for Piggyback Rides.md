@@ -1,4 +1,4 @@
-[Karina Kineshi](https://m.fanfiction.net/u/46353/)  
+[Karina Kineshi](https://fanfiction.net/u/46353/)  
 晴朗之日，宜背负而行——Karina Kineshi 著
 
 ---

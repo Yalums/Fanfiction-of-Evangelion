@@ -1,4 +1,4 @@
-[KaosuRyu](https://m.fanfiction.net/u/275089/)
+[KaosuRyu](https://fanfiction.net/u/275089/)
 Ganz behutsam nahm sie Shinji bei der Hand. Er spürte die Wärme ihrer Handfläche auf seiner - spürte ihre weiche und zarte Haut auf der rauen Haut seiner Hand. Eine einfache Berührung, doch sie reichte aus, um Wellen wohliger Wärme durch Shinjis Arm fahren zu lassen. Einen Augenblick später ließ Asuka seine Hand los und ging zu ihrem Bett.  
 她小心翼翼地握住了真嗣的手。他能感觉到她手掌的温暖——感觉到她柔软细腻的皮肤与自己粗糙的手掌相触。这简单的触碰足以让一股舒适的暖流涌过真嗣的手臂。片刻之后，明日香松开了他的手，走向自己的床铺。
 

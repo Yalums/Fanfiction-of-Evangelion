@@ -1,4 +1,4 @@
-[Sadistic Shadow](https://m.fanfiction.net/u/96056/)
+[Sadistic Shadow](https://fanfiction.net/u/96056/)
 Shinji winced. If there were anything physically wrong with the boy that routine checkups did not pick up on, it would be his extreme sensitivity regarding loud noises. An attribute probably brought on by repeated use of his S-DAT player. It made sense that no one had really noticed it, though. After all, the only time it seemed to prove a problem was when _she_ was around. And at the moment, she was certainly _around_. The sudden onslaught of booms, bangs, crashes, and slams were enough to attest to that.  
 真嗣皱了皱眉。如果说这个男孩有什么身体上的问题是在常规检查中没有发现的，那一定是他对大声噪音的极度敏感。这一特性很可能是由于频繁使用他的 S-DAT 播放器而导致的。不过，似乎没有人真正注意到这一点。毕竟，只有在她在场的时候，这个问题才会显现出来。而此刻，她确实就在这里。突如其来的轰鸣、撞击、破碎和猛击声足以证明这一点。
 

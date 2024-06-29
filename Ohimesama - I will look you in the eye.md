@@ -1,4 +1,4 @@
-[Ohimesama](https://m.fanfiction.net/u/67227/)
+[Ohimesama](https://fanfiction.net/u/67227/)
 I will look you in the Eye
 我将直视你的双眼
 

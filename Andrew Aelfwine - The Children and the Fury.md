@@ -1,4 +1,4 @@
-[Andrew Aelfwine](https://m.fanfiction.net/u/130525/)
+[Andrew Aelfwine](https://fanfiction.net/u/130525/)
 **Author's Note**: I wrote this in 2005, and put it up on my Geocities page. After the shutting-down of Geocities, a gentleman by the name of Willbyr from the TV Tropes website requested me to put it up here at FFN, so here it is. Thanks much, Will! I'm delighted that somebody cared enough to ask me to make this fic available again.  
 作者附言：这篇作品创作于 2005 年，最初发布在我的 Geocities 网页。随着 Geocities 的关闭，TV Tropes 网站的 Willbyr 先生联系我，希望我能将其重新发布在 FFN 上。因此，它得以再次呈现给大家。衷心感谢 Willbyr 的提议！得知有人如此珍视这篇小说，我感到无比欣慰。
 

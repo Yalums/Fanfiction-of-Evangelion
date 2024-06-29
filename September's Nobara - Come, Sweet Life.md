@@ -1,4 +1,4 @@
-[September's Nobara](https://m.fanfiction.net/u/1142108/)  
+[September's Nobara](https://fanfiction.net/u/1142108/)  
 
 Author's Notes: Originally, this was to be a songfic, but apparently, songfics aren't permitted, so the next best thing to having the lyrics here in the content, would be having someone listen to the song while reading it: the song is: "Don't Go Away", by the band "Oasis". Speaking of music, the title of this fiction is a play on the song "Komm, Susser Tod/Come, Sweet Death" from Evangelion.  
 作者的话：最初，这本打算写成一首歌的同人文，但显然，歌曲同人文是不被允许的，所以，在内容中加入歌词的次佳方式，就是让读者在阅读时听这首歌：这首歌是：“别走开”，由乐队“绿洲”演唱。说到音乐，这篇同人的标题是对《新世纪福音战士》中的歌曲“Komm, Susser Tod/来吧，甜蜜的死亡”的一种戏仿。

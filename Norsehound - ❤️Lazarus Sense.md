@@ -1,4 +1,4 @@
-[Norsehound](https://m.fanfiction.net/u/76887/)  
+[Norsehound](https://fanfiction.net/u/76887/)  
 拉撒路感应
 
 **I.**

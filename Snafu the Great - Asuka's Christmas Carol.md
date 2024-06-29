@@ -1,4 +1,4 @@
-[Snafu the Great](https://m.fanfiction.net/u/81577/)
+[Snafu the Great](https://fanfiction.net/u/81577/)
 
 Flashbacks reveal Asuka's traumatic, traumatizing, tragic girlhood memory, past, trauma, traumatization and tragedy, which foreshadowed (shaped) her (Asuka's) current abrasiveness (her abrasive personality).  
 闪回揭示了明日香的创伤、创伤、悲惨的少女记忆、过去、创伤、创伤和悲剧，这预示（塑造了）她（明日香）现在的磨砺（她磨砺的性格）。

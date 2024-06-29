@@ -1,4 +1,4 @@
-[Daquarma](https://m.fanfiction.net/u/452938/)
+[Daquarma](https://fanfiction.net/u/452938/)
 ### Chapter 1: Look up to the skies  
 第一章：抬头望向天空  
 

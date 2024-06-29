@@ -1,4 +1,4 @@
-[silentmusic16](https://m.fanfiction.net/u/2008252/)
+[silentmusic16](https://fanfiction.net/u/2008252/)
 **I cannot begin to stress what a difficult desert of a lack of creativity I endured in the past 9 months. After graduating college (finally!) in May, I spent the next ~9 months writing about 50,000 words in various fics and started what felt like a million different things I could not find it in me to finish. I worked a ton, I went on job searches, I dealt with life with all of its highs and lows.  
 我无法开始强调过去 9 个月里我所经历的创意匮乏的荒漠。去年五月大学毕业后，接下来的大约 9 个月里，我在各种同人作品中写了约 5 万字，开始了许多感觉像是无数个我无法完成的不同项目。我工作很忙，四处求职，经历了生活中的高低起伏。**
 

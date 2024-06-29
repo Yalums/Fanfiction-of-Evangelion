@@ -1,4 +1,4 @@
-[Kraven Ergeist](https://m.fanfiction.net/u/647188/)
+[Kraven Ergeist](https://fanfiction.net/u/647188/)
 The war of the angels was merciless. It had taken its toll on the soldiers of Earth. Shinji knew not the meaning of friendship, Rei knew not the meaning of self, and Asuka knew not the meaning of love.  
 天使间的战争残酷无情，地球的战士们深受其害。真嗣未曾理解友谊的真谛，绫波未曾认识自我，而明日香则未曾体会爱的深意。
 

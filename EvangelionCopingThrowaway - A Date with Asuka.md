@@ -1,4 +1,4 @@
-[EvangelionCopingThrowaway](https://m.fanfiction.net/u/14851908/)
+[EvangelionCopingThrowaway](https://fanfiction.net/u/14851908/)
 Tokyo-3 was rebuilding. The process was slow, paved with struggle and hardship, but in the wake of Zeruel's attack, the city was healing. People were returning to the surface, businesses were opening again, and everyone seemed to come together under one, unifying purpose. Of course, there were pessimists, but the majority of people seemed uncharacteristically focused on returning to some semblance of normalcy once again.  
 第三新东京市正逐步重建。尽管进程缓慢且充满挑战，但在第十四使徒袭击之后，城市正逐渐恢复元气。居民们陆续回到地面，商家重新营业，大家仿佛凝聚在同一个目标下。虽然不乏悲观的声音，但多数人异常专注于恢复往日的生活秩序。
 

@@ -1,4 +1,4 @@
-[DetectiveArcher](https://m.fanfiction.net/u/1548566/)
+[DetectiveArcher](https://fanfiction.net/u/1548566/)
 Shooting upright in a near blind panic, Shinji Ikari awoke in a cold sweat. The boy gasped raggedly as he quickly took stock of his surroundings. The fear of finding strange creatures writhing in the shadows of the night almost overwhelmed him, before he realized that he was where he should be and that the horrors hadn't followed him from his dreamscape. The familiarity of his room was comforting, even in the darkness of the night. Inside the boy's chest, his heart still hammered away mercilessly, driven by the terrible visions of his dreams. The mostly buried memories of Instrumentality forced themselves to be heard in the Third Child's sleep. As such, the nights that Shinji found restful slumber were few and far between.  
 碇真嗣猛地从床上坐起，几乎是在盲目的恐慌中醒来，浑身冷汗。他急促地喘息着，迅速环顾四周。在意识到自己应该在的地方，那些梦中的恐怖生物并未从梦境中跟随他来到现实之前，他几乎被夜晚阴影中蠕动的不明生物的恐惧所淹没。房间的熟悉感在夜色中给予了他安慰。在他的胸膛里，心脏仍在无情地猛烈跳动，被梦中的可怕景象所驱使。那些大部分被埋藏的关于人类补完计划的记忆，在第三适格者的睡眠中强行浮现。因此，碇真嗣能找到安稳睡眠的夜晚寥寥无几。
 

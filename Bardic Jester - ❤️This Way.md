@@ -1,4 +1,4 @@
-[Bardic Jester](https://m.fanfiction.net/u/632354/)
+[Bardic Jester](https://fanfiction.net/u/632354/)
 AN- So this was originally supposed to be a One Shot. The chapters may feel a little different from another because each were written years after the ones before. Enjoy!  
 本意是作为一篇短篇来创作的。由于各章节之间相隔数年，因此风格上可能稍有差异。请尽情享受阅读！
 

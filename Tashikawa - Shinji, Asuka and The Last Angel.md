@@ -1,4 +1,4 @@
-[Tashikawa](https://m.fanfiction.net/u/560272/)
+[Tashikawa](https://fanfiction.net/u/560272/)
 ## Suicide  
 Okay, well, this story came kinda randomly, seeing as I haven't finished writing any other fanfics that I have published…Hopefully this one may be the lucky one. I got a bit inspired by Evangelion and even more by the few stories I read about Evangelion over the internet. For no reason I guess, I wanted to write a story about Shinji's and Asuka's relationship.
 

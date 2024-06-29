@@ -1,4 +1,4 @@
-[sydneyeliza](https://m.fanfiction.net/u/368268/)
+[sydneyeliza](https://fanfiction.net/u/368268/)
 发布日期: 2004 年 2 月 24 日 更新日期: 2004 年 7 月 5 日
 
 ---

@@ -11,8 +11,12 @@
             "id": "4a79e4891ede4994",
             "type": "leaf",
             "state": {
-              "type": "empty",
-              "state": {}
+              "type": "markdown",
+              "state": {
+                "file": "DeadlyPole - 🍋Shinji and Asuka.md",
+                "mode": "source",
+                "source": false
+              }
             }
           }
         ]
@@ -44,10 +48,10 @@
             "state": {
               "type": "search",
               "state": {
-                "query": "",
+                "query": "suka, my love",
                 "matchingCase": false,
                 "explainSearch": false,
-                "collapseAll": false,
+                "collapseAll": true,
                 "extraContext": false,
                 "sortOrder": "alphabetical"
               }
@@ -81,6 +85,7 @@
             "state": {
               "type": "backlink",
               "state": {
+                "file": "DeadlyPole - 🍋Shinji and Asuka.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -97,6 +102,7 @@
             "state": {
               "type": "outgoing-link",
               "state": {
+                "file": "DeadlyPole - 🍋Shinji and Asuka.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               }
@@ -118,7 +124,9 @@
             "type": "leaf",
             "state": {
               "type": "outline",
-              "state": {}
+              "state": {
+                "file": "DeadlyPole - 🍋Shinji and Asuka.md"
+              }
             }
           }
         ]
@@ -140,10 +148,14 @@
   },
   "active": "4a79e4891ede4994",
   "lastOpenFiles": [
-    "FreckledBitches - 🍋This Love.md",
-    "DeadlyPole - 🍋Shinji and Asuka.md",
-    "Bardic Jester - ❤️This Way.md",
     "Daquarma - ❤️Open Your Eyes.md",
+    "Lexarius - Unasked Advice - ROE.md",
+    "DeadlyPole - 🍋Shinji and Asuka.md",
+    "Karina Kineshi - A Beautiful Day for Piggyback Rides.md",
+    "evil chick - The Dreadful Project.md",
+    "The Silent One1 - Asuka, My Love.md",
+    "FreckledBitches - 🍋This Love.md",
+    "Bardic Jester - ❤️This Way.md",
     "Random1377 - Sanshuunoomoi.md",
     "silentmusic16 - Discordant.md",
     "sydneyeliza - Finding Asuka Langley.md",
@@ -159,12 +171,8 @@
     "YourBlandestNightmare - Broken Hands.md",
     "Yih - So I Love You Now.md",
     "Wolfcry66 - Condolence and Comfort.md",
-    "The Silent One1 - Asuka, My Love.md",
     "The Forth Man - Breakfast, Of Course：Asuka's POV.md",
     "Tenshi - Fallen Tenshi Story 1.md",
-    "Tashikawa - Shinji, Asuka and The Last Angel.md",
-    "Snafu the Great - Asuka's Christmas Carol.md",
-    "Shizumaru - In other words.md",
-    "Shizumaru - I Mustn't Run Away.md"
+    "Tashikawa - Shinji, Asuka and The Last Angel.md"
   ]
 }

@@ -1,4 +1,4 @@
-[KrisRemmell](https://m.fanfiction.net/u/999841/)
+[KrisRemmell](https://fanfiction.net/u/999841/)
 Summary: Shinji is a natural even in cooking. Asuka, like in Evas, is determined to show him up. A funny story of Shinji and Asuka's relationship. Mild language and violence. A humorous story with subtle romance between Shinji and Asuka.  
 简介：真嗣在烹饪方面也是天赋异禀。如同在 EVA 中一样，明日香决心要超越他。这是一个关于真嗣和明日香关系的幽默故事。包含轻微的语言和暴力。一个带有真嗣和明日香之间微妙浪漫的幽默故事。
 Rating: T (minor coarse language and some violence)  

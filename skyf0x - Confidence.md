@@ -1,4 +1,4 @@
-[skyf0x](https://m.fanfiction.net/u/14765557/)  
+[skyf0x](https://fanfiction.net/u/14765557/)  
 **AsuShin Winter Contest
 AsuShin 冬季征文大赛 - 自信 by skyf0x
 
@@ -528,7 +528,7 @@ _Gum commercial in the story is actually the biggest plot twist. It's not Japane
 ---
 
   
- [![](https://ff77.b-cdn.net/static/fcons/balloon.png) Review](https://m.fanfiction.net/m/review.php?storyid=14016018&chapter=1&storytextid=56460320)
+ [![](https://ff77.b-cdn.net/static/fcons/balloon.png) Review](https://fanfiction.net/m/review.php?storyid=14016018&chapter=1&storytextid=56460320)
 
 Share: [Email](mailto:?subject=Checkout this Story&body=https://www.fanfiction.net/s/14016018/1/) . [Facebook](https://www.facebook.com/sharer.php?u=http://www.fanfiction.net/s/14016018/1/) . [Twitter](https://twitter.com/home?status=Reading fanfic: https://www.fanfiction.net/s/14016018/1/)  
 分享方式：邮件 . 脸书 . 推特
@@ -543,12 +543,12 @@ Share: [Email](mailto:?subject=Checkout this Story&body=https://www.fanfiction.n
 
 ---
 
-Contrast: [Dark](https://m.fanfiction.net/s/14016018/1/AsuShin-Winter-Contest-Confidence#) . [Light](https://m.fanfiction.net/s/14016018/1/AsuShin-Winter-Contest-Confidence#)  
+Contrast: [Dark](https://fanfiction.net/s/14016018/1/AsuShin-Winter-Contest-Confidence#) . [Light](https://fanfiction.net/s/14016018/1/AsuShin-Winter-Contest-Confidence#)  
 对比：黑暗 . 光明  
-Font: [Small](https://m.fanfiction.net/s/14016018/1/AsuShin-Winter-Contest-Confidence#) . [Medium](https://m.fanfiction.net/s/14016018/1/AsuShin-Winter-Contest-Confidence#) . [Large](https://m.fanfiction.net/s/14016018/1/AsuShin-Winter-Contest-Confidence#) . [XL](https://m.fanfiction.net/s/14016018/1/AsuShin-Winter-Contest-Confidence#)  
+Font: [Small](https://fanfiction.net/s/14016018/1/AsuShin-Winter-Contest-Confidence#) . [Medium](https://fanfiction.net/s/14016018/1/AsuShin-Winter-Contest-Confidence#) . [Large](https://fanfiction.net/s/14016018/1/AsuShin-Winter-Contest-Confidence#) . [XL](https://fanfiction.net/s/14016018/1/AsuShin-Winter-Contest-Confidence#)  
 字体大小：小 . 中 . 大 . 特大
 
 ---
 
-[Twitter](https://www.twitter.com/fictionpress) . [Help](https://m.fanfiction.net/h/) . [Sign Up](https://m.fanfiction.net/m/signup.php) . [Cookies](https://m.fanfiction.net/cookies/) . [Privacy](https://m.fanfiction.net/privacy/) . [Terms of Service](https://m.fanfiction.net/tos/)  
+[Twitter](https://www.twitter.com/fictionpress) . [Help](https://fanfiction.net/h/) . [Sign Up](https://fanfiction.net/m/signup.php) . [Cookies](https://fanfiction.net/cookies/) . [Privacy](https://fanfiction.net/privacy/) . [Terms of Service](https://fanfiction.net/tos/)  
 推特 . 帮助 . 注册 . 饼干 . 隐私 . 服务条款

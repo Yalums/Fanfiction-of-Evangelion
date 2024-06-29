@@ -1,4 +1,4 @@
-[Wolfcry66](https://m.fanfiction.net/u/6664616/)  
+[Wolfcry66](https://fanfiction.net/u/6664616/)  
 
 **A/N This is my first request.  
 作者注 这是我第一次应读者要求创作。**

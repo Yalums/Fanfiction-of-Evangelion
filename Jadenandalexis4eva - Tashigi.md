@@ -1,4 +1,4 @@
-[Jadenandalexis4eva](https://m.fanfiction.net/u/1399663/)  
+[Jadenandalexis4eva](https://fanfiction.net/u/1399663/)  
 ## Chapter 1: Stranger in the night  
 第 1 章：夜中的陌生人  
 

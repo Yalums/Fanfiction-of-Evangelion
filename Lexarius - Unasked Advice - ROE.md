@@ -1,4 +1,4 @@
-[Lexarius](https://m.fanfiction.net/u/7797372/)
+[Lexarius](https://fanfiction.net/u/7797372/)
 **NERV**
 Pilots´ Locker Room 飞行员休息室  
 After Synch Tests 完成同步测试后**_

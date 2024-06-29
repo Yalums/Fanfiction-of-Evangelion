@@ -1,4 +1,4 @@
-[DetectiveArcher](https://m.fanfiction.net/u/1548566/)
+[DetectiveArcher](https://fanfiction.net/u/1548566/)
 **Author's Note:** To those of you who just read my previous story, no these two aren't related. Well, not really. I did get the idea for this one after finished my last one. Anyway, with that in mind, please read and review.  
 作者的话：刚读完我上一篇故事的各位，这两篇并不相关。嗯，也不完全是。我是在完成上一篇后得到这篇的灵感的。无论如何，请带着这个前提阅读并留下评论。
 **Author's Note:** I just realized that I haven't given any context as to the background of this story. This story is sort of an amalgamation of events from the Evangelion anime and manga. I cherry pick situations and events from Sadamoto's version of the story and crudely pasted them into Anno's version. Sorry for any confusion.  

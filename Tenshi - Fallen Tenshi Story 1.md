@@ -1,4 +1,4 @@
-[Tenshi](https://m.fanfiction.net/u/32070/)
+[Tenshi](https://fanfiction.net/u/32070/)
 #~*~#DISCLAIMER: I do not own, or claim to own any of the Neon Genesis Evangelion Characters or storyline. All owned by Gainax.~~~ This is a romantic fanfic, and I tried to make them in character, but the way my mind started drifting they kinda became ooc, I hope I justified that enough with the reasons for change. Please, feel free to critique this as much as you want. I am always willing to fix mistakes. Right? ^.^ Well, I hope you enjoy.. The sequel is coming, so..hm. Gimme ideas for it! #~*~#  
 #~*~#免责声明：我不拥有，也不声称拥有《新世纪福音战士》中的任何角色或故事情节。所有版权归 Gainax 所有。~~~ 这是一篇浪漫同人文，我尽力保持角色性格，但我的思绪开始飘忽，他们变得有些脱离原作，希望我为这种变化提供了足够的理由。请随意批评指正。我总是愿意修正错误。对吧？ ^.^ 希望你喜欢.. 续集即将到来，所以..嗯。给我一些想法吧！ #~*~#
 

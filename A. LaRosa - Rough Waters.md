@@ -1,4 +1,4 @@
-[A. LaRosa](https://m.fanfiction.net/u/124982/)  
+[A. LaRosa](https://fanfiction.net/u/124982/)  
 
 **Disclaimer**: I do not own Neon Genesis Evangelion in any way, shape, or form.  
 声明: 我并不拥有《新世纪福音战士》的任何形式版权。
