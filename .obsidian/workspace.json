@@ -13,8 +13,8 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "DeadlyPole - 🍋Shinji and Asuka.md",
-                "mode": "preview",
+                "file": "atare - Don't wark at me!.md",
+                "mode": "source",
                 "source": false
               }
             }
@@ -65,8 +65,7 @@
               "state": {}
             }
           }
-        ],
-        "currentTab": 1
+        ]
       }
     ],
     "direction": "horizontal",
@@ -86,7 +85,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "DeadlyPole - 🍋Shinji and Asuka.md",
+                "file": "atare - Don't wark at me!.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -103,7 +102,7 @@
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "DeadlyPole - 🍋Shinji and Asuka.md",
+                "file": "atare - Don't wark at me!.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               }
@@ -126,7 +125,7 @@
             "state": {
               "type": "outline",
               "state": {
-                "file": "DeadlyPole - 🍋Shinji and Asuka.md"
+                "file": "atare - Don't wark at me!.md"
               }
             }
           }
@@ -149,8 +148,15 @@
   },
   "active": "4a79e4891ede4994",
   "lastOpenFiles": [
-    "Shizumaru - In other words.md",
+    "Axel Terizaki - Shinji, will you dance with me.md",
+    "Azeituna - Tempo.md",
+    "Red Horseman - The More Things Change.md",
+    "Sadistic Shadow - Tough Cookies, Or So She Said.md",
+    "September's Nobara - Come, Sweet Life.md",
+    "SheriffJohnStone - Care.md",
+    "README.md",
     "DeadlyPole - 🍋Shinji and Asuka.md",
+    "Shizumaru - In other words.md",
     "Norsehound - Splint.md",
     "Marshall Banana - Asuka Strikes.md",
     "Karina Kineshi - A Beautiful Day for Piggyback Rides.md",
@@ -167,13 +173,6 @@
     "Shizumaru - The Quiet Moments.md",
     "skyf0x - Confidence.md",
     "atare - Don't wark at me!.md",
-    "Andrew Aelfwine - The Children and the Fury.md",
-    "Aki-Chan04 - Das Ewige Dasein (The Eternal Life).md",
-    "AgentKaji - ❤️The Asuka Variations.md",
-    "A. LaRosa - Rough Waters.md",
-    "A Writer With No Name - Asuka's First Back Rub.md",
-    "YourBlandestNightmare - Eight Notes.md",
-    "YourBlandestNightmare - Broken Hands.md",
-    "Yih - So I Love You Now.md"
+    "Andrew Aelfwine - The Children and the Fury.md"
   ]
 }
