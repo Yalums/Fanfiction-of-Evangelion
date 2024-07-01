@@ -3793,3 +3793,1414 @@ Shinji followed after his girlfriend and they made their way back to their class
 The two eva pilots turned their heads to see Hikari and they both blushed when they realised their position; Asuka had her legs sprawled on the floor, with Shinji on top of her, his hand bracing himself on the floor and their faces so close it might have looked like they were about to kiss. The redhead was thankful that she had pulled Shinji down with her though, otherwise her bare nether region would have been exposed to the world.  
 两位 EVA 驾驶员转过头，看到光，两人都脸红了，意识到他们的姿势；明日香双腿张开躺在地上，真嗣压在她身上，手撑着地板，他们的脸靠得如此之近，看起来就像是要接吻一样。红发女孩庆幸自己把真嗣拉了下来，否则她的私处就会暴露在众人面前了。
 
+"Oh, hey Hikari, I just accidentally tripped is all" Asuka replied, shoving Shinji off her and quickly standing up, making sure she could not see underneath her skirt.  
+“哦，嘿，光，我只是不小心绊倒了而已。”明日香回答道，把真嗣推开，迅速站起来，确保别人看不到她的裙底。
+
+Unfortunately, Shinji had stood up and held his hand out to help her up at the same time and as she stood up quickly, the boy momentarily made contact with the redhead's chest. Asuka, however, only pushed his hand away in response. Hikari didn't fail to notice the lack of reaction on the redhead's part.  
+不幸的是，真嗣站了起来，同时伸出手想帮她起身，而她迅速站起来时，男孩短暂地碰到了红发女孩的胸部。然而，明日香只是推开了他的手作为回应。光并没有错过红发女孩那缺乏反应的一幕。
+
+"So, what were you two doing during lunch together?" Hikari asked, looking at the two suspiciously.  
+“那么，你们俩午饭时在一起做什么呢？”光怀疑地看着两人问道。
+
+"What are you implying Hikari? We just bumped into each other while on our way back to class, I have no idea what this baka was doing during lunch" Asuka answered.  
+“你这是什么意思，光？我们只是在回教室的路上偶然相遇，我根本不知道这个笨蛋午饭时在做什么。”明日香回答道。
+
+"S-She's right" Shinji agreed nervously.  
+"她说的没错" 真嗣紧张地同意道。
+
+"I see, I guess that makes sense" the ponytailed girl replied. Hikari then looked over at the boy who was timidly staring down at his feet. "Though considering how I found you two, I'm glad to see that Shinji over here is still alive" Hikari teased.  
+"我明白了，这么说也有道理" 马尾辫女孩回答。光随后看向那个怯生生盯着脚下的男孩。"不过考虑到我找到你们俩的情况，我很高兴看到真嗣这家伙还活着" 光调侃道。
+
+"Well, it was an accident, I mean… I wouldn't kill him for my mistake. This baka wasn't trying to touch my breast-I mean um… it's no big deal" the redhead replied awkwardly; she didn't know why she was stumbling over her words so much.  
+"嗯，这是个意外，我的意思是……我不会因为我的错误杀了他。这个笨蛋不是故意要摸我的胸部——我是说，呃……没什么大不了的" 红发女孩尴尬地回答；她不知道为什么自己说话这么结巴。
+
+The class rep giggled at her friend's response. "Also, how did you hurt yourself Shinji? That wound on your face is recent right?" Hikari asked with a hint of concern, pointing to the band aid.  
+班长被朋友的回答逗笑了。“还有，你怎么受伤的，真嗣？你脸上的伤口是最近才有的吧？”光子带着一丝关切问道，指着创可贴。
+
+"Oh, it was just an accident in the kitchen, nothing serious" he answered.  
+“哦，那只是厨房里的小意外，没什么大不了的。”他回答道。
+
+"Good to hear that it's nothing serious" Hikari replied, before urging the two eva pilots over. "Come on then, enough standing around already, we need to get to class" she ordered.  
+“听到没什么大碍就好。”光子回应道，随后催促两位 EVA 驾驶员过来。“好了，别再站着了，我们得去上课了。”她命令道。
+
+Sure enough, the bell rang as soon as the brown-haired girl had finished her sentence. Both Shinji and Asuka followed the other girl back to their classroom and went to their seats. As soon as the redhead sat down on her seat, she instantly jumped back up.  
+果然，棕发女孩话音刚落，铃声就响了起来。真嗣和明日香跟着另一个女孩回到教室，各自坐到座位上。红发女孩一坐下，立刻又跳了起来。
+
+"Aiiiee!" she called out.  
+“哎呀！”她惊叫道。
+
+The sudden cry caught everyone's attention and the entire class looked at the girl questioningly. Asuka cursed herself for her own stupidity and quickly thought of an excuse.  
+这突如其来的叫声吸引了所有人的注意，全班同学都疑惑地看向她。明日香暗骂自己的愚蠢，急忙想找个借口。
+
+"There was a… thumbtack on my seat" she lied, giving everyone a glare.  
+“我的座位上有……一个图钉。”她撒谎道，向众人投去愤怒的目光。
+
+Soon they all turned away from Asuka and she made sure to slowly sit down this time; she wasn't wearing any underwear and plopping down on her cold seat had been quite unpleasant.  
+很快，他们都转过身去，不再看明日香。这次她小心翼翼地坐下，确保动作缓慢；她没穿内裤，猛地坐在冰冷的座位上实在很不舒服。
+
+_'Damn that baka Shinji, I have to sit down on this stupid seat with nothing on'_ the girl thought angrily. Despite all the torment she had received from the boy, her body would still get excited when she thought about what he would do next. Surmising that he still hadn't done what he had planned ever since the bet, the redhead was also a little apprehensive about what was going to happen. _'I just hope it's not too degrading this time'_  
+“该死的笨蛋真嗣，我得光着屁股坐在这破座位上。”女孩气愤地想。尽管遭受了男孩的种种折磨，但每当想到他接下来会做什么，她的身体还是会感到兴奋。红发女孩推测，自从那次打赌以来，他还没有实施他的计划，这让她对即将发生的事情也有些忐忑。“我只希望这次不要太羞辱人。”
+
+Asuka's deliberations were soon interrupted by the teacher walking into the classroom and Hikari did her routine "Rise! Bow! Sit!" before the class began. The teacher then commenced his lecture on… the Second Impact again. This time, however, the teacher turned around to write on the blackboard while he was talking.  
+明日香的心思很快被走进教室的老师打断，光莉照常在课前执行了“起立！鞠躬！坐下！”的流程。随后，老师开始讲授……又是第二次冲击。不过这次，老师边讲边转过身去在黑板上写字。
+
+_'I'm beginning to suspect that NERV is paying this old geezer to keep talking about this rubbish'_ the redhead thought, irritated.  
+“我开始怀疑 NERV 是不是在付钱给这老头，让他一直讲这些废话。”红发少女心烦意乱地想。
+
+Added to the boredom of the teacher's harangue, the frustration of sitting down without any underwear, especially when she was still hot from the activities during lunch, was driving Asuka crazy. It seemed the conditions had awakened a strong desire and she wanted nothing more than for Shinji to pull her out of this dull class and make love to her endlessly. Her conflicting thoughts were soon distracted when a message came up on her laptop.  
+除了老师冗长乏味的讲课，没有穿内衣坐着的不适感，尤其是在午餐活动后仍感燥热的情况下，让明日香几近疯狂。似乎这些条件唤醒了她强烈的欲望，她现在只想让真嗣把她从这无聊的课堂中拉出去，无休止地与她缠绵。当笔记本上弹出一条消息时，她矛盾的思绪很快被分散了注意力。
+
+_**Shinji: Was that jump at the beginning of the class really because of a thumbtack?  
+真嗣：上课开始时的那次跳跃真的是因为图钉吗？**_
+
+The redhead looked at the object of her distress with a glare before typing a reply.  
+红发女孩瞪了一眼让她困扰的物品，然后开始打字回复。
+
+_**Asuka: You should know, considering that YOU were the one who told me not to wear any panties. Do you know how uncomfortable it is sitting on this freezing cold seat?  
+明日香：你应该知道，毕竟是你告诉我不要穿内裤的。你知道坐在这冰冷的座位上有多不舒服吗？**_
+
+_**Shinji: Sorry about that, the thought never crossed my mind. Want me to warm you up ;)?  
+真嗣：抱歉，我没想到这一点。需要我帮你暖暖吗 ;)？**_
+
+_**Asuka: You know, right now I wouldn't mind.  
+明日香：你知道吗，现在我倒是不介意。**_
+
+Asuka shifted uncomfortably in her chair before typing her next message.  
+明日香在椅子上不安地挪动了一下，然后开始输入她的下一条消息。
+
+_**Asuka: God damn it, one look under my desk and it's any boy's dream.  
+明日香：该死的，只要看一眼我的桌子底下，简直就是每个男孩的梦想。**_
+
+_**Shinji: Just pray no boy is perverted enough today to try to look at your panties.  
+真嗣：祈祷今天没有哪个男孩变态到想偷看你的内裤吧。**_
+
+_**Asuka: Good luck. 明日香：祝你好运。**_
+
+_**Shinji: You discredit your ability to cast fear on every male in this room.  
+真嗣：你低估了自己让房间里每个男性都感到恐惧的能力。**_
+
+_**Asuka: You're such a prick.  
+明日香：你真是个混蛋。**_
+
+_**Shinji: :P. 真嗣：:P。**_
+
+The redhead shifted again before looking over at her roommate. The girl's eyes widened as from behind she could see a small sliver of her panties sticking out of his pocket. She quickly began typing a message to send to him before anyone could notice, but alas the jock sitting next to the boy had already noticed. Asuka cursed as Touji reached over and pulled the object out, revealing the pair of panties. Shinji, of course, had noticed something being pulled out of his pocket and turned to face Touji, instantly freezing. Many people had seen the jock procure the item from Shinji's pocket and were now looking at them both curiously.  
+红发女孩再次挪动了一下，然后看向她的室友。女孩的眼睛睁大了，因为她从后面看到他口袋里露出了一小截内裤。她迅速开始打字准备发消息给他，以免被别人注意到，但遗憾的是，坐在男孩旁边的运动员已经注意到了。明日香暗骂一声，当东治伸手将那物品拽出，露出一双内裤时，真嗣当然注意到了口袋里有东西被取出，转头面对东治，立刻僵住了。许多人已经看到运动员从真嗣口袋里拿出了物品，现在都好奇地看着他们俩。
+
+"What the hell are you doing?" Shinji whispered to Touji, blushing deeply.  
+“你到底在干什么？”真嗣低声对东治说，脸红得厉害。
+
+"Maybe I should be asking _you_ that" Touji answered.  
+“或许我该问你才对”东治回答道。
+
+_'Shit'_ Asuka thought. She racked her brain for a way to help the boy.  
+'该死' 明日香心想。她绞尽脑汁想找个办法帮助那个男孩。
+
+"Just give it back" Shinji quickly whispered.  
+"快还回去" 真嗣迅速低声说道。
+
+"I think I deserve an explanation first; I mean it's still warm. Was someone else wearing it?" Touji replied.  
+"我觉得我应该先得到一个解释；我是说，它还是温的。难道有人刚穿过它吗？" 东治回答道。
+
+The class was growing increasingly suspicious as more people noticed what was happening and looked to the male eva pilot expectantly. The redhead herself was just completely baffled as to how the teacher had not noticed anything yet and was still facing the blackboard; was he really that deaf? Taking a risk, Asuka quickly stood up and swiftly moved over to the two boys, grabbing the panties off Touji.  
+随着越来越多的人注意到正在发生的事情并期待地看向那位男性 eva 驾驶员，班级里的怀疑情绪愈发浓厚。红发少女本人也完全困惑于老师为何至今还未察觉任何异样，他依旧背对着黑板；难道他真的那么聋吗？冒险一试，明日香迅速站起身，敏捷地走向两个男孩，从真嗣手中夺过内裤。
+
+"Honestly you perverts, arguing over a pair of some poor girl's panties" the redhead said, sounding disgusted.  
+“说真的，你们这些变态，为了一条可怜女孩的内裤争吵”，红发少女说道，语气中带着厌恶。
+
+Shinji and Touji just looked up at the girl speechless and Asuka returned their look with an evil smile. She then handed her panties back to Shinji.  
+真嗣和真希波只是无言地抬头看着女孩，明日香回以一个邪恶的微笑。随后，她将自己的内裤递还给了真嗣。
+
+"You be sure to return those, before you get into trouble" Asuka continued, sneering.  
+“你可得记得还回去，别惹上麻烦。”明日香继续嘲讽道。
+
+Shinji hastily stuffed them back into his pocket, blushing profusely. "Thanks Asuka" he replied weakly.  
+真嗣慌忙将它们塞回口袋，满脸通红。“谢谢你，明日香。”他虚弱地回应。
+
+The redhead then returned to her seat and everything went back to normal as if nothing had happened. The teacher hadn't turned back around from the board till Asuka sat down, effectively missing the entire event that had passed by. Shinji could feel the eyes of everyone on him and he just held his head in his hands embarrassed; this would take a while to die down.  
+红发少女随即回到自己的座位，一切恢复如常，仿佛什么都没发生过。老师直到明日香坐下才转过身来，完全错过了刚才发生的那一幕。真嗣感到所有人的目光都集中在他身上，他只能尴尬地用手捂住脸；这阵风波恐怕还要持续一段时间。
+
+---
+
+Eventually, the school bell rang and Shinji sighed in relief; he wanted nothing more than for the other students to stop looking at him. As his classmates exited the room, many of the girls cast awkward glances at the boy. _'Great'_ he thought, _'now everyone thinks that I'm a panty thief.'_  
+终于，学校的铃声响起，真嗣松了一口气；他只希望其他同学不要再盯着他看。当同学们陆续离开教室时，许多女生都尴尬地瞥了男孩一眼。'太好了'他想，'现在大家都以为我是偷内衣贼了。'
+
+Shinji then stood up and exited the classroom himself, however any chance to be left alone was soon lost as his two friends came up to him, their faces looking eager to ask him questions.  
+随后，真嗣站起身来，自己也走出了教室，然而任何想要独处的机会很快都消失了，因为他的两个朋友走过来，脸上满是急切想要问问题的表情。
+
+"And to think I was beginning to get worried about the redhead controlling you. I just knew you were a real boy Shin-man" Touji exclaimed.  
+“我还以为那个红发女孩在控制你呢。我就知道你是个真正的男子汉，真-哥们”东治兴奋地说道。
+
+"Please don't start with this" Shinji implored.  
+“请别这样开始” 真嗣恳求道。
+
+"I'm sorry Shinji, but having panties in your pocket is just too incriminating" Kensuke replied.  
+“对不起，真嗣，但口袋里有内裤实在太可疑了” 肯斯克回答。
+
+"Damn right. So, tell us how they got there" Touji demanded.  
+“没错。那么，告诉我们它们是怎么到那儿的” 冬二追问道。
+
+"It's really not important" Shinji said, trying to dissuade them.  
+“这真的不重要” 真嗣说道，试图劝阻他们。
+
+"You're not getting out of this Shinji, we won't let you go until you tell us" Touji replied, holding the boy in place.  
+“你别想逃避，真嗣，不告诉我们你别想走” 冬二回答，把男孩固定住。
+
+The male eva pilot quickly ran through his brain for possible excuses, but none really seemed believable. He honestly wanted to divulge the fact that it was due to a challenge between him and Asuka, but then they would know she wasn't wearing any panties. Shinji looked up at his two friends and saw them staring at him expectantly.  
+男性 EVA 驾驶员迅速在脑海中搜寻可能的借口，但似乎没有一个听起来可信。他真心想透露这是因为他和明日香之间的挑战，但那样他们就会知道她没穿内裤。真嗣抬头看着他的两个朋友，看到他们正期待地盯着他。
+
+"I err… was doing the laundry at home and… well…" he said pausing, trying to think of what to say next.  
+"我...在家洗衣服的时候...呃..." 他停顿了一下，试图想出接下来该说什么。
+
+"What, are you saying those are the demon's panties?" Touji said, recoiling a bit.  
+"什么，你是说那些是恶魔的内裤吗？" 冬二说着，稍微后退了一点。
+
+"No! They're Misato's!" Shinji blurted out before he could think about it.  
+"不！是美里小姐的！" 真嗣脱口而出，没来得及多想。
+
+Both his friend's eyes widened before the two grinned at him.  
+他的朋友双眼都睁大了，随后两人对着他咧嘴一笑。
+
+"Ah, if that's all it is, you need not say anymore. We both understand completely" Touji said, still grinning stupidly.  
+“啊，如果只是这样，你就不必多说了。我们俩完全明白。” 冬二说道，依旧傻笑着。
+
+Shinji was sure the jock had completely misunderstood everything.  
+真嗣确信这位运动健将完全误解了一切。
+
+"No, I was just doing the laundry and-" Shinji started quickly.  
+“不，我只是在做洗衣和——” 真嗣急忙开口。
+
+"Relax Shinji, you don't need to defend yourself in front of us, it's totally fine" Touji interrupted.  
+“放松点，真嗣，在我们面前你不需要辩解，完全没问题的。” 冬二打断了他。
+
+At this point Shinji gave up; they weren't even listening to him anymore.  
+此时真嗣放弃了；他们甚至不再听他说话了。
+
+"We both love Misato, so we fully understand the reason" Kensuke added. "Although I'm kinda annoyed, you're progressing with her and we aren't"  
+"我们都爱美里，所以我们完全理解这个原因" 真希波补充道。"虽然我有点不爽，你和她进展顺利而我们却没有"
+
+"Man, you're so lucky!" Touji said, smacking Shinji's back.  
+"伙计，你真是太幸运了！" 东治说着，拍了拍真嗣的背。
+
+Shinji just stayed quiet, hoping they would just leave if he didn't respond. For once the male eva pilot agreed with Asuka about the fact that his friends were idiots.  
+真嗣只是保持沉默，希望如果他不回应，他们就会离开。这一次，男性 eva 驾驶员同意明日香的观点，他的朋友们确实是笨蛋。
+
+"Can we borrow those panties from you?" Touji asked eagerly.  
+"我们能借用一下你的内裤吗？" 冬二急切地问道。
+
+"No way" Shinji replied instantly.  
+"没门" 真嗣立刻回答道。
+
+"Ah such a spoilsport, but I expected nothing less from you" Touji replied, somewhat disappointed.  
+"啊，真是个扫兴的家伙，不过我对你也没抱太大期望" 冬二有些失望地回答。
+
+"Come on Touji, let's leave the boy alone. I think he's had enough embarrassment for the moment" Kensuke suggested.  
+"来吧，阿薰，我们别打扰这孩子了。我觉得他现在受的尴尬已经够多了。" 真希建议道。
+
+"Yeah, I suppose you're right" the jock agreed. "Well, I guess we'll be taking our leave then now, have fun Shin-man"  
+"是啊，我想你说的对" 这位运动员同意道。"那么，我想我们现在就告辞了，祝你玩得开心，真嗣君"
+
+"See ya Shinji" Kensuke said, waving.  
+"再见，真嗣" 真希挥手说道。
+
+"By the way, steal us a pair too next time" Touji added before turning around and walking away with Kensuke down the corridor.  
+“顺便说一句，下次也帮我们偷一双。” 真嗣在转身与健介沿着走廊离开前补充道。
+
+Shinji just continued to stare at the ground silently, hoping that his friends would somehow forget about this incident forever. On the other hand, something told him that his dear redheaded girlfriend wouldn't ever live this down. As if he could predict the future, sure enough a loud snort could soon be heard followed by a certain girl rolling on the floor laughing with tears in her eyes.  
+真嗣只是继续默默地盯着地面，希望他的朋友们能以某种方式永远忘记这一事件。另一方面，他有种预感，他那红发女友绝不会轻易放过这件事。仿佛他能预知未来一般，果然不久后便传来一声响亮的鼻息，紧接着是某个女孩在地上打滚大笑，泪流满面。
+
+"I assume you heard everything" Shinji said, sighing at Asuka's behaviour.  
+“我想你全听到了吧” 真嗣说道，对明日香的行为叹了口气。
+
+"Oh, you bet" the redhead replied, standing up and wiping the tears from her eyes.  
+"哦，当然" 红发女孩回答道，站起身来擦去眼角的泪水。
+
+"I don't wanna hear it, so stop before you even start" Shinji said quickly.  
+"我不想听，所以你还没开始就别说了" 真嗣迅速说道。
+
+"Aww, you ruin all my fun" Asuka teased.  
+"哎呀，你毁了我所有的乐趣" 明日香打趣道。
+
+"As if you haven't had enough fun already" Shinji remarked.  
+“好像你还没玩够似的。” 真嗣评论道。
+
+"Oh, definitely not" the redhead replied seductively.  
+“哦，绝对没够。” 红发女孩挑逗地回答。
+
+The boy looked at her for a second, wondering if she was serious. "Are you sure? We're still in school. It's also not a good time to use the old storeroom, what with the janitor cleaning now" Shinji explained.  
+男孩看了她一会儿，怀疑她是否认真。“你确定吗？我们还在学校呢。而且现在也不是用旧储藏室的好时机，毕竟清洁工正在打扫。” 真嗣解释道。
+
+"I have the best place in mind" Asuka started. "No one would ever check the female toilets and with all the students gone, it'll be perfect" she suggested.  
+"我有个绝佳的地方" 明日香开口道。"没人会去检查女厕所，而且学生们都走了，那里再合适不过了" 她提议说。
+
+"Not a bad idea, I'm always up for some fun" Shinji replied, smirking.  
+"不错的点子，我总是喜欢找点乐子" 真嗣回答，嘴角带着一丝笑意。
+
+"Then what are you waiting for, let's go" the redhead prompted, before turning around and walking towards the female toilets.  
+"那你还等什么，走吧" 红发女孩催促道，随即转身向女厕所走去。
+
+The boy followed Asuka to the lady's restroom and the two of them looked around before entering inside and dropping their bags on the floor.  
+男孩跟着明日香来到了女洗手间，两人环顾四周后才走进去，把包扔在地上。
+
+"By the way, I wanted to say thanks for saving my ass back there Asuka" Shinji told her.  
+“对了，我想谢谢你刚才救了我。”真嗣对她说。
+
+"No problem, it was kinda my ass too anyways" the girl replied.  
+“没事，反正也算是我的屁股。”女孩回答道。
+
+Shinji then grabbed his girlfriend and opened one of the cubicles before pushing her up against the cubicle wall and closing the door behind him.  
+真嗣随即抓住他的女朋友，打开了一个隔间，将她推到隔间墙上，然后关上了身后的门。
+
+"Oh, you're going to fuck me next to a toilet, how charming" Asuka teased.  
+“哦，你要在厕所旁边干我，真是有情调。”明日香打趣道。
+
+The male eva pilot reached down and stimulated her bare pussy with his hand in response. "It seems like your wet cunt doesn't care" the boy said, smirking.  
+男性 eva 驾驶员伸手下去，用手指刺激她赤裸的下体作为回应。“看来你湿透的小穴并不介意。”男孩说着，嘴角上扬。
+
+Asuka moaned at the contact. "Well, that's because anything's better than sitting down on that fucking seat without underwear" Asuka replied.  
+明日香因接触而呻吟。“那是因为，比起不穿内裤坐在那个该死的座位上，什么都好”明日香回答道。
+
+This time Shinji inserted his fingers, causing Asuka to cry out in pleasure and open her legs to give him more access. "You should be more honest Asuka, just like your body is" he teased. "What is the real reason your pussy is wet?"  
+这次真嗣插入手指，让明日香因快感而叫出声，并张开双腿给他更多空间。“你应该更坦诚些，明日香，就像你的身体一样”他逗弄道。“你下面湿漉漉的真正原因是什么？”
+
+"Because you get me all excited, you creep" Asuka answered, blushing.  
+“因为你让我兴奋得不得了，你这个变态”明日香回答，脸颊泛红。
+
+"Why thank you" Shinji replied, grinning.  
+“哎呀，谢谢你。” 真嗣回答道，咧嘴笑着。
+
+The boy then kissed the redhead on the lips and undid the ribbon around her collar, before unbuttoning her shirt. After her shirt was open, Shinji fondled her breasts, making sure to generously rub her erect nipples as well. Asuka could to nothing against his onslaught as she continuously moaned at his actions.  
+男孩随即吻了红发女孩的唇，解开了她领口的丝带，然后解开她的衬衫扣子。衬衫敞开后，真嗣抚摸着她的胸部，特意用力揉搓她挺立的乳头。明日香在他的攻势下毫无反抗之力，只能不断地因他的动作而呻吟。
+
+"God you are so sexy you know that?" Shinji asked while pulling down his pants.  
+“天啊，你真是性感极了，知道吗？” 真嗣边问边脱下裤子。
+
+"You say this as if it's not common knowledge" the redhead remarked, her eyes looking at him cheekily.  
+"你这么说好像这不是常识似的" 红发女孩打趣道，眼神调皮地看着他。
+
+"Your modesty always amazes me" the brown-haired boy commented, just as mischievously.  
+"你的谦虚总是让我惊叹" 棕发男孩同样调皮地评论道。
+
+Asuka was growing a little impatient at his delaying. "Just shut up and stop procrastinating already, can't you just get on-! Ah God yeah!" Asuka started before being interrupted by Shinji's cock being shoved up her wet pussy.  
+明日香对他的拖延越来越不耐烦。"快闭嘴别再拖延了，你就不能直接开始吗！啊天哪，对！" 明日香话还没说完，就被真嗣的肉棒猛地插进了她湿润的小穴。
+
+The boy grunted as he thrust in and out of her and the redhead wrapped her arms around him, keeping him close. Shinji kept his head in her chest, pleasantly stimulating her breasts with his mouth, while his hands were holding her ass, using it as leverage. Asuka could barely contain her cries and moans as the two made love.  
+男孩哼了一声，在她体内进进出出，红发女孩则用双臂环绕着他，紧紧抱住。真嗣将头埋在她的胸前，用嘴愉悦地刺激着她的乳房，而他的双手则托着她的臀部，以此为支点。明日香几乎无法抑制自己的呻吟和呼喊，两人沉浸在爱的交融中。
+
+Just as Shinji planted a kiss on his girlfriend's lips, the door to the toilets opened.  
+就在真嗣吻上女友的唇时，洗手间的门突然打开了。
+
+"Asuka, are you in here?" a female voice asked.  
+“明日香，你在这里吗？”一个女声问道。
+
+Shinji immediately stopped thrusting into the girl, almost falling over. He then looked at the girl questioningly, to which she just shrugged her shoulders and shook her head in response. The two stayed silent and still, hoping the person would go away. However, they soon heard footsteps as the person walked over to their cubicle. Panicking, Asuka quickly applied the lock, thinking the person was going to open their door.  
+真嗣立刻停止了对女孩的推进，差点摔倒。他疑惑地看向女孩，而她只是耸了耸肩，摇了摇头作为回应。两人保持沉默和静止，希望那个人会离开。然而，他们很快听到了脚步声，那个人正走向他们的隔间。慌乱中，明日香迅速上了锁，以为那人会打开他们的门。
+
+The person then halted. "Asuka, is that you?" the voice asked, which the two now recognised as Hikari's.  
+那人随即停下脚步。“明日香，是你吗？”声音问道，两人现在认出这是光的声音。
+
+Now that Hikari knew someone was inside, the redhead had to respond and she would then know it was her so she had no choice but to reveal that she was there.  
+既然光已经知道里面有人，红发女孩不得不回应，她也会知道是明日香，所以她别无选择，只能透露自己在那里。
+
+"Yeah it's me, is something wrong Hikari?" Asuka asked trying her best to sound calm; her awkward position added with Shinji still inside her made it difficult to speak normally.  
+“是我是我，光，有什么事吗？”明日香尽力保持平静的语气问道；她尴尬的姿势加上真嗣还在她体内，让她很难正常说话。
+
+"I just wanted to talk to you about something, but you rushed out of the classroom before I could get to you. I looked outside to see if you had left, but I couldn't find you so I went back inside to check if you came here" Hikari explained. "Are you finished yet?" she asked.  
+“我只是想和你谈点事，但你匆匆离开了教室，我还没来得及追上你。我往外看了看，想找你是不是走了，但没找到，就回教室看看你是不是来了这里。”光解释道。“你结束了吗？”她问。
+
+"Not yet, I still need… a few minutes" Asuka answered.  
+“还没，我还需要……几分钟。”明日香回答。
+
+"Ah ok, I'll wait outside then" Hikari replied.  
+“啊，好的，那我在外面等。”光回答道。
+
+The two eva pilots listened quietly as they heard Hikari walking off, followed by the door closing and then silence. At the sound of the door closing, Shinji quickly turned to face the girl.  
+两位 EVA 驾驶员静静地听着，听到光离开的脚步声，随后是门关闭的声音，接着是一片寂静。听到门关闭的声音，真嗣迅速转向面对女孩。
+
+"What do we do?" he asked Asuka.  
+“我们该怎么办？”他问明日香。
+
+"Fuck I don't know, why are you asking me?!" Asuka whispered angrily.  
+"该死，我不知道，你干嘛问我？！" 明日香愤怒地低声说道。
+
+"You're the girl here, I obviously can't leave the toilet with her outside" Shinji whispered back.  
+"你是女生，我显然不能在她在外面的时候离开厕所" 真嗣低声回应。
+
+"God damn it, she just had to come at the worst possible time!" she cursed, before sighing. "Well, I guess I have no other choice but to go outside and make her leave. What the hell does she even want?"  
+"该死的，她偏偏在最糟糕的时候来了！" 她咒骂道，然后叹了口气。"好吧，我想我别无选择，只能出去让她离开。她到底想要什么？"
+
+"You'll find out soon enough" Shinji replied, withdrawing from the girl and moving out of her way.  
+"你很快就会知道的" 真嗣回答道，从女孩身边退开，让出了位置。
+
+Asuka then buttoned up her shirt and retied her ribbon, before exiting the cubicle and checking herself in the mirror. The boy watched as the girl fixed up her hair and straightened her skirt before moving over to the door. Shinji pulled his pants back up and grabbed his backpack before hiding himself back inside the cubicle as Asuka opened the door and exited the toilet; it was lucky Hikari hadn't noticed the bags before. Shinji pondered for a moment what Hikari wanted with Asuka, his thoughts soon interrupted in only a few seconds as the door to the toilet opened again and in walked more than one person.  
+随后，明日香扣好衬衫，重新系上发带，走出隔间，对着镜子检查自己。男孩看着女孩整理头发，拉直裙摆，然后走向门口。真嗣提上裤子，抓起书包，躲回隔间里，而明日香打开门离开了洗手间；幸好光没有注意到那些袋子。真嗣思索了一会儿光找明日香有什么事，但他的思绪很快就被打断了，因为洗手间的门再次打开，进来了不止一个人。
+
+"Yeah I think it's better we discuss it in here, just in case someone accidentally eavesdrops on us" Hikari told Asuka.  
+"是啊，我觉得我们在这里讨论比较好，以防有人不小心偷听到我们" 光对明日香说。
+
+"Yeah, I suppose you're right" Asuka agreed, before closing the door.  
+“嗯，我想你是对的。”明日香同意道，随后关上了门。
+
+Shinji kept silent and listened intently to the conversation.  
+真嗣保持沉默，专心地听着对话。
+
+"You know Asuka you look a bit… messy for some reason and you're sweating. Is it to do with why you rushed out of the classroom? Were you here all this time?" Hikari asked curiously.  
+“你知道吗，明日香，你看起来有点……乱糟糟的，还满头大汗。是不是和你急匆匆离开教室有关？你一直在这里吗？” 光好奇地问道。
+
+"Oh, I just needed to go to the bathroom real bad and yeah I was here for a while" Asuka answered vaguely.  
+“哦，我只是急需上个厕所，而且是的，我在这里待了一会儿。”明日香含糊地回答。
+
+"You smell a bit funny too. It's nothing serious right?" Hikari continued.  
+“你闻起来也有点怪怪的。没什么大问题吧？” 光继续问道。
+
+The redhead knew the ponytailed girl wouldn't drop it until she got some type of explanation and so she decided to lie.  
+红发女孩知道马尾辫女孩不得到某种解释是不会罢休的，于是她决定撒个谎。
+
+"It was just a bad period Hikari" Asuka told her.  
+"那只是个糟糕的时期，光子" 明日香告诉她。
+
+"Well, why didn't you just say so? Honestly Asuka, you are so uptight sometimes. Although I thought yours was due in a week" Hikari replied.  
+"那你为什么不直接说呢？说实话，明日香，你有时候真是太紧张了。不过我以为你的应该在一周后" 光子回答道。
+
+Shinji made sure to make a mental note of that.  
+真嗣确保自己在心里记下了这一点。
+
+"Well it came early, but enough about this already. What did you want to talk to me about?" Asuka said, growing irritated.  
+"好吧，它来得早了些，但关于这个已经说得够多了。你想跟我谈什么？" 明日香说道，逐渐变得不耐烦。
+
+"Sorry, I just wanted to talk to you about the panty incident during class" Hikari explained.  
+"抱歉，我只是想和你谈谈课堂上那次内裤事件" 光解释道。
+
+"What about it?" the redhead asked.  
+"那件事怎么了？" 红发女孩问道。
+
+"Well it's just those panties Shinji had, I am almost certain they are yours" Hikari answered. "I wanted to talk to you about it during class, but thought better of it"  
+"呃，就是真嗣那条内裤，我几乎可以肯定那是你的" 光回答道。"我本来想在课间跟你说的，但后来觉得还是算了"
+
+"What makes you think they were mine?" Asuka questioned.  
+"你怎么会觉得那是我的？" 明日香问道。
+
+"Well first off, they look like your panties plus I saw some writing on the tag that didn't look Japanese" Hikari replied. "I could be wrong though"  
+"首先，它们看起来像你的内裤，而且我在标签上看到了一些看起来不像日文的字" 光回答。"不过我也可能搞错了"
+
+_'Wow Hikari is observant'_ Shinji thought.  
+'哇，光真是观察力敏锐。' 真嗣心想。
+
+"So, Shinji had stolen my panties?" Asuka put forward.  
+'那么，真嗣偷了我的内裤？' 明日香提出疑问。
+
+"It would seem so" Hikari said, nodding her head.  
+'看来是这样。' 光点头说道。
+
+"Damn that perverted baka, I'll smack him silly when I get home" Asuka said angrily.  
+“该死的变态笨蛋，回家我非得把他揍得晕头转向。”明日香生气地说。
+
+"Well actually, he might still be in school as I didn't see him leave either, why don't we go look for him?" Hikari asked.  
+“其实，他可能还在学校，因为我也没看到他离开，要不我们去找找他？” 洞木光提议道。
+
+The redhead internally groaned. "Just give me a few more minutes I want to… finish up here" she requested.  
+红发少女内心呻吟了一声。“再给我几分钟，我想……把这里弄完。”她请求道。
+
+"Sure" Hikari agreed, walking out of the toilet to wait outside for her.  
+“当然。”光点头同意，走出洗手间在外面等她。
+
+After Asuka was sure Hikari had exited the toilet she quickly moved over to Shinji's cubicle and knocked.  
+在确认光已经离开洗手间后，明日香迅速走到真嗣的隔间前敲了敲门。
+
+"I _really_ need you to finish me Shinji" the girl whispered desperately.  
+“我真的需要你帮我完成，真嗣。”女孩绝望地低声说道。
+
+The boy opened the door and grabbed her without hesitation. He immediately started where they left off, pulling his pants down and shoving himself in as deep and hard as he could as her vagina was still well lubricated. Shinji covered the girl's mouth with his, to prevent Hikari from hearing anything. Really needing to be quick, Shinji didn't bother with unbuttoning her shirt or anything else and just concentrated solely on getting the girl to orgasm. Already having been built up a bit, the redhead was already close to her climax. Asuka held the boy close as he fucked her, her whole body sweating and invigorated.  
+男孩毫不犹豫地推开门，一把抓住了她。他立刻接续上次的激情，迅速脱下裤子，将自己深深地插入，她的阴道依旧润滑良好。为了不让光听到任何声音，真嗣吻住了女孩的嘴。他急需速战速决，懒得解开她的衬衫或其他，只专注于让女孩达到高潮。红发女孩已经积累了些许快感，接近高潮边缘。明日香紧抱着男孩，随着他的抽插，全身汗水淋漓，充满活力。
+
+Shinji clearly felt it when the girl went over the edge and acted accordingly. He kept her against the wall and thrust into her relentlessly, trying to achieve his own orgasm. The redhead was wriggling vigorously as she came, her arms holding him even tighter and he could feel her mouth moaning. Soon, Shinji was having trouble keeping the girl still as it seemed she was struggling against him and then realised she was probably running out of air. He parted from her lips and she instantly gasped for air. At this moment, the boy finally came, spurting his hot semen up her pussy.  
+当女孩越过极限时，真嗣清晰地感受到了，并随之采取了行动。他将她紧贴在墙上，无情地深入，试图达到自己的高潮。红发女孩在高潮中剧烈扭动，双臂将他抱得更紧，他能感觉到她在呻吟。不久，真嗣难以保持女孩静止，似乎她在挣扎，然后意识到她可能快喘不过气了。他离开她的唇，她立刻大口吸气。就在这时，男孩终于高潮了，将滚烫的精液射入她的私处。
+
+The redhead leaned against Shinji as her body calmed down and the boy began to stroke her hair softly. She then groaned and buried her face in the boy's chest.  
+红发女孩靠在真嗣身上，身体逐渐平静下来，男孩开始温柔地抚摸她的头发。她随后呻吟一声，将脸埋在男孩的胸前。
+
+"You alright?" Shinji asked.  
+“你还好吗？”真嗣问道。
+
+"I have to go look for you with Hikari. Couldn't she just let it go?" Asuka complained.  
+“我得和光一起去找你。她就不能放手吗？”明日香抱怨道。
+
+Shinji just chuckled. "Well, you best get fully cleaned up then. You look as if you lived through a tornado" he remarked.  
+真嗣只是轻声笑了笑。“那你最好彻底清洗干净。你看起来像是刚从龙卷风里逃出来。”他打趣道。
+
+Asuka pushed the boy off of her and straightened her skirt again. Shinji just pulled his pants back up while the redhead went over to the sink to fix herself up. This time the girl fixed up her hair neatly, smoothed out her shirt and washed herself a bit.  
+明日香把男孩从自己身上推开，再次整理好裙子。真嗣则拉起裤子，而红发女孩走到水池边整理自己。这次，她把头发梳理得整整齐齐，抚平了衬衫，还稍微洗了洗脸。
+
+"I'd better go…" Asuka said, turning to face the boy when she was done.  
+"我还是走吧……" 明日香说完，转身面对那个男孩。
+
+"Nothing we can do about it" Shinji replied, shrugging his shoulders.  
+"我们对此无能为力" 真嗣回答，耸了耸肩。
+
+At this, the boy returned to his cubicle just in case while the redhead took her bag from the floor and placed it on her back before exiting the female restroom. He waited inside the cubicle for a little while before he decided that the girls weren't coming back in. Shinji then also placed his bag on his shoulders and exited the cubicle before moving over to the door and pressing up against it to hear if the girls were still there. Unable to hear anything, he decided he would open the door. As the boy opened the door slowly, he prayed that they really were gone and that no females would try to enter the toilet as he left.  
+听到这话，男孩回到自己的隔间以防万一，而红发女孩则从地上拿起书包，背在背上，然后离开了女洗手间。他在隔间里等了一会儿，确定女孩们不会回来后，真嗣也把书包背在肩上，走出隔间，走到门口，贴着门听外面是否还有女孩的声音。听不到任何动静，他决定打开门。男孩慢慢地打开门，祈祷她们真的已经离开，并且在他离开时不会有其他女孩试图进入洗手间。
+
+When the door was open enough that he could fit through, Shinji poked his head outside and saw no one in the corridor. He quickly slipped out of the restroom before anyone came and sighed in relief; he had passed the first obstacle, now to get out of the school without the other two girls finding him. Even though he really wanted to walk home with Asuka, it would require that he reveal himself to Hikari and some annoying questions to answer would follow. Thinking that they wouldn't look for him at the entrance to the school first, Shinji decided he would just go straight to the exit and get out of the school as soon as possible.  
+当门开到足够他通过时，真嗣探出头，发现走廊上空无一人。他迅速溜出洗手间，以免有人进来，然后松了一口气；他通过了第一个障碍，现在要设法在另外两个女孩找到他之前离开学校。尽管他真的很想和明日香一起走回家，但这意味着他必须向光和一些烦人的问题坦白。考虑到她们不会先在学校入口处找他，真嗣决定直接走向出口，尽快离开学校。
+
+Unfortunately for the boy, both Asuka and Hikari were waiting for him at the exit of the school building; he had been caught. _'So much for that plan'_ he thought.  
+不幸的是，对于这个男孩来说，明日香和光已经在学校建筑的出口处等着他了；他被逮个正着。'这个计划算是泡汤了'他心想。
+
+"See Asuka, I told you the best place to wait for him was at the exit" Hikari said proudly.  
+“看吧，明日香，我告诉过你，等他的最佳地点就是出口。”光自豪地说道。
+
+"Oh, hey girls… is something wrong?" Shinji asked, trying to sound curious.  
+"哦，嘿，姑娘们……有什么不对劲吗？" 真嗣问道，试图听起来充满好奇。
+
+The ponytailed girl moved over to Shinji and reached into his pocket, pulling out Asuka's panties and studying them.  
+扎马尾的女孩走到真嗣身边，伸手进他的口袋，掏出明日香的内裤，仔细研究起来。
+
+"Wait-!" Shinji started. "等等——！" 真嗣开口道。
+
+"I knew it, it _is_ yours Asuka" Hikari interrupted. "Here you go, these are yours" she said, giving the redhead back her panties which Asuka then pocketed.  
+"我就知道，这是你的，明日香。" 光子打断道，"给你，这些是你的。" 她边说边把红发女孩的内裤递还给她，明日香随即塞进了口袋。
+
+"Explain yourself Ikari" Asuka demanded.  
+"解释一下，碇。" 明日香要求道。
+
+_'What the hell do I say?'_ the boy thought. As no words came to his mouth, he just stayed silent.  
+'我到底该说什么？' 男孩心想。由于无言以对，他只是沉默不语。
+
+"She's asking you why you have her underwear in your pocket" Hikari rephrased.  
+"她问你为什么口袋里有她的内衣" 光重新表述道。
+
+Shinji knew he had to respond with something, so he used the same excuse he used with his friends.  
+真嗣知道他必须说点什么，于是他用了一个和朋友们一样的借口。
+
+"Well, I was doing the laundry at home and… I don't know… maybe I somehow left it in my pants, I was surprised to find it in my pocket as well" he answered.  
+"嗯，我在家里洗衣服，然后……我不知道……可能我不知怎么地把它落在了裤子里，我自己也很惊讶会在口袋里找到它" 他回答道。
+
+"Why should I believe you?" Asuka asked.  
+“我为什么要相信你？”明日香问道。
+
+_'Don't make things harder Asuka'_ Shinji thought angrily.  
+“别让事情变得更复杂了，明日香。”真嗣气愤地想。
+
+"Why would I steal _your_ panties? Even if I _wanted_ to steal them, I wouldn't even bring them to school, I could easily have made sure you wouldn't find out" he replied.  
+“我为什么要偷你的内裤？就算我想偷，也不会带到学校来，我完全可以确保你不会发现。”他回答道。
+
+"That's a good point. I guess I need to check your room when we get home. You're still getting slapped though" Asuka said, smirking.  
+"那是个好主意。我想回家后得检查一下你的房间。不过你还是得挨这一巴掌。" 明日香说着，嘴角微微上扬。
+
+Even with the warning and the subsequent bracing of himself, the slap still hurt like hell; a huge red hand-shaped welt on the boy's cheek was proof enough. Shinji cursed himself for falling in love with this violent girl as he nursed his poor cheek.  
+“你最好别再让我抓到你偷我的内衣，第三适格者。”红发女孩威胁道。
+
+"I better not catch you with my underwear again third child" the redhead threatened.
+
+The boy just nodded pitifully in agreement.  
+男孩只是可怜兮兮地点头表示同意。
+
+"I think you hit him a little _too_ hard Asuka, his face is already injured" Hikari said worriedly.  
+“我觉得你打他打得太重了，明日香，他的脸已经受伤了。” 光担忧地说道。
+
+"Don't worry about this baka, besides he deserved it" Asuka refuted.  
+“别担心这个笨蛋，再说了，他活该。” 明日香反驳道。
+
+"We now know it was an accident and thinking about it now, the embarrassment he got in class was probably more than enough of a punishment" Hikari replied.  
+“我们现在知道那是个意外了，想想当时，他在班上受到的尴尬可能已经足够作为惩罚了。” 光子回答道。
+
+"Whose side are you on? Your best friend's or a panty thief's?" Asuka argued.  
+“你到底站在谁那边？你最好朋友的还是内裤小偷的？” 明日香争辩道。
+
+Hikari just giggled in response. "Sometimes you can behave so childishly Asuka. You should go make it up to Shinji when you get home, this all came from him doing your laundry after all" the class rep told her.  
+光子只是咯咯地笑了起来。“有时候你表现得像个小孩子一样，明日香。你回家后应该去向真嗣道歉，毕竟这一切都是因为他帮你洗衣服引起的。” 班长告诉她。
+
+"I can't believe my _best friend_ is betraying me" Asuka huffed.  
+"我真不敢相信我最好的朋友会背叛我。" 明日香气呼呼地说。
+
+"Don't you feel sorry for Shinji at all?" Hikari inquired, grinning at her friend's behaviour.  
+"难道你一点都不同情真嗣吗？" 光子问道，对着朋友的行为咧嘴一笑。
+
+"Now you're trying to make me feel guilty?" the redhead said disbelievingly.  
+"现在你是在试图让我感到内疚吗？" 红发女孩难以置信地说。
+
+"Don't be so difficult all the time or Shinji will leave you" Hikari joked.  
+"别总是这么难相处，不然真嗣会离开你的。" 光子开玩笑地说。
+
+"WHAT?!" Asuka shouted, while Shinji almost fell over.  
+"什么？！" 明日香大喊，而真嗣差点摔倒。
+
+The ponytailed girl laughed at the redhead's reaction. "Relax Asuka, I was just kidding" she said in response to the look she was getting.  
+扎马尾的女孩对红发女孩的反应笑了起来。"放松点，明日香，我只是在开玩笑。" 她回应着对方的眼神说道。
+
+"You scared me there for a second Hikari" Asuka replied.  
+"你刚才真把我吓了一跳，光" 明日香回答道。
+
+"But seriously Asuka, give the boy a break" Hikari requested.  
+"但说真的，明日香，放过那男孩吧" 光请求道。
+
+"Oh fine already" Asuka said grudgingly.  
+"好吧，好吧" 明日香不情愿地说。
+
+"You're a good person Asuka" Hikari complimented.  
+"你是个好人，明日香。" 光称赞道。
+
+"Yeah yeah whatever" the redhead replied.  
+"是是是，随便吧" 红发女孩回答。
+
+"Well, it's already quite a bit past the end of school so I better get going" Hikari announced. "I'll see you two later"  
+"嗯，放学已经过去很久了，我得走了" 光宣布道。"回头见，你们俩"
+
+"Bye Hikari" both Shinji and Asuka replied, before the class rep rushed off out of the school.  
+“再见，光” 真嗣和明日香齐声回答，随后班长匆匆离开了学校。
+
+"Damn you are so gonna get it for that Asuka" Shinji said in pain.  
+“该死的，明日香，你一定会为此付出代价的” 真嗣痛苦地说道。
+
+"Well it's your own stupid fault for taking my panties" Asuka countered.  
+“哼，谁让你拿我内裤的，活该” 明日香反驳道。
+
+"I still don't understand why you had to do it that hard" Shinji retorted.  
+"我还是不明白你为什么要做得那么狠。" 真嗣反驳道。
+
+"I had to act normal ok? It's not my fault" she snapped.  
+"我得表现得正常，好吗？这不是我的错。" 她厉声说道。
+
+"Oh of course, you had to act _normal_. I had forgotten being a violent bitch was 'normal' for you" he replied.  
+"哦，当然了，你得表现得正常。我都忘了对你来说当个暴力婊子是'正常'的。" 他回答道。
+
+"God you're nothing but a big baby" Asuka said irately before moving over to the boy and planting a kiss where she slapped him. "There, a kiss to make it feel better ok?"  
+“天啊，你简直就是个大宝宝。”明日香恼火地说道，然后走到男孩身边，在他被扇的地方吻了一下。“好了，一个吻让你感觉好些了，行吗？”
+
+Any anger Shinji felt instantly disappeared and he couldn't help smiling at her actions. "Well I guess I was mistaken, you really are a good person" he replied, before kissing the girl on the lips.  
+真嗣感到的任何怒气瞬间消失，他忍不住对她笑了。“好吧，我想我错了，你真的是个好人。”他回答道，然后在女孩的唇上吻了一下。
+
+The boy slipped his tongue into the redhead's mouth as he wrapped his arms around her and pulled her closer. Asuka too gave in to the passion of the moment and kissed the boy back just as avidly. As the redhead returned Shinji's embrace, they both closed their eyes, enjoying the kiss.  
+男孩将舌头滑入红发女孩的口中，同时用双臂环抱住她，将她拉得更近。明日香也沉浸在这一刻的激情中，同样热情地回吻了他。当红发女孩回应真嗣的拥抱时，他们俩都闭上了眼睛，享受着这个吻。
+
+"Oi, go on home already you kids!" a voice called out.  
+"喂，你们这些小鬼，赶紧回家去！" 一个声音喊道。
+
+The two eva pilots jumped and immediately parted as they were startled. They looked to where the voice had come from and saw the school janitor. Both in shock, the two just stood there dumbly.  
+两位 EVA 驾驶员吓了一跳，立刻分开。他们朝声音传来的方向看去，看到了学校的清洁工。两人震惊之余，只是呆呆地站在那里。
+
+"It's way past the end of school and I need to clean the place, so get out of here" the janitor continued.  
+"早就放学了，我得打扫卫生，所以你们快离开这里。" 清洁工继续说道。
+
+"Yes sorry, we'll be going now" Shinji replied, taking Asuka's hand and exiting the school building with her.  
+“是的，抱歉，我们现在就走。” 真嗣回答道，牵起明日香的手，与她一同离开了学校大楼。
+
+As there were still a few students outside, Shinji quickly released the redhead's hand and the two of them walked out the school gates together. Their silent stroll didn't last long as the redhead spoke up.  
+由于外面还有几个学生，真嗣迅速放开了红发女孩的手，两人一起走出了学校大门。他们沉默的散步并没有持续太久，因为红发女孩开口了。
+
+"Well how about that, getting caught by the school janitor while we were pashing" Asuka commented.  
+“哎呀，真是的，居然被学校管理员抓到我们在亲热。” 明日香评论道。
+
+"Yeah, that was definitely a mood killer, but better him than a teacher I suppose" Shinji replied. "You should be more worried about other things though"  
+“是啊，那绝对是个情绪杀手，但总比是老师好吧，我想。” 真嗣回答道。“不过，你应该更担心其他事情。”
+
+"Like what?" Asuka asked.  
+“比如什么？” 明日香问道。
+
+"When we get home, we're going to finish our business. After all, you're still mine for the rest of the day and now there'll be no interruptions" Shinji explained.  
+“等我们回家后，我们要把事情做完。毕竟，你今天剩下的时间还是属于我的，而且现在不会再有打扰了。” 真嗣解释道。
+
+"Yeah… I can hardly wait" Asuka said sarcastically.  
+“是啊……我简直等不及了。”明日香讽刺地说道。
+
+The two adolescents walked the rest of the way to their apartment in silence; after all the events of today, they could use a short break. Arriving at their apartment, they entered the building and took the elevator up to their floor. The two roommates then made their way to their door and entered their residence, closing and locking the door behind them.  
+两个少年一路沉默地走回他们的公寓；经历了今天的一切，他们确实需要短暂的休息。到达公寓后，他们进入大楼，乘坐电梯到达自己的楼层。两位室友随后走向自己的房门，进入住所，并关上并锁好了身后的门。
+
+"We're home!" Shinji called out as they both dumped their bags on the floor.  
+“我们回来了！”真嗣喊道，两人同时把包扔在了地上。
+
+They received no answer in response.  
+他们没有得到任何回应。
+
+"Misato isn't here?" Shinji said hopefully.  
+"美里不在这里吗？" 真嗣满怀希望地说。
+
+"Well, she said she had the day off today, but knowing her, she would spend it sleeping" Asuka remarked. "I'll go check her room to be sure"  
+"嗯，她说她今天休假，但以她的性格，估计会睡上一整天。" 明日香评论道，"我去她房间确认一下。"
+
+The redhead disappeared for a few seconds as she went and checked the Major's bedroom before returning to Shinji.  
+红发女孩消失了几秒钟，她去检查了少校的卧室，然后回到真嗣身边。
+
+"I didn't even have to go into her room to know that she was asleep. Man, that woman snores louder than a thunderstorm" Asuka told the boy.  
+“我甚至都不用进她的房间就知道她在睡觉。天哪，那女人打呼噜的声音比雷暴还响。”明日香告诉男孩。
+
+Shinji sniggered at her comment before replying. "Yeah, I once thought a monster had entered the house when I walked past her door" he recalled.  
+真嗣听到她的评论后轻声笑了起来，然后回答道：“是啊，有一次我经过她的房门时，还以为有怪物闯进家里了呢。”他回忆道。
+
+"Yeah, it's scary isn't it?" Asuka said, laughing.  
+"是啊，挺吓人的，对吧？" 明日香笑着说。
+
+"Oh yeah" he agreed. "哦，没错" 他同意道。
+
+Their laughter was shortly interrupted by a certain redhead's stomach growling. The girl gave the boy a quick look before speaking up. "Well I know you're just _dying_ of anticipation for some 'fun,' but it seems like I'm really hungry, through no fault of my own might I add, so I'm going to eat my bento first" she declared.  
+他们的笑声很快被某个红发女孩的肚子咕噜声打断。女孩迅速看了男孩一眼，然后开口道："好吧，我知道你正迫不及待想要找点'乐子'，但看来我真的饿了，这可不是我的错，所以我打算先吃我的便当" 她宣布道。
+
+"Very well, you have my permission to eat" Shinji teased. "I'll join in too"  
+“很好，我允许你吃。”真嗣打趣道，“我也一起。”
+
+The girl just shook her head at him before opening her bag and taking out her uneaten lunch. Shinji did the same and the two eva pilots then moved over to the dining table before sitting down and eating their meals. It didn't take long for Asuka to finish her food, as it was just lunch, and so she stood up from the table, leaving the empty lunchbox on the table and moving off towards her room. Shinji wasn't too fussed about the redhead running away though, she couldn't escape him anyway. Asuka didn't get very far, however, as the sound of the phone ringing interrupted her trek. As the girl was the closest to the phone, she went and picked up the receiver.  
+女孩只是对他摇了摇头，然后打开书包，拿出她未吃完的午餐。真嗣也照做，两位 EVA 驾驶员随后移步到餐桌前坐下，开始用餐。没过多久，明日香就吃完了她的食物，毕竟只是午餐，于是她从桌旁站起，将空饭盒留在桌上，朝自己的房间走去。真嗣并不太在意红发女孩的逃离，反正她也逃不出他的视线。然而，明日香没走多远，电话铃声就打断了她的脚步。由于女孩离电话最近，她便走过去接起了听筒。
+
+"Hello?" Asuka greeted the phone.  
+“喂？”明日香向电话那头打招呼。
+
+The voice on the other side instantly responded excitedly.  
+电话那头的声音立刻兴奋地回应道。
+
+"Oh, hi Hikari, what's up?" the redhead asked.  
+“哦，嗨，光，怎么了？”红发女孩问道。
+
+"Really, that school dance is actually tonight?" Asuka replied after hearing Hikari's answer.  
+“真的，那个学校舞会居然是今晚？”听到光的话后，明日香回答道。
+
+The girl then paused as she listened to Hikari talk, giving a few grunts now and then as affirmation.  
+女孩随即停下，倾听光说话，不时发出几声咕哝以示肯定。
+
+"No way! You're going with Suzuhara to the school dance?!" Asuka exclaimed.  
+“不可能！你要和铃原一起去学校舞会？！”明日香惊呼道。
+
+"Ah I knew it. You want me to come tonight as well. Do I really have to go?"  
+“啊，我就知道。你也想让我今晚去。我真的非去不可吗？”
+
+The redhead's face soon showed irritation as she listened to the phone.  
+红发女孩的脸很快显露出不耐烦，她听着电话。
+
+"But I don't really wanna go, besides I don't have a partner"  
+“但我真的不想去，而且我也没有搭档。”
+
+This time, Asuka had a surprised look on her face.  
+这一次，明日香脸上露出了惊讶的表情。
+
+"You want me to take Shinji? Are you serious?" she asked disbelievingly.  
+"你想让我带真嗣去？你是认真的吗？" 她难以置信地问道。
+
+Hikari continued to explain her request.  
+光继续解释她的请求。
+
+"Wait a second… you're saying I should make it up to Shinji by taking him to the school dance?"  
+"等一下……你是说，我应该通过带他去学校舞会来补偿真嗣？"
+
+Asuka paused again as she listened to her friend's response.  
+明日香又一次停顿，聆听着朋友的回应。
+
+"That's ridiculous! Why are you so adamant about getting me to go, don't you want to be alone with that stupid jock anyway?"  
+“那太荒谬了！你为什么这么坚持要我去，你不是想和那个蠢蛋运动员独处吗？”
+
+This time, the redhead held the phone away from her ear as her best friend frantically began making "innocent" excuses as to why she was going to the dance with Touji.  
+这次，红发女孩把手机从耳边移开，因为她的挚友开始急切地找一些“无辜”的借口，解释她为何要和东治一起去舞会。
+
+"Oh alright, fine! I will go to the stupid dance" Asuka replied, losing her patience.  
+“哦好吧，行了！我会去那个愚蠢的舞会的。”明日香回答道，失去了耐心。
+
+The girl rolled her eyes as she listened to Hikari giving her gratitude.  
+女孩翻了个白眼，听着光里向她表示感谢。
+
+"Yeah yeah, I'll take him, but only because I don't have any other choice but Shinji at this short notice" the redhead said, sighing.  
+“是是，我会带他去，但只是因为我没有其他选择，只能在这么短的通知时间内选真嗣。”红发女孩叹息道。
+
+"Yeah ok, I'll see you there. Goodbye" she finished, before hanging up.  
+“好的，到时候见。再见。”她说完便挂断了电话。
+
+Asuka turned to face Shinji and sighed in irritation. The boy just looked at her confused, waiting for her explanation as to why he had just been forced to go to the school dance with her without ever being asked.  
+明日香转过身面对真嗣，不耐烦地叹了口气。男孩只是困惑地看着她，等待她解释为什么自己未经询问就被迫与她一同参加学校的舞会。
+
+"Hikari…" the redhead started, "Is just so pathetic. She's too scared to be alone with that stupid idiot and wants me to come, I can't believe how retarded she is argh" she complained.  
+“光……”红发少女开口道，“真是太可悲了。她太害怕和那个蠢货单独相处，想让我也去，我简直不敢相信她有多迟钝，啊！”她抱怨道。
+
+Shinji just looked at his roommate as if someone had just stolen his favourite toy. "But what about me having my fun tonight?" he asked.  
+真嗣只是看着他的室友，仿佛有人刚刚偷走了他最心爱的玩具。“但今晚我也要找点乐子啊？”他问道。
+
+"I promise we'll do it after" Asuka replied.  
+“我保证我们之后会做的”明日香回答道。
+
+"But-" Shinji started. “但是——”真嗣开口道。
+
+"No buts, we're going" Asuka interrupted. "I need to take a shower and you should too. I think I'll put on my black dress. You should wear something formal too like a suit"  
+"别找借口，我们走。" 明日香打断道，"我需要洗个澡，你也该洗。我想穿我的黑色连衣裙。你也应该穿正式点，比如西装。"
+
+"But-" the boy began. "但是——" 男孩开口道。
+
+"What did I just say?" the redhead interrupted again.  
+"我刚说什么了？" 红发女孩再次打断。
+
+Shinji just sighed in resignation; there was no point in arguing with her. "So, what time does it start?" he asked her.  
+真嗣只是叹了口气，表示放弃；和她争论毫无意义。“那么，几点开始？”他问她。
+
+"Very soon, so go get ready now" she answered.  
+“很快就要开始了，所以现在就去准备吧。”她回答道。
+
+With that, Asuka stood up and went straight to the bathroom, closing the door behind her. Not having a choice, Shinji went to his room and began to rummage through his wardrobe for suitable clothing. He found a plain white shirt, a black overcoat and some long black trousers; it kinda looked like a tux and it was all he had anyway. Placing the clothes on his bed, he then exited his room to check if Asuka had finished. The closed door suggested that the redhead had not yet finished and thus Shinji decided to wait.  
+说完，明日香站起身来，径直走向浴室，关上了门。真嗣别无选择，只好回到自己的房间，开始在衣柜里翻找合适的衣服。他找到了一件普通的白衬衫、一件黑色外套和一些黑色长裤；这有点像晚礼服，反正他只有这些。他把衣服放在床上，然后走出房间，看看明日香是否已经准备好了。关着的门表明红发女孩还没结束，于是真嗣决定等待。
+
+It wasn't long till the girl walked out of the bathroom, covered in a towel. Smiling cheekily, Shinji moved over to her and pulled the towel off her.  
+没过多久，女孩裹着浴巾从浴室走了出来。新治咧嘴一笑，凑上前去，一把扯掉了她的浴巾。
+
+"Hey!" Asuka shouted. “嘿！”明日香大喊道。
+
+"What?" Shinji asked innocently.  
+“什么？”新治无辜地问道。
+
+"Give me my towel back" she demanded, attempting to retrieve the towel from the boy.  
+"把毛巾还我" 她要求道，试图从男孩手中夺回毛巾。
+
+The boy found it amusing to watch a bare naked Asuka struggle to grab the towel off him.  
+男孩觉得看着光溜溜的明日香挣扎着从他身上抢毛巾很有趣。
+
+"Do you really need it? I've seen you a dozen times" he replied.  
+"你真的需要它吗？我都见过你十几次了" 他回答道。
+
+"I would advise you not to keep this argument going" the redhead warned.  
+"我建议你不要继续这场争论" 红发女孩警告道。
+
+Reluctantly, the male eva pilot returned the towel to girl who huffed and stormed off to her room. Now that the girl had finished her shower, Shinji entered the bathroom himself. He stripped off his clothes, got into the shower cubicle and turned the handles; nothing but cold water came out.  
+不情愿地，男性 EVA 驾驶员将毛巾还给了那个女孩，她哼了一声，气冲冲地回到自己的房间。既然女孩已经洗完澡，真嗣便走进了浴室。他脱掉衣服，进入淋浴间，转动把手；出来的只有冷水。
+
+_'She used all the hot water again'_ Shinji thought, sighing.  
+'她又把热水用光了' 真嗣心想，叹了口气。
+
+Not wanting to have a cold shower, the boy rushed his shower and got out as soon as he could. Having finished his shower, he dried himself with a towel before exiting the bathroom and returning to his bedroom. Entering his room, he then began to dress up into the clothes he had prepared. When he finished dressing up, Shinji checked himself in the mirror and fixed up his hair and anything else that needed his attention. Satisfied with himself, the boy then went over to Asuka's room to check on her and knocked on her door.  
+不想洗冷水澡，男孩匆匆结束了淋浴，尽快走出浴室。洗完澡后，他用毛巾擦干身体，然后离开浴室回到自己的卧室。进入房间后，他开始穿上事先准备好的衣服。穿好衣服后，真嗣对着镜子检查自己，整理头发和其他需要关注的地方。对自己感到满意后，男孩走到明日香的房间，查看她的情况并敲了敲门。
+
+"Yes?" Asuka responded through the door.  
+“什么事？”明日香隔着门回应道。
+
+"You ready?" Shinji asked.  
+“准备好了吗？”真嗣问道。
+
+"No" she answered. "不" 她回答道。
+
+"Can I come in?" he requested.  
+"我能进来吗？" 他请求道。
+
+"No, I'm not finished" she replied.  
+"不行，我还没完" 她回答说。
+
+He momentarily considered opening her door, but soon thought it wise not to anger her.  
+他短暂地考虑过为她开门，但很快认为最好不要惹恼她。
+
+"Ok I'll be waiting then" he told her.  
+“好的，那我就在这儿等着。”他告诉她。
+
+Having nothing better to do, Shinji went to the kitchen and took out a drink. He then moved to the dining room and sat down on the table, slowly sipping his cup. As the boy waited patiently for his girlfriend to get ready, he thought about whether he would dance or not. Shinji wasn't particularly good at it, but he had learnt some from school and Kaji, who insisted dancing was essential to impressing girls. Dancing by himself wouldn't be too hard, but the prospect of dancing with Asuka made him a bit uneasy; he might have to let her lead. After about 20 minutes of pondering, he heard Asuka's door open; the redhead had finally emerged from her room.  
+既然无事可做，真嗣便走向厨房，拿了一杯饮料。随后他来到餐厅，坐在桌旁，慢慢啜饮着杯子里的液体。男孩耐心地等待着女友准备完毕，同时思考着自己是否该跳舞。真嗣并不擅长跳舞，但他在学校和加持那里学到了一些，加持坚持认为跳舞是吸引女孩子的关键。独自跳舞并不难，但与明日香共舞的前景让他有些不安；他可能得让她来主导。大约 20 分钟的沉思后，他听到了明日香的房门打开的声音；红发女孩终于从房间里出来了。
+
+Shinji stood up from the table as his roommate walked in. When the boy laid his eyes on the girl, he just stood there stunned. Asuka was wearing a low cut glittery black dress which fit tightly around the girl, showing off all her womanly curves. The redhead was also wearing sparkling silver earrings, long white gloves, sexy black stockings and high heels. To top it off, she was wearing eyeliner and luscious red lipstick. The boy had always known that Asuka was beautiful for a girl her age, even sexy, but the dress she was wearing right now accentuated her features and made her appear astounding. Shinji felt a burst of ego as he knew this girl was his.  
+真嗣从桌旁站起身，他的室友走了进来。当男孩看到那个女孩时，他只是呆呆地站在那里。明日香穿着一件低胸的闪亮黑色连衣裙，紧贴着她的身体，展现出她所有的女性曲线。红发女孩还戴着闪闪发光的银色耳环，长长的白色手套，性感的黑色丝袜和高跟鞋。最重要的是，她还化了眼线和诱人的红色口红。男孩一直都知道明日香对于她这个年龄的女孩来说很美，甚至很性感，但她现在穿的这件裙子突出了她的特点，让她显得惊人。真嗣感到一股自豪，因为他知道这个女孩是他的。
+
+"Well, how is it?" Asuka asked after the lack of response.  
+“怎么样？”明日香在对方没有回应后问道。
+
+"You look absolutely gorgeous" Shinji blurted out.  
+“你看起来美极了。”真嗣脱口而出。
+
+The redhead blushed at his remark. "Thank you, you look pretty handsome yourself" she replied.  
+红发女孩听到他的话脸红了。“谢谢，你看起来也很帅气。”她回答道。
+
+"Where the hell did you get a dress like that?" the boy asked curiously.  
+“你到底从哪儿弄来这么一件礼服的？”男孩好奇地问。
+
+"I um… had it custom made for me back in Germany, I decided to bring it over as I would outgrow the dress sooner or later" she answered. "I thought I might as well use it now as I haven't really had any other chance"  
+“我嗯……在德国时特意定制的，我想着迟早会穿不下，就把它带来了。”她解释道，“我觉得现在用上正好，毕竟也没其他机会穿。”
+
+The boy was just speechless as he admired his girlfriend's beauty, unable to say anything to accurately compliment her. Shinji then realised he had been staring at her for quite a bit and not wanting to annoy the redhead, he moved next to the girl.  
+男孩被女友的美貌震撼得说不出话来，无法找到合适的言辞来赞美她。真嗣随后意识到自己已经盯着她看了好一会儿，不想惹恼这位红发女孩，他便移步到她身边。
+
+"S-So then… w-we going now?" he stammered.  
+"那…那我们…现在出发吗？" 他结结巴巴地说。
+
+"Yes let's" she replied. "好的，我们走吧。" 她回答道。
+
+Shinji moved his hand down her backside, feeling the lining of her underwear through the fabric of her dress. The redhead smacked his hand away, thinking he was trying to cop a feel.  
+真嗣将手移到她的臀部，隔着裙子的布料感受她内裤的边缘。红发女孩拍开了他的手，以为他在试图占便宜。
+
+"What happened to the punishment of not wearing panties?" Shinji asked.  
+“不穿内裤的惩罚是怎么回事？”真嗣问道。
+
+"I am _not_ going out in public with this dress without wearing underwear" she said with finality.  
+“我绝不会穿着这条裙子不穿内裤出门的。”她斩钉截铁地说。
+
+"I suppose you have a point. Well let's not waste any more time then" he replied, taking the girl's hand.  
+“我想你说的有道理。那我们别再浪费时间了。”他回答道，牵起了女孩的手。
+
+The boy led her to the front door and opened it for her to pass through first like any gentleman would. The two eva pilots then took the elevator down and out of the apartment building. As they began walking to the school, Shinji couldn't help but steal glances at the girl next to him; Asuka noticed of course.  
+男孩领着她走到前门，像任何绅士一样为她打开门，让她先行通过。两位 EVA 驾驶员随后乘电梯下楼，离开了公寓大楼。当他们开始向学校走去时，真嗣忍不住偷瞄身旁的女孩；当然，明日香注意到了。
+
+"What do you want?" the redhead asked slightly annoyed and pleased at the same time; she really did like attention after all.  
+“你想要什么？”红发女孩略带恼怒又同时感到高兴地问道；毕竟，她确实喜欢被关注。
+
+"Oh err… I was just um…" he stuttered.  
+"哦，呃…我只是，嗯…" 他结巴道。
+
+"Great, I've reduced you to a pile of gibbering jelly" she remarked.  
+"太好了，我把你吓得语无伦次了" 她评论道。
+
+"It's just… I didn't think you could look so stunningly beautiful" the boy said more confidently.  
+"只是…我没想到你能如此惊艳" 男孩更加自信地说。
+
+"Come off it, I already told you I was the most beautiful girl in the whole world" she said arrogantly.  
+“得了吧，我早就告诉过你，我是全世界最漂亮的女孩。”她傲慢地说道。
+
+Shinji just smiled at her comment and the two continued the rest of the walk quietly. Arriving at the school only a few minutes later, they heard a large noise coming from the school hall and so headed in that direction. When the two teens reached the school hall, they found the entrance had a check-in of some sort. Walking up to the "bouncer," Shinji and Asuka told him they were together. The guard stole a glance at the redhead, astonished by her attractiveness. Growing annoyed, Asuka told the man to hurry up, causing him to promptly stamp them both on the wrist; the redhead had to remove her glove temporarily to do so.  
+真嗣只是对她的话微微一笑，两人继续安静地走着。几分钟后到达学校，他们听到学校大厅传来一阵巨大的噪音，于是朝那个方向走去。当两个少年到达学校大厅时，他们发现入口处有某种检查。走到“门卫”面前，真嗣和明日香告诉他他们是一起的。守卫偷瞄了一眼红发女孩，被她的美貌惊呆了。明日香越来越不耐烦，催促那人快点，他赶紧在他们手腕上盖了章；红发女孩不得不暂时脱下手套。
+
+Entering inside, their ears were instantly assaulted by loud music and people chatting. As they looked around searching for Touji and Hikari, they saw the massive dance floor in the centre filled with numerous people moving about somewhat rhythmically. Asuka soon spotted the two sitting over by the tables and motioned to Shinji to follow her to the others. As the two eva pilots walked over to their friends, Touji and Hikari stood up as they noticed them coming.  
+一进门，他们的耳朵立刻被嘈杂的音乐和人们的交谈声淹没。他们四处张望寻找东治和光，看到中央巨大的舞池里挤满了或多或少有节奏地移动的人群。明日香很快发现了坐在桌边的两人，示意真嗣跟着她去找其他人。当两位 EVA 驾驶员走向他们的朋友时，东治和光注意到他们来了，站了起来。
+
+"Hey Hikari" Asuka called out to her.  
+“嘿，光” 明日香向她喊道。
+
+"Wow you look great Asuka!" Hikari exclaimed.  
+“哇，你看起来真棒，明日香！” 光赞叹道。
+
+"For once I'd have to agree" Touji remarked. "You lucky devil Shinji" he said, smacking Shinji's back.  
+“这次我得同意” 真嗣评论道。“你这幸运的家伙，真嗣” 他说着，拍了拍真嗣的背。
+
+"_Extremely_ lucky" Asuka added. "But then so are you Suzuhara, why Hikari is willing to be your partner is beyond me"  
+"极其幸运" 明日香补充道。"不过你也是，铃原，我不明白光为什么愿意做你的搭档"
+
+"Asuka stop it" Hikari pleaded.  
+"明日香，别说了" 光恳求道。
+
+"Fine" the redhead conceded, rolling her eyes.  
+"好吧" 红发女孩让步了，翻了个白眼。
+
+Wanting to break the slightly tense atmosphere, Shinji spoke up. "Hikari you also look quite pretty tonight" he complimented.  
+想要打破这略显紧张的气氛，真嗣开口了。“光，你今晚也很漂亮。”他称赞道。
+
+"Thank you Shinji" Hikari replied, blushing.  
+“谢谢你，真嗣。”光回答道，脸颊泛起红晕。
+
+"Hitting on my partner already? Well I understand, once the redhead opens her mouth all her beauty is lost" Touji joked.  
+“已经开始搭讪我的搭档了？好吧，我理解，一旦红发女孩开口，她的美貌就荡然无存了。”斗志开玩笑说。
+
+"Suzuhara, don't you start now!" Hikari quickly reprimanded him.  
+"铃原，你别现在开始闹腾！" 光立刻责备他。
+
+"You're lucky Hikari is my friend" was all Asuka said, glaring at the jock intensely.  
+"你得庆幸光是我的朋友" 明日香只说了这么一句，狠狠地瞪着那个运动员。
+
+"Why must you two always fight?" Hikari said annoyed. "We came here to have fun, so stop this nonsense already. Anyway, are you going to dance Asuka?" she asked.  
+"你们俩为什么总是吵架？" 光不耐烦地说。"我们来这里是找乐子的，别再胡闹了。话说回来，你要跳舞吗，明日香？" 她问道。
+
+"Yeah, aren't you? The whole point of coming here is to dance, unless you wanna sit and talk all night" Asuka answered.  
+“是啊，难道不是吗？来这儿的目的不就是为了跳舞吗，除非你想整晚坐着聊天。”明日香回答道。
+
+"Are you going to dance with Shinji?" Touji asked.  
+“你要和真嗣跳舞吗？” 冬二问道。
+
+"Who else? He's my dancing partner, it'll be like that time we practised against the twin angels" she replied, reminiscing a little.  
+“还能有谁？他是我的舞伴，就像我们那次与双胞胎天使练习时一样。”她略带回忆地回答。
+
+"Since when does the redheaded demon allow a boy to dance with her?" Touji inquired.  
+"红发的恶魔什么时候允许一个男孩和她跳舞了？" 东治问道。
+
+"Quiet Suzuhara, don't make her change her mind" Hikari snapped.  
+"安静点，铃原，别让她改变主意" 光子急忙制止。
+
+"It's just dancing, it's not like it really means anything" Asuka retorted. "Besides dancing by myself all night would be kinda lame"  
+"这只是跳舞而已，又不是真的有什么意义" 明日香反驳道。"再说了，整晚一个人跳舞也挺无聊的"
+
+Touji remained quiet; she did have a point.  
+真嗣保持沉默；她说的确实有道理。
+
+"And aren't you two going to dance as well anyway?" Asuka continued at his silence.  
+"你们俩不也打算跳舞吗？" 明日香在他沉默中继续说道。
+
+"I suppose so" Touji replied, looking at the ponytailed girl for approval.  
+"我想是的" 冬二回答道，目光投向了那位扎着马尾的女孩，寻求她的认可。
+
+"Sure, when Asuka goes" Hikari answered.  
+"当然，只要明日香去" 光回答说。
+
+"Well, I'd like some refreshments first before doing anything" the redhead commented.  
+"嗯，我想先吃点东西，然后再做其他事情" 红发女孩评论道。
+
+"I'll go get some drinks" Shinji replied, taking Asuka's hint.  
+"我去拿些饮料。" 真嗣回应道，领会了明日香的意思。
+
+The male eva pilot took off his coat and placed it on his seat before walking off to get some refreshments for the group. As the boy moved off, the redhead turned her attention back to the other two.  
+男性 EVA 驾驶员脱下外套，将其放在座位上，然后起身去为小组取些饮品。当男孩离开后，红发女孩将注意力转回到另外两人身上。
+
+"So, you and Suzuhara, when did you two become a couple?" Asuka asked.  
+"那么，你和铃原，你们俩是什么时候成为一对的？" 明日香问道。
+
+"What?!" they both replied.  
+"什么？！" 他们齐声回应。
+
+"I said, when did you two become a couple?" Asuka repeated.  
+"我说，你们俩什么时候成一对了？" 明日香重复道。
+
+"We're just here as dancing partners and nothing else" Hikari answered.  
+"我们只是作为舞伴来的，别的什么都不是。" 光回答。
+
+"Oh, I'm sure" Asuka said sarcastically.  
+"哦，我确信。" 明日香讽刺地说道。
+
+"Well, what about you and Shinji?" Touji countered.  
+"那你和真嗣呢？" 冬二反问道。
+
+"What about us?" Asuka questioned.  
+"我们怎么了？" 明日香反问。
+
+"Are you two a couple?" Touji asked.  
+"你们俩是一对吗？" 冬二问道。
+
+"Of course not" Asuka answered.  
+"当然不是" 明日香回答道。
+
+"There you go, you two are also _just_ dancing partners" Touji argued.  
+"看吧，你们俩也只是舞伴而已" 冬二争辩道。
+
+"Shinji was the only guy I could get to come with me at such short notice, thanks to Hikari who begged me to come, so I didn't have a choice. You two on the other hand chose each other specifically" Asuka shot back.  
+"因为 Hikari 求我一定要来，所以临时通知下只有真嗣能陪我来，我别无选择。而你们俩则是特意选择了对方。" 明日香反驳道。
+
+Touji and Hikari found themselves unable to retort and just as Asuka was about to announce her victory, Shinji came back to the group with a tray of beverages.  
+剑介和光理无法反驳，正当明日香准备宣布胜利时，真嗣拿着一托盘饮料回到了小组。
+
+"Here's your drinks everyone" Shinji announced as he returned.  
+"这是你们的饮料，大家" 真嗣回来时宣布道。
+
+Hikari and Touji quickly took their drinks and sat down at their table. The redhead took one of the two remaining glasses and looked at it distastefully.  
+光和真嗣迅速拿起各自的饮料，坐到了他们的桌子旁。红发女孩拿起剩下的两个杯子中的一个，不满地看着它。
+
+"Cranberry punch? Are you kidding?" Asuka asked.  
+"蔓越莓潘趣酒？你在开玩笑吧？" 明日香问道。
+
+"Sorry, there wasn't much of a choice" Shinji replied.  
+"抱歉，选择不多" 真嗣回答道。
+
+"Don't apologise!" Asuka snapped. The redhead then looked at the other two and an evil smile formed on her face. "Well since I've lost all desire to have a drink, I think I'll go dance now. And as promised, you two will also come up to dance now"  
+"别道歉了！" 明日香厉声说道。红发女孩随即看向另外两人，脸上露出了邪恶的笑容。"既然我现在已经完全不想喝酒了，我想我现在要去跳舞了。而且如我所说，你们两个现在也要上来跳舞。"
+
+"But we just got our drinks Asuka" Hikari objected.  
+"但我们刚拿到饮料，明日香" 光反对道。"
+
+"That's just too bad, it's rubbish anyway" Asuka refuted.  
+"那真是太糟糕了，反正也是垃圾" 明日香反驳道。"
+
+Touji and Hikari reluctantly stood up from the table after which the redhead took Shinji's hand and pulled him to the dance floor with the other two following them.  
+冬二和光子不情愿地从桌边站起身，随后红发的明日香牵起真嗣的手，拉着他走向舞池，另外两人紧随其后。
+
+"You didn't even ask me if I wanted to dance" Shinji said, slightly annoyed.  
+“你甚至没问我想不想跳舞。”真嗣略带不悦地说。
+
+"Are you saying you _don't_ want to dance with me?" Asuka replied, raising her eyebrows.  
+“你是说你不想和我跳舞吗？”明日香挑起眉毛反问道。
+
+"I just wanted you to ask" Shinji answered.  
+"我只是希望你来邀请我" 真嗣回答道。
+
+"What are you, a girl? Stop complaining already, or is it that you can't dance?" Asuka questioned.  
+"你这是怎么了，像个女孩子似的？别再抱怨了，还是说你根本就不会跳舞？" 明日香质问道。
+
+"I can dance fine" Shinji retorted, his pride stepping in.  
+"我跳舞没问题的" 真嗣反驳道，自尊心驱使着他。
+
+The DJ was currently playing some fast-paced dance music and the two roommates began to dance together. They started off dancing individually, pulling a few moves as they tried to show off to the other. Hikari and Touji also began dancing, however snuck off the dance floor after a while and back to their table, far too embarrassed to continue. Shinji and Asuka, however, had completely forgotten about the other two as they were too focused on each other and they began to dance a little closer, trying their best to do some partner dancing to the disco music.  
+DJ 正播放着快节奏的舞曲，两位室友随之起舞。起初他们各自展示舞步，试图在对方面前炫耀一番。光和阿薰也加入了舞蹈，但不久后便悄悄离开舞池，回到桌边，实在太过羞涩难以继续。然而，真嗣和明日香完全忘记了另外两人，他们全神贯注于彼此，开始更靠近地跳舞，尽力配合迪斯科音乐进行双人舞。
+
+"Dancing like this sucks eh? We need something more like the tango to go on" Asuka declared, getting bored of their ridiculous dancing.  
+“这样跳舞真没劲，对吧？我们需要像探戈那样更有感觉的。”明日香宣布道，对他们的滑稽舞步感到厌倦。
+
+As if her wish was granted, some Spanish music came on and Asuka grinned at the boy. Shinji was now terrified to dance with her as he had no choice now but to lead because of his earlier comment.  
+仿佛她的愿望得到了回应，一段西班牙音乐响起，明日香对着男孩咧嘴一笑。真嗣现在害怕与她共舞，因为他之前的话让他别无选择，只能担任领舞的角色。
+
+"What are you waiting for Shinji?" Asuka asked, holding out her hand.  
+"你在等什么呢，真嗣？" 明日香问道，伸出手来。
+
+"Nothing" he replied, taking her hand.  
+"没什么" 他回答，握住了她的手。
+
+Thus, the two eva pilots began actually dancing. Shinji started off simple, just doing a few steps and occasionally twirling her. He then held her around the waist as he curled her next to him before unravelling her outwards. Growing more confident, the boy then began swinging her around a little, the redhead laughing all the while; she was definitely having fun. Shinji then began to dip her and it was now that the two became completely oblivious to their environment. The couple began to pull off a few daring moves and soon a little crowd had formed, watching them dance. It slowly grew larger until Shinji and Asuka were the only ones dancing. At this point, the two eva pilots were dancing really close and the song was almost over. Finishing up, Shinji twirled the redhead all around him before doing a final dip.  
+就这样，两位 EVA 驾驶员开始真正地跳舞。真嗣先从简单的动作开始，只是做了几个步子，偶尔旋转她。然后他搂住她的腰，将她卷曲在身边，再慢慢展开。随着自信的增长，男孩开始轻轻地摇摆她，红发女孩一直笑着；她显然玩得很开心。真嗣接着开始让她倾斜，这时两人完全忽略了周围的环境。这对情侣开始表演一些大胆的动作，很快形成了一个小观众群，观看他们跳舞。人群逐渐扩大，直到只剩下真嗣和明日香在跳舞。此时，两位 EVA 驾驶员跳得非常近，歌曲也快结束了。结束时，真嗣将红发女孩绕着自己旋转了一圈，最后做了一个深情的倾斜。
+
+As the rush was over, the two roommates recomposed themselves before suddenly realising everyone was watching them and they both blushed as they became self-conscious.  
+随着喧嚣过去，两位室友重新整理好自己，突然意识到大家都在看着他们，两人都因自我意识而脸红。
+
+"What are you all looking at?!" Asuka shouted, glaring at everyone.  
+“你们都在看什么？！”明日香喊道，瞪着所有人。
+
+Everyone quickly resumed their previous activities while the two eva pilots walked off the dance floor completely beat and the dance floor was soon full of people dancing again. Shinji and Asuka came back to their friends before plopping down onto their seats.  
+众人迅速恢复了之前的状态，两位 EVA 驾驶员疲惫地离开了舞池，不久舞池又挤满了跳舞的人群。真嗣和明日香回到朋友们身边，一屁股坐回座位上。
+
+"I didn't see you guys on the dance floor when we were done. How long did you even dance for you slackers?" Asuka asked.  
+"我们跳完舞的时候，舞池里没看到你们啊。你们这些懒虫到底跳了多久？" 明日香问道。
+
+"We danced for… a bit" Hikari answered. "But what does it matter as long as we danced"  
+"我们跳了……一会儿" 光回答道。"但只要跳了舞，又有什么关系呢"
+
+"Well sure, you came to a school dance to dance only for _a bit_" Asuka remarked.  
+"当然，你们来学校舞会就是为了跳一会儿舞的" 明日香评论道。
+
+"But you two were dancing so well we couldn't compete" Hikari replied.  
+"但你们俩跳得那么好，我们根本没法比拼。"光子回答道。
+
+"Yeah, I can't believe you were calling _us_ a couple when you two were definitely hitting it off" Touji commented.  
+"是啊，真不敢相信你当时说我们是情侣，你们俩明明就很来电。"东治评论道。
+
+"We were just dancing" both Shinji and Asuka refuted.  
+"我们只是在跳舞而已。"真嗣和明日香同时反驳道。
+
+"Well to me, and probably everyone else, it looked like you two were a couple with those moves you were pulling. You guys were so close to each other, I thought you two were grinding" Touji retorted.  
+"对我来说，可能对其他人也一样，你们俩看起来就像是一对，那些动作太亲密了。你们靠得那么近，我还以为你们在跳贴面舞呢" 东治反驳道。
+
+"Ridiculous, as if I would ever do that with Shinji. You're just upset than Shinji could dance and you couldn't" Asuka snapped, growing tired of his accusations.  
+"荒谬，我怎么可能和真嗣那样。你只是因为真嗣会跳舞而你不会，所以才这么不爽" 明日香厉声回击，对他的指控感到厌烦。
+
+"That wasn't dancing, that was seduction" Touji teased.  
+"那不是跳舞，那是诱惑" 东治打趣道。
+
+"That's it, I've had enough! I come here at Hikari's request, she even asked me to bring Shinji along as I can't get in without a guy, and I wanted to at least have some fun. But no, I can't just dance in peace can I?" Asuka blew up.  
+“就这样，我受够了！我是应光邀请来的，她甚至让我带上真嗣，因为我不带个男生就进不来，我至少希望能有点乐趣。但不行，我连安安静静跳个舞都不行，对吧？”明日香爆发了。
+
+"Wait Asuka, Touji didn't mean that-" Hikari started.  
+“等等，明日香，阿薰不是那个意思——”光开始解释。
+
+"I'm leaving!" the redhead announced, storming off.  
+“我要走了！”红发女孩宣布道，气冲冲地离开了。
+
+There was a moment of silence as the temperamental girl disappeared into the crowd of people.  
+当那个喜怒无常的女孩消失在人群中时，有那么一刻，四周陷入了沉默。
+
+"Good work Touji" Shinji said, irritated.  
+"干得好，东治。" 真嗣带着几分恼怒说道。
+
+"I'm sorry Shin-man. I really was joking. I didn't think she'd go off" Touji replied.  
+"对不起，真嗣。我真的是在开玩笑。没想到她会生气走掉。" 东治回答道。
+
+The male eva pilot just sighed; he couldn't really be that angry at his friend, Asuka had overreacted a bit.  
+男性 EVA 驾驶员只是叹了口气；他实在无法对朋友生气，明日香确实有点反应过度了。
+
+"Well, she should cool off soon enough, besides, at least I got to dance with her. I was lucky she even came with me" Shinji remarked.  
+“嗯，她应该很快就会冷静下来，再说，至少我有机会和她跳舞。她能跟我来已经很幸运了。”真嗣说道。
+
+"Not just that, her dress must have showed off some of her skin and you had front row seats too" Touji teased.  
+“不只是跳舞，她的裙子肯定露出了一些肌肤，而且你还有前排座位。”冬二打趣道。
+
+"Touji!" Shinji replied, blushing.  
+"托基！" 真嗣回答道，脸红了。
+
+"So how was it?" Touji asked, grinning at Shinji.  
+"那么，感觉如何？" 托基问道，对着真嗣咧嘴笑。
+
+"Knock it off Suzuhara, you were only just apologising for making Asuka go off" Hikari snapped, annoyed at his dirty talk.  
+"别闹了，铃原，你刚刚才为让明日香生气道歉呢" 光希厉声说道，对他的粗俗言语感到恼火。
+
+"But-" Touji started. "但——" 冬二开口道。
+
+"No, a true gentleman keeps his head clear. I think you should go apologise to Asuka not to Shinji" Hikari interrupted.  
+"不，真正的绅士头脑清醒。我认为你应该去向明日香道歉，而不是真嗣" 光子打断道。
+
+"I can't go to Sohryu, she'll kill me" Touji contested.  
+"我不能去找惣流，她会杀了我的" 冬二争辩道。
+
+"It's unlikely she'll come back by herself, you need to go get her" Hikari said resolutely.  
+"她不太可能自己回来，你得去接她。" 光坚定地说道。
+
+"Look, I'll go find Asuka" Shinji offered, "I am her dance partner after all"  
+"看，我会去找明日香。" 真嗣主动提出，"毕竟我是她的舞伴嘛。"
+
+"Thanks man" Touji replied gratefully. "Good luck" he added.  
+"谢了，兄弟。" 冬二感激地回答，"祝你好运。" 他又补充道。
+
+"Now that's a true gentleman" Hikari complimented Shinji.  
+“这才是真正的绅士。”光称赞了真嗣。
+
+With that, the male eva pilot walked off in search of the redhead. He pushed his way through the crowds of people but was unable to locate her within the school hall. Inferring that Asuka had left the school hall, Shinji then exited the place himself and searched the school grounds hoping that she hadn't gone too far. Fortunately, the boy found Asuka sulking on a bench.  
+说完，男性 eva 驾驶员便开始寻找那位红发少女。他挤过人群，但在学校大厅里始终找不到她。推测明日香可能已经离开了学校大厅，真嗣便自己走了出去，在学校操场上寻找，希望她没有走得太远。幸运的是，他发现明日香正闷闷不乐地坐在长椅上。
+
+"Thank goodness, I finally found you Asuka" Shinji called to her.  
+“谢天谢地，我终于找到你了，明日香。”真嗣向她喊道。
+
+The redhead turned her head away from him and ignored him. Shinji just continued to walk over to her, wondering how angry she was. When he was standing in front of her, he looked down at the girl.  
+红发女孩将头转向一边，不理睬他。真嗣继续向她走去，心中疑惑她到底有多生气。当他站在她面前时，他低头看着这个女孩。
+
+"Are you okay Asuka?" he asked softly.  
+“你还好吗，明日香？”他轻声问道。
+
+The girl continued to stay quiet and made no response. Shinji took her chin and gently turned her to face him only to have her turn away again. A little irritated, Shinji then forcefully turned her face towards him and held it in place.  
+女孩依旧沉默不语，没有任何回应。真嗣握住她的下巴，轻轻地将她的脸转向自己，却见她再次转过头去。有些恼火，真嗣这次用力将她的脸转向自己，并固定住不让动。
+
+"Stop behaving like this, it wasn't that big of a deal. If something else is bothering you, just tell me" Shinji said firmly.  
+"别这样了，没那么严重。如果还有什么事让你烦心，直接告诉我。" 真嗣坚定地说道。
+
+"You know what's bothering me? Everything!" she replied.  
+"你知道我在烦什么吗？所有事！" 她回答道。
+
+"Would you mind elaborating a little" Shinji responded, releasing his grip on her chin.  
+"能稍微详细说说吗？" 真嗣回应道，松开了握住她下巴的手。
+
+"I know I don't normally care about what others say, but it's just been getting on my nerves recently. I have to go act like a bitch or I can't do anything with you outside of our apartment, yet it also means I can't have fun with you, it's so frustrating. I had no choice but to storm off angry" Asuka explained.  
+"我知道我通常不在乎别人怎么说，但最近这真的让我很烦躁。我不得不表现得像个泼妇，否则我们就不能在公寓外做任何事，但这同时也意味着我不能和你一起玩，太令人沮丧了。我别无选择，只能生气地离开。" 明日香解释道。
+
+"Why didn't we just tell them the truth then?" Shinji replied.  
+"那我们为什么不直接告诉他们真相呢？" 真嗣回答。
+
+"Because they would rub it in my face and I would have to take back everything I've said, it's just too much to deal with" she answered.  
+"因为那样他们会得意忘形，我得收回我说过的一切，这太难应付了。" 她回答。
+
+"I don't think it'd be that bad" Shinji reassured.  
+"我觉得不会那么糟糕的。" 真嗣安慰道。
+
+"Yes it would, I'm pretty much just a cute girl with no real friends" she replied.  
+"不，会很糟糕的，我基本上只是一个没有真正朋友的可爱女孩。" 她回答说。
+
+"Come on Asuka, Hikari is definitely your friend and even _Touji_ was sorry he made you leave. He was only joking, as usual, so come back Asuka" Shinji implored.  
+"别这样，明日香，光绝对是你的朋友，而且就连阿薰也对你离开感到抱歉。他只是像往常一样开玩笑，所以回来吧，明日香。" 真嗣恳求道。
+
+"But I'm deceiving them, living this lie is hard and what happens if they find out the truth?" she refuted.  
+"但我欺骗了他们，生活在这样的谎言中很艰难，如果他们发现了真相怎么办？" 她反驳道。
+
+"I'm sure they'd understand why we were hiding this Asuka. Are you just ashamed of being with me?" Shinji asked.  
+"我相信他们会理解我们为什么要隐瞒这个，明日香。你只是因为和我在一起而感到羞愧吗？" 真嗣问道。
+
+"No, I'm just ashamed of myself for being so weak" she answered, her voice cracking a little.  
+"不，我只是为自己如此软弱而感到羞愧" 她回答，声音有些哽咽。
+
+"Asuka it's ok to be weak sometimes, you even said that you didn't want to be strong anymore" he replied. "And honestly Asuka, given what you've been through, I think you need a rest from being so almighty all the time"  
+"明日香，有时候软弱是可以的，你甚至说过你不想再坚强了" 他回答道。"老实说，明日香，考虑到你所经历的一切，我想你需要从一直以来的无所不能中休息一下"
+
+"It's how I've lived my whole life, I can't just…" she said, trailing off.  
+"这是我一直以来生活的模式，我不能就这样…" 她说到一半就停住了。
+
+"Asuka, it's only me here, just let it out" Shinji entreated.  
+"明日香，这里只有我，就让它发泄出来吧" 真嗣恳求道。
+
+"Just stop it, who wants to love someone weak!" Asuka refuted.  
+"别说了，谁会爱一个弱者！" 明日香反驳道。
+
+"I love you even more when you are at your weakest Asuka, just stop holding back" Shinji continued.  
+"正是在你最脆弱的时候，我更爱你，明日香，别再压抑自己了。" 真嗣继续说道。
+
+"No… shut up… I-I…" she choked, before her eyes began to water.  
+"不…闭嘴…我…" 她哽咽着，泪水开始在眼眶中打转。
+
+The boy embraced the girl tenderly as she desperately fought against her tears, her face buried in his shoulder. He just stayed silent, rubbing her back soothingly. Fortunately, Asuka calmed down shortly preventing any messing up of her makeup. The redhead then quickly moved off Shinji, embarrassed at her display.  
+男孩温柔地拥抱着女孩，她拼命忍住泪水，脸埋在他的肩上。他只是静静地站着，轻轻地抚摸她的背以示安慰。幸运的是，明日香很快就平静下来，避免了妆容的凌乱。红发女孩随即迅速离开真嗣，对自己的表现感到尴尬。
+
+"You feel better now?" Shinji asked, seeing that she was feeling better.  
+“你现在感觉好些了吗？”真嗣问道，看出她情绪有所好转。
+
+"Yeah, I guess" she said, sniffing a little.  
+“嗯，我想是的。”她吸了吸鼻子，轻声回答。
+
+The boy leaned down towards the redhead and gave her a soft kiss on the lips.  
+男孩向红发女孩俯下身，轻轻地在她唇上印下一吻。
+
+"God damn you're turning me soft" Asuka said annoyed when they parted. "I would never complain about something so trivial before _and_ you almost made me cry" she added, wiping the water out of her eyes.  
+“该死的，你让我变得软弱了。”明日香在他们分开时恼怒地说，“我以前从不会为这种小事抱怨，你几乎让我哭了。”她补充道，擦去眼角的泪水。
+
+Shinji chuckled in response and the two just sat there for a while.  
+真嗣轻声笑了笑作为回应，两人就这样静静地坐了一会儿。
+
+"Well, we should get back to the hall soon before they wonder where we are, we don't want any rumours to start now do we?" he replied.  
+"嗯，我们该尽快回到大厅去，免得他们好奇我们去了哪儿，现在可不想有什么流言蜚语传开，对吧？" 他回答道。
+
+"Good point" Asuka agreed.  
+"说得对" 明日香表示同意。
+
+The two eva pilots returned to school hall together, showing the guard the stamp on their wrists before entering. The two roommates then walked back over to where Touji and Hikari were. The ponytailed girl first noticed the redhead was back and went up to her, hugging her. Touji came up to them next and scratched his head anxiously.  
+两位 EVA 驾驶员一同返回学校大厅，向门口的保安展示了手腕上的印章后进入。两位室友随后走向了东治和光的位置。扎着马尾的女孩首先注意到红发少女回来了，上前拥抱了她。东治随后也走了过来，焦虑地挠了挠头。
+
+"Yo Sohryu, sorry about before, it was just a joke" Touji apologised.  
+"哟，惣流，之前的事抱歉了，只是开个玩笑。" 冬二道歉道。
+
+"What are you, Shinji?" Asuka remarked, smirking.  
+"你这是怎么了，真嗣？" 明日香带着一丝讥讽的微笑说道。
+
+"Hey!" Shinji said, offended.  
+"嘿！" 真嗣感到被冒犯地说道。
+
+"Nah, I just didn't mean to make ya go off angry" Touji replied.  
+"不，我只是不想让你生气离开。" 冬二回答道。
+
+"Well whatever, it's not every day you show some remorse for your imbecility, so I'll accept your apology" Asuka said, holding out her hand. "But just this once"  
+"好吧，不管怎样，你难得为自己的愚蠢感到后悔，我就接受你的道歉吧" 明日香说着，伸出手来。"但仅此一次"
+
+"You can't just humbly accept an apology can you Asuka?" Hikari said, sighing.  
+"你不能就这么谦逊地接受道歉，是吧，明日香？" 光子叹了口气说。
+
+"Relax Hikari, she's just teasing me back" Touji said, taking the redhead's hand and shaking it.  
+"放松点，光，她只是在回逗我" 冬二说着，握住红发女孩的手摇了摇。
+
+"Guess you do have some intelligent moments after all" Asuka remarked.  
+"看来你终究还是有那么几个聪明时刻的" 明日香评论道。
+
+"Well now that everything's settled, let's get back to enjoying ourselves" Shinji suggested.  
+"既然现在一切都解决了，我们继续享受吧" 真嗣提议道。
+
+The ponytailed girl looked at her watch and then frowned. "Unfortunately, it's quite late and my parents were adamant about me coming home so I must go" she replied.  
+扎着马尾的女孩看了看手表，然后皱起了眉头。“不幸的是，现在很晚了，我父母坚持要我回家，所以我必须走了。”她回答道。
+
+"Then I have to go as well" Touji started, "Besides I can't just let a girl walk alone at this time of night" he finished.  
+“那我也得走了，”东治开口道，“再说，我不能让一个女孩在这样的夜晚独自走路。”他补充道。
+
+"I'll take you up on your offer" Hikari replied, smiling.  
+“我接受你的提议，”光笑着回答。
+
+The class rep then turned to face the redhead.  
+班代表随后转向了红发女孩。
+
+"I guess it's goodbye then Asuka and Shinji, I had a good time, thanks for coming" Hikari thanked.  
+“我想这就是再见了吧，明日香和真嗣，我玩得很开心，谢谢你们来。” 光感谢道。
+
+"We really didn't get to talk much but I guess it can't be helped" Asuka said, disappointed. "I guess me and Shinji will leave now as well, at least I got to dance"  
+“我们真的没怎么聊到，但我想这也是没办法的事。” 明日香失望地说，“我想我和真嗣也该走了，至少我跳了舞。”
+
+"A good dance it was too. We'll see you two tomorrow" Hikari replied.  
+"那舞跳得真不错。我们明天见你们俩。" 光回应道。
+
+"You too" Asuka said in response.  
+"你们也是" 明日香回答说。
+
+"Goodbye, both of you!" Shinji added.  
+"再见，你们俩！" 真嗣补充道。
+
+"Goodbye" Touji said waving, before walking off with the ponytailed girl.  
+“再见” 冬二挥手说道，随后与那位扎马尾的女孩一同离开。
+
+The two eva pilots soon followed suit and exited the school hall before making their way to their apartment.  
+两位 EVA 驾驶员很快也跟着离开了学校大厅，前往他们的公寓。
+
+"Well, that was a somewhat nice evening" Asuka said, yawning.  
+“嗯，今晚还算不错。” 明日香打了个哈欠说道。
+
+"Yeah, it was fun" Shinji replied. "Are you tired though?"  
+"是啊，挺有趣的。" 真嗣回答，"不过你累了吗？"
+
+"Not really, no" Asuka answered.  
+"并没有，不累" 明日香回答道。
+
+"Good" he said happily. "那就好" 他开心地说。
+
+"Don't tell me you're still going to-?" she started.  
+"别告诉我你还在打算——？" 她开口道。
+
+"It's not the end of the day yet and you did promise" he interrupted.  
+"今天还没结束呢，你确实答应过" 他打断道。
+
+"Quite…" she said, trailing off.  
+"确实……" 她话音渐弱。
+
+They walked the rest of the way without saying another word; they had said enough for the day. Upon arriving at the apartment building, they took the elevator up to their floor and went to their door. After entering their residence, they locked their door before checking Misato's bedroom to see if she was still sleeping; fortunately for them she was.  
+他们一路沉默地走完剩下的路程；今天已经说得够多了。到达公寓楼后，他们乘电梯上了楼层，走到自家门前。进入住所后，他们先锁上门，然后去查看美里是否还在睡觉；幸运的是，她还在睡。
+
+Moving back to the living room, the boy then wrapped his arms around Asuka's waist and held her tenderly. As Shinji embraced the girl, he gently kissed her neck and shoulders while moving one hand up to her chest. The boy fondled her breast and the redhead let out a moan. Removing her gloves, the girl threw them behind her onto the couch. Taking the hint, Shinji then began to pull off Asuka's dress as she held her arms up to make it easier for him before placing it behind him on the couch. Removing the dress left the redhead standing there clad only in her underwear and stockings. The boy then unclasped her bra, dropping it to the floor, while she took off earrings and threw them behind her. Asuka gasped as she felt his cold hands grasp her breasts, making her nipples erect.  
+回到客厅，男孩随即用双臂环抱住明日香的腰，温柔地拥抱着她。当真嗣拥抱着女孩时，他轻轻地吻着她的脖颈和肩膀，同时一只手向上移动到她的胸前。男孩抚弄着她的乳房，红发女孩发出了一声呻吟。她摘下手套，随手扔在沙发上。真嗣领会了她的暗示，开始帮她脱下裙子，明日香举起双臂方便他动作，随后裙子也被扔在了沙发上。脱下裙子后，红发女孩只穿着内衣和丝袜站在那里。男孩解开她的胸罩，让它掉落在地，而她则摘下耳环，同样扔在身后。明日香倒吸一口气，感受到他冰冷的双手握住她的乳房，使她的乳头变得坚挺。
+
+"Cold!" she exclaimed. “好冷！”她惊呼道。
+
+"Well, we were outside at night for a while" he replied.  
+"嗯，我们晚上在外面待了一会儿" 他回答道。
+
+Shinji then softly pinched the girl's nipples eliciting a tiny squeak from her. Moving one hand down teasingly towards her lower region, he made sure to tickle her belly button on the way down causing the redhead to grunt disapprovingly. When Shinji reached Asuka's panties, he noticed her stockings, held up by garters, were blocking the removal of her underwear. The boy then pulled down her garters and stockings before slipping her panties off, leaving her completely naked. Having liked how sexy she had looked with the stockings on, he made the redhead lift her legs again and pulled the garters back up with the stockings now that her panties were off.  
+真嗣轻轻捏了捏女孩的乳头，引得她发出一声微弱的尖叫。他一只手缓缓向下移动，挑逗地接近她的下体，途中还不忘挠她的肚脐，让红发女孩不满地哼了一声。当真嗣触到明日香的底裤时，他注意到她的长筒袜被吊袜带固定着，阻碍了脱下内裤。于是，男孩先解开她的吊袜带和长筒袜，然后脱下她的底裤，让她完全赤裸。他喜欢她穿上长筒袜时的性感模样，于是让红发女孩再次抬起双腿，重新拉上吊袜带和长筒袜，现在她的底裤已经脱掉了。
+
+"You're leaving them on?" Asuka questioned.  
+"你要留着它们吗？" 明日香问道。
+
+"Yeah, I like how they look on you" he replied.  
+"是啊，我觉得它们穿在你身上很好看" 他回答道。
+
+Putting his arms around her waist again, Shinji held her tightly while the girl tensed slightly. The boy found her anxiety puzzling and reached down to tenderly stroke her pussy.  
+再次将双臂环绕在她的腰间，真嗣紧紧地抱着她，而女孩的身体微微紧绷。男孩对她的紧张感到不解，便伸手温柔地抚摸她的私处。
+
+"Why are you so nervous?" he asked her.  
+"你为什么这么紧张？" 他问她。
+
+"It's finally time. I don't know what to expect from you" she answered.  
+“终于到时候了。我不知道该对你有什么期待。”她回答道。
+
+At this, Shinji smiled slightly, amused that she was still expecting some perverted fantasy to be fulfilled with her. He then picked the redhead up and carried her over to his room before opening the door with his foot. Laying her down on his bed he then promptly removed all his clothes. Taking in the sight of Asuka, Shinji grew fully erect; she was stark naked save for the stockings with the black-laced garters on top. Moving on top of the girl, Shinji looked down into her face as he loved to watch the girl's facial expressions as he had his way with her.  
+听到这话，真嗣微微一笑，觉得她还在期待某种变态的幻想得以实现。他随即抱起红发女孩，把她带到自己的房间，用脚踢开门。将她放在床上后，他迅速脱掉了所有的衣服。看着眼前的明日香，真嗣完全勃起了；她一丝不挂，除了那双黑色蕾丝吊袜带的上袜。他压在女孩身上，低头看着她的脸，他喜欢在她身上为所欲为时观察她的表情。
+
+_'One of these days, I'll probably become your slave anyway'_ Shinji thought dryly.  
+“总有一天，我大概会成为你的奴隶吧。”真嗣干巴巴地想。
+
+The boy then moved his mouth down to nuzzle her neck while fingering her pussy causing the redhead to gasp again.  
+男孩接着将嘴移到她的脖颈处轻蹭，同时用手指抚弄她的私处，让红发女孩再次倒吸一口气。
+
+"Your fingers are cold" she remarked.  
+“你的手指好凉。”她评论道。
+
+"Let's warm them up then" he replied, pushing his fingers in deeper, making Asuka moan louder.  
+“那我们就来暖暖它们。”他回答，将手指更深地推进，让明日香发出更响亮的呻吟。
+
+"I don't get it Shinji" Asuka started hesitantly. "What are we going to do?" she asked, unable to contain the burning question any longer.  
+"我不明白，真嗣。" 明日香犹豫地开口，"我们该怎么办？" 她终于忍不住问出了那个迫切的问题。
+
+"We are just going to make love Asuka" he answered.  
+"我们只是要相爱，明日香。" 他回答道。
+
+"That's it?" she asked in disbelief.  
+"就这样？" 她难以置信地问。
+
+"Yep, I prefer to just have normal sex on a bed, all that slave stuff was just for fun and to keep you in obedience, you definitely made my day enjoyable" he explained.  
+“没错，我更喜欢在床上正常做爱，那些奴隶的事情只是为了好玩，让你保持顺从，你确实让我的日子过得愉快。”他解释道。
+
+"Honest to God Shinji, you really are a manipulative bastard" she said glaring at him, annoyed at how he had fooled her.  
+“老实说，真嗣，你真是个操纵人心的混蛋。”她瞪着他，对他愚弄她感到恼火。
+
+The boy just grinned at her response before positioning his member at her entrance and pushing slowly into her wet pussy, watching her intently. The redhead moaned erotically at the penetration and arched her back slightly. Shinji then fondled her breasts gently, just enjoying the moment. He could not take his eyes off Asuka as she looked up at him with longing; she was just so beautiful. However, the boy could see the girl was growing restless and surmised that she could not stand the current slow pace. Smirking a little, he then leant down and kissed her ardently.  
+男孩对她的话只是咧嘴一笑，然后将他的阴茎对准她的入口，缓缓推进她湿润的阴部，目不转睛地看着她。红发女孩因插入而发出色情的呻吟，微微弓起背部。真嗣随后轻轻抚摸她的乳房，只是享受这一刻。他的目光无法从阿斯卡身上移开，她抬头望着他，眼中充满渴望；她是如此美丽。然而，男孩看出女孩变得焦躁不安，推测她无法忍受当前的缓慢节奏。他微微一笑，然后俯身热情地吻了她。
+
+"You love it rough, don't you?" he asked her.  
+"你喜欢粗暴的，对吧？" 他问她。
+
+Irritated at his games, Asuka pushed him back onto the bed and moved on top of him. She vivaciously forced her lips onto his and began tracing circles on his chest.  
+对他的游戏感到恼火，明日香将他推回床上，跨坐在他身上。她热情地将自己的唇压在他的唇上，开始在他胸前画圈。
+
+"Damn straight I like it rough" she replied after parting.  
+"没错，我就喜欢粗暴的" 她在分开后回答道。
+
+Hearing this, Shinji pushed the girl back onto the bed before shoving his cock deep into her vagina. The redhead cried out in a mixture of pleasure and pain as the boy began to speed up his thrusts. This time, he roughly squeezed her breasts and pinched her nipples as he pumped into her. Asuka wrapped her legs around the boy, moaning and crying out with each penetration, her expression showing how lost in the passion she was. Shinji was exhausted from all the sex they already had today and soon came, unable to keep up any longer. Asuka too, was also exhausted and managed to orgasm at the exact same time and the two held onto each other as they climaxed together. The boy then moved off of the redhead and sat down on the edge of the bed, puffing a little.  
+听到这话，真嗣将女孩推回床上，随即猛地将他的阴茎深深插入她的阴道。红发女孩在快感和痛楚的交织中尖叫起来，随着男孩加快抽插速度，他粗鲁地揉捏着她的乳房，并拧掐她的乳头。明日香用双腿缠绕住男孩，每一次插入都伴随着呻吟和呼喊，她的表情显露出她已完全沉溺于激情之中。真嗣因今天已有的多次性爱而筋疲力尽，不久便射精了，无法再继续下去。明日香也同样疲惫不堪，恰好在同一时刻达到了高潮，两人紧紧相拥，共同达到顶峰。随后，男孩从红发女孩身上移开，坐在床边，微微喘息。
+
+"Well, that's the end of your slave day" Shinji said matter-of-factly without turning his head to face her.  
+“好吧，你的奴隶日结束了。”真嗣直截了当地说，没有回头看她。
+
+"Thank God" Asuka replied, relieved.  
+“谢天谢地。”明日香回答，感到如释重负。
+
+"Don't tell me you didn't enjoy it" the boy teased.  
+"别告诉我你不喜欢" 男孩打趣道。
+
+"As if" she refuted, a small smirk on her face.  
+"怎么可能" 她反驳道，脸上带着一丝微笑。
+
+"Unfortunate, but at least one of us did and you certainly kept up your end of the bet splendidly. As a reward, I'll carry you to your room my princess" Shinji replied.  
+"虽然不幸，但至少我们中有一个享受了，而且你确实出色地完成了赌注。作为奖励，我会把你抱到你的房间，我的公主" 真嗣回答道。
+
+"Maybe any other girl would find you charming, but I just think you're annoying. Shut up with that corny crap and just take me to my bed" the girl snapped.  
+“也许其他女孩会觉得你迷人，但我觉得你烦人。别再说那些老套的话了，直接带我去我的床。”女孩厉声说道。
+
+"As you wish" Shinji replied.  
+“如你所愿。”真嗣回答道。
+
+The boy then picked up the tired girl and carried her over to her room, before laying her down on her bed.  
+男孩随后抱起疲惫的女孩，将她带到她的房间，轻轻地让她躺在床上。
+
+"Take off my stockings too please" the girl said, yawning.  
+“请也帮我脱掉丝袜。”女孩打着哈欠说道。
+
+The boy pulled off Asuka's black stockings and just threw them onto the floor. The redhead then got under her covers and stretched her arms.  
+男孩脱下了明日香的黑丝袜，随手扔在地上。红发女孩随后钻进被窝，伸展了一下双臂。
+
+"Goodnight Asuka, sweet dreams" Shinji told her.  
+“晚安，明日香，愿你有个好梦。”真嗣对她说。
+
+"You too, now let me get some sleep" she replied.  
+"你也是，现在让我睡会儿" 她回答道。
+
+With that, Shinji exited her room and went back to his. Lying down on his bed, the boy got under his covers and thought about the day. Fortunately, it seemed Asuka had totally forgotten about her momentary depression yesterday, this whole thing had started because of it and he had gone against Misato's wishes too, but he believed it was worth it. The guilt he had felt since yesterday had disappeared when he saw Asuka's content smile as she went to sleep. It was now that Shinji was finally able to close his eyes and follow her into slumber.  
+说完，真嗣离开了她的房间，回到自己的房间。躺在床上，男孩钻进被窝，回想着这一天。幸运的是，明日香似乎完全忘记了昨天短暂的沮丧，这一切都是因它而起，他也违背了美里小姐的意愿，但他相信这是值得的。自从昨天以来他感到的内疚，在看到明日香入睡时满足的微笑后消失了。现在，真嗣终于能够闭上眼睛，跟随她进入梦乡。
+
+---
+
+End Notes: I hoped you liked this chapter and look forward to what troubles await this couple in the next chapter. I'm surprised at how many times they had 'fun' this day.  
+尾注：希望你喜欢这一章，并期待下一章这对情侣将面临的麻烦。我惊讶于他们这一天有多少次'乐趣'。
+
+Extra Notes: Unbelievably this chapter is now my longest at an amazing 19000 words. This chapter had many events, so adding more description and making it more in character added a lot more words (a good 12000). Although that may change, once I go over the rest of the chapters.  
+附加说明：难以置信，这一章竟成了我最长的篇章，达到了惊人的 19000 字。本章包含众多事件，因此增加了更多描述并使其更符合角色性格，从而增加了大量字数（约 12000 字）。不过，这可能会在我回顾其他章节后有所变化。
+
+---

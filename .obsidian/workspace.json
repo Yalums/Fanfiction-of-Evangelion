@@ -14,7 +14,7 @@
               "type": "markdown",
               "state": {
                 "file": "DeadlyPole - 🍋Shinji and Asuka.md",
-                "mode": "source",
+                "mode": "preview",
                 "source": false
               }
             }
@@ -48,7 +48,7 @@
             "state": {
               "type": "search",
               "state": {
-                "query": "suka, my love",
+                "query": "file:asuka and shinji",
                 "matchingCase": false,
                 "explainSearch": false,
                 "collapseAll": true,
@@ -65,7 +65,8 @@
               "state": {}
             }
           }
-        ]
+        ],
+        "currentTab": 1
       }
     ],
     "direction": "horizontal",
@@ -148,10 +149,14 @@
   },
   "active": "4a79e4891ede4994",
   "lastOpenFiles": [
+    "Shizumaru - In other words.md",
+    "DeadlyPole - 🍋Shinji and Asuka.md",
+    "Norsehound - Splint.md",
+    "Marshall Banana - Asuka Strikes.md",
+    "Karina Kineshi - A Beautiful Day for Piggyback Rides.md",
+    "Snafu the Great - Asuka's Christmas Carol.md",
     "Daquarma - ❤️Open Your Eyes.md",
     "Lexarius - Unasked Advice - ROE.md",
-    "DeadlyPole - 🍋Shinji and Asuka.md",
-    "Karina Kineshi - A Beautiful Day for Piggyback Rides.md",
     "evil chick - The Dreadful Project.md",
     "The Silent One1 - Asuka, My Love.md",
     "FreckledBitches - 🍋This Love.md",
@@ -169,10 +174,6 @@
     "A Writer With No Name - Asuka's First Back Rub.md",
     "YourBlandestNightmare - Eight Notes.md",
     "YourBlandestNightmare - Broken Hands.md",
-    "Yih - So I Love You Now.md",
-    "Wolfcry66 - Condolence and Comfort.md",
-    "The Forth Man - Breakfast, Of Course：Asuka's POV.md",
-    "Tenshi - Fallen Tenshi Story 1.md",
-    "Tashikawa - Shinji, Asuka and The Last Angel.md"
+    "Yih - So I Love You Now.md"
   ]
 }

@@ -1,7 +1,7 @@
 [Snafu the Great](https://fanfiction.net/u/81577/)
 
 Flashbacks reveal Asuka's traumatic, traumatizing, tragic girlhood memory, past, trauma, traumatization and tragedy, which foreshadowed (shaped) her (Asuka's) current abrasiveness (her abrasive personality).  
-闪回揭示了明日香的创伤、创伤、悲惨的少女记忆、过去、创伤、创伤和悲剧，这预示（塑造了）她（明日香）现在的磨砺（她磨砺的性格）。
+闪回揭示了明日香那充满创伤的、作为悲惨的女童的记忆、过去、创伤和悲剧，这预示（塑造了）她（明日香）现在的磨砺（她磨砺的性格）。
 Some miracle young children/child prodigies (masters)/early bloomers are precocious on the outside and the inside, whereas, others are multitalented on the outside and the inside, where, some others are naturally born that way on the outside and the inside, unlike those who’re neither precocious on the outside nor the inside, multitalented on the outside nor the inside nor naturally-born that way nor none of the above.  
 一些奇迹般的小孩/神童（大师）/早熟的人在外在和内在都是早熟的，而另一些则在外在和内在上都是多才多艺的，而另一些人则在外在和内在上天天生就是这样，不像那些外在和内在既不早熟，外在和内在都多才多艺的人，也不是天生的，也不是以上任何一种。
 Some child prodigies are precocious on the outside and the inside, whereas, others are contrastingly multitalented on the outside and the inside, where, some others are naturally born that way on the outside and the inside, unlike those who’re neither precocious on the outside nor the inside, multitalented on the outside nor the inside nor naturally-born that way.  
