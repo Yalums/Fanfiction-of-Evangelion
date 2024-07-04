@@ -1337,3 +1337,281 @@ Smiling brightly, Yumi replied, "She said her name was Rei. Rei Ayanami."
 笑容灿烂地，优米回答道：“她说她的名字是绫波丽。”
 
 ---
+**Part 6 第六部分**
+
+"I want to see the remains of Rei Ayanami."  
+“我想看看绫波零的遗体。”
+
+"What? Right now?" "什么？现在吗？"
+
+"Yes!" "是的！"
+
+Asuka was still trembling, her balled up fists squeezed, her nails almost piercing her soft palm. She couldn't believe it. That little kid, Yumi, Misato's daughter, had drawn a picture of Rei Ayanami! That stupid doll! That bitch! Asuka couldn't deny that one of the things she was mildly happy about when she returned to the real world was that living doll no longer existed. Her remains, the monstrous mutilated pieces of her that drifted in the sea of LCL, had been collected by NERV and deposited in a deep underground vault. By now, information regarding Rei Ayanami had become public to NERV personal only thanks to Misato's investigation and Fuyutsuki's revelations. Asuka couldn't deny that most of the information regarding the blue haired witch didn't surprise her.  
+明日香仍在颤抖，紧握的拳头挤压着，指甲几乎刺入她柔软的掌心。她无法相信。那个小鬼，美里的女儿，由美，居然画了一幅绫波零的画！那个愚蠢的玩偶！那个婊子！明日香不得不承认，当她回到现实世界时，她略感欣慰的事情之一就是那个活生生的玩偶不再存在了。她的残骸，那些在 LCL 海洋中漂浮的可怕残肢，已被 NERV 收集并存放在一个深地下的保险库中。如今，关于绫波零的信息仅对 NERV 内部人员公开，这多亏了美里的调查和冬月的揭露。明日香不得不承认，关于那个蓝发女巫的大部分信息并未让她感到惊讶。
+
+"Why do you want to?" Fuyutsuki asked, mildly irritated. Asuka handed over Yumi's notebook to the Commander, a grim expression on her face. "What's this? A kid's sketchbook?" The book was opened to the drawing of Rei Ayanami, at which he shook his head. "Could just be coincidence."  
+"你为什么要这么做？" 冬月问道，语气中带着些许不悦。明日香将由美的笔记本递给指挥官，脸上带着严肃的表情。"这是什么？一个孩子的素描本？" 书本翻到了绫波零的画页，他摇了摇头。"可能只是巧合。"
+
+"She specifically said she drew someone she had seen on the street. AND she referred to her as Rei Ayanami. What more evidence do you need?" Asuka snapped.  
+"她明确说了她画的是在街上看到的人。而且她还称她为绫波零。你还需要什么证据？" 明日香厉声说道。
+
+"Who drew this?" "这是谁画的？"
+
+"Misato's daughter." "美里小姐的女儿。"
+
+"Oh, well, maybe she saw a picture or heard her mother mention her name," Fuyutsuki replied.  
+"哦，也许她看到了一张照片，或者听她妈妈提到了她的名字，" 冬月回答道。
+
+"That's what I asked. She said she didn't copy a picture, and Misato would never mention Rei around her daughter."  
+"我也是这么问的。她说她没有复制照片，而且美里绝不会在她女儿面前提起丽。"
+
+"How do you know that?"  
+"你怎么知道这些的？"
+
+"Well, who'd want to?" Asuka asked.  
+"哼，谁会想要呢？" 明日香问道。
+
+Fuyutsuki grimaced in submission. "You really despised that girl, didn't you? Rei, I mean."  
+冬月皱眉表示屈服。"你真的很讨厌那个女孩，对吧？我是说绫波。"
+
+"Yes," Asuka replied, not giving further explanation, not remembering how that girl had received so much attention from her superiors despite being the weakest of the pilots, not remembering how that blue haired bitch had stolen Shinji's attention, not remembering just how that bitch reminded her of dolls.  
+"是的，"明日香回答，没有进一步解释，不记得那个女孩是如何尽管是最弱的驾驶员却得到了上级的那么多关注，不记得那个蓝发婊子是如何抢走了真嗣的注意力，不记得那个婊子是如何让她想起了那些玩偶。
+
+A noose hanging from the rafters.  
+从椽子上悬挂下来的绳套。
+
+"Something wrong?" Fuyutsuki asked, curiously.  
+“有什么不对劲吗？”冬月问道，带着好奇。
+
+"It's nothing," Asuka replied, shaking her head, "I still have to have access to Rei's body! I want to see it, now."  
+“没什么，”明日香回答，摇了摇头，“我还需要接触丽身体！我现在就想看看。”
+
+"Fine, if you insist that badly, I'll give you temporary clearance. Just don't touch anything."  
+"好吧，既然你这么坚持，我就给你临时通行证。只是别乱碰东西。"
+
+#
+
+"The pot's boiling over," Toji called over to his wife, staring at the oven in mild fear as he hastily chopped vegetables.  
+"锅要溢出来了，" 真嗣对着妻子喊道，一边紧张地盯着烤箱，一边匆忙切着蔬菜。"
+
+"Can you get it, please?" Hikari called from another room, "I'm kinda busy here."  
+"你能处理一下吗？" 光从另一个房间喊道，"我这里有点忙。"
+
+"I don't know—" "我不知道——"
+
+"I'll handle it," Shinji replied, rising to take care of the pots of food on the oven.  
+"我来处理，" 真嗣回答道，起身去照看烤箱上的锅子。
+
+"Aw, thanks a lot," Toji replied, a smile of relief on his face.  
+"啊，真是太感谢了，" 东治回答，脸上露出释然的微笑。
+
+"Don't worry." Shinji enjoyed cooking by this point. He did it all the time for Asuka, so by now, he was used to preparing food. In fact, he had grown to enjoy it rather much. He didn't know why, but the idea that he was creating something with his own hands, blending tastes, playing God over the dishes of food, and, in the end, seeing other people smile because of him. It sent a wave of pride throughout his body, as though he was doing something right.  
+"别担心。" 此时的真嗣已经很喜欢烹饪了。他经常为明日香做饭，所以现在已经习惯了准备食物。事实上，他甚至开始相当享受这个过程。他不知道为什么，但亲手创造东西的想法，调配味道，掌控着食物的命运，最终看到别人因为他而露出笑容。这让他全身涌起一股自豪感，仿佛他做对了什么。
+
+"So how's the pregnant devil?" Toji asked, curiously, from his chopping.  
+"那怀孕的小恶魔怎么样了？" 正在切菜的冬二好奇地问。
+
+"Eh, she's fine," Shinji replied, "She's just looking at something right now, over at NERV."  
+"呃，她挺好的，" 真嗣回答，"她现在正在 NERV 那边看什么东西。"
+
+"What's that?" Toji asked.  
+"那是什么？" 冬二问道。
+
+"Not sure," Shinji lied. "不太确定，" 真嗣撒了个谎。
+
+"Oh, okay," Toji replied.  
+"哦，好吧，" 冬二回答道。
+
+"Toji, could you get me diapers?" Hikari called out.  
+“冬二，你能帮我拿些尿布吗？” 光喊道。
+
+"Uh, okay!" Toji sprinted to a cabinet full of diapers, grabbed one, and muttered, as he ran off, in a rather hasty mantra, "Please don't let me change her diapers, please don't let me change her diapers, please don't let me change her diapers…" After a few moments, he returned, an expression of relief on his face.  
+“呃，好的！” 冬二冲向一个装满尿布的柜子，抓起一片，边跑边急促地念叨，“千万别让我给她换尿布，千万别让我给她换尿布，千万别让我给她换尿布……” 过了一会儿，他回来了，脸上带着释然的表情。
+
+"I guess you didn't change the diapers?" Shinji asked, tending to the rest of the food on the oven.  
+“我猜你没换尿布吧？” 真嗣问道，忙着烤箱里剩下的食物。
+
+"Very funny." Returning to his chopping, Toji asked, mildly, "So is your future wife having cravings yet?"  
+"真搞笑。" 回到切菜中，Toji 温和地问，"那么，你未来老婆开始有孕期反应了吗？"
+
+"Cravings?" Shinji asked.  
+"孕期反应？" 真嗣问道。
+
+"Yeah, you know, cravings. For food, you know," Toji asked.  
+"对，你知道的，孕期反应。对食物的那种，明白吧，" Toji 问道。
+
+"Not that I can think of," Shinji replied, thinking of the wide variety of food he served at home.  
+"我想不起来有什么特别的，" 真嗣回答道，想起了家里提供的各式各样的食物。
+
+"Hikari had to have lots of beets when she was pregnant," Toji replied, "I don't know why beets, but she just needed them. Knowing Asuka, she'll probably be craving some random German food."  
+"光怀孕的时候特别想吃甜菜，" 渡回答，"我不知道为什么是甜菜，但她就是需要。以明日香的性格，她可能会突然想吃些德国菜吧。"
+
+"Well, it's a good thing she's been teaching me how to cook that sort of stuff," Shinji replied.  
+"嗯，还好她一直在教我怎么烹饪那些东西，" 真嗣回答。
+
+"Really?" "真的吗？"
+
+"Yeah, she even taught me a bit of German," Shinji replied.  
+"是啊，她甚至还教了我一点德语，" 真嗣回答道。"
+
+"Did she charge you money for lessons?"  
+"她收你学费了吗？"
+
+"No, she just wanted help learning how to read and write kanji."  
+"不，她只是想寻求帮助学习如何读写汉字。"
+
+"You mean she can't read kanji? How long has she been in this country now?"  
+"你是说她不会读汉字？她来这个国家多久了？"
+
+"German's her native language, and that's VERY different from Japanese," Shinji replied, "I barely know German, just a few words." Shinji was being humble here and defending his fiancé; he had picked up German pretty easily; it was Asuka who had extreme difficulty with Japanese.  
+"德语是她的母语，那和日语差别非常大，" 真嗣回答道，"我对德语几乎一窍不通，只知道几个词。" 真嗣在这里表现得谦虚，并为自己的未婚妻辩护；他其实很容易就学会了德语；反而是明日香对日语感到极其困难。"
+
+"Oh, okay, that's fine," Toji replied, "I know a bit of English only because I've gone on business trips to America, but that's it."  
+"哦，好的，没关系，" 冬二回答道，"我只因为出差去过美国，所以懂一点英语，仅此而已。"
+
+"Toji!" "冬二！"
+
+"Yeah?" "嗯？"
+
+"Can you make sure Shinji doesn't come into the parlor?"  
+"你能确保真嗣不进客厅吗？"
+
+"Why's that?" "为什么呢？"
+
+"I'm breast feeding and I don't want him to see."  
+"我在哺乳，不想让他看到。"
+
+Shinji imagined, for a brief moment, Hikari placing her dear son's lips to her plumped bosom. The gentle sounds of sucking, the gentle rocking back and forth, a rhythmic pattern that almost made Shinji—  
+真嗣短暂地想象了一下，光将她亲爱的儿子的嘴唇贴在她丰满的胸脯上。那轻柔的吮吸声，轻轻地前后摇晃，一种近乎让真嗣——
+
+"You're thinking dirty thoughts about Hikari, aren't you?" Toji asked, through narrowed eyes, "Stop it. Now."  
+"你肯定在想些对光不纯洁的事，对吧？" 冬二眯着眼睛问道，"别想了，现在就停下。"
+
+#
+
+There her body was, resting in an artificial lake of LCL. Bobbing back and forth, clearly dead, her vacant unseeing eye staring directly at Asuka. She was dead, long dead. This gigantic, titanic entity, kept in a massive vault underground at NERV, was all that remained of her. She was dead! There was no way Yumi could've possibly seen that doll alive. There just wasn't any way.  
+她的身体就那样躺在人造的 LCL 湖中，随波逐流，显然已经死去，那空洞无神的眼睛直勾勾地盯着明日香。她早已死去，长眠于此。这个庞大无比的巨型存在，被安置在 NERV 地下深处的巨大保险库中，仅剩她的遗骸。她已经死了！由美不可能看到那个玩偶还活着。这根本不可能。
+
+"Satisfied?" Asuka turned to see Misato Katsuragi behind her, a small smile on her lips.  
+"满意了吗？" 明日香转身看到身后的葛城美里，她嘴角挂着一丝微笑。
+
+"How did you—" "你怎么——"
+
+"Fuyutsuki told me all about it," Misato replied, "Yumi has quite an imagination, huh?"  
+"冬月都告诉我了，"美里回答，"由美子想象力真丰富，对吧？"
+
+"Are you hiding anything from me?" Asuka asked, inquisitively.  
+"你有什么事瞒着我吗？"明日香好奇地问。"
+
+"Hiding? Why would I do that?" Misato replied, surprised.  
+"躲藏？我为什么要那么做？" 美里回答，感到惊讶。
+
+"Seriously, are you? I can keep a secret, I just need to know if that doll is out there."  
+"说真的，你是吗？我能保守秘密，我只是需要知道那个玩偶是否在外面。"
+
+"Doll?" Misato laughed, "So that's what this is all about."  
+"玩偶？" 美里笑了，"原来这就是问题的关键。"
+
+Asuka's face contorted in rage. "What the hell does that mean?"  
+明日香的脸因愤怒而扭曲。“那他妈是什么意思？”
+
+"It all makes sense now. Rei reminded you of your mother's—"  
+“现在一切都明白了。丽让你想起了你母亲的——”
+
+"Shut up!" Asuka snapped, clamping her hands over her ears as she turned away. The damage was done, though. In her mind's eye, clear as day, she could see it, a body hanging from the rafters by a noose, a doll swinging back and forth at its side. Upon opening her eyes, she could see a planet sized doll staring back at her, a crooked grin on its face, laughing at her even in death. She wanted to throw something at that bitch, that dead looking face that sneered at her, but couldn't. She couldn't damage that piece of carrion, or Fuyutsuki would flip out.  
+“闭嘴！”明日香厉声打断，双手紧紧捂住耳朵转身背对。但伤害已经造成。在她脑海中，那画面清晰如白昼，一具尸体悬挂在横梁上，绳索缠绕，旁边一个玩偶来回摆动。睁开眼时，她看到一个星球大小的玩偶正盯着她，脸上挂着歪斜的笑容，即使在死亡中也在嘲笑她。她想朝那婊子扔点什么，那张死气沉沉的脸嘲弄着她，但她做不到。她不能伤害那具尸体，否则冬月会发疯的。
+
+"I'm sorry," Misato replied, frowning, "Have you told Shinji about that?"  
+"对不起，" 美里皱着眉回答，"你告诉真嗣这件事了吗？"
+
+"No," Asuka replied after a moment of silence.  
+"没有，" 明日香沉默片刻后回答。
+
+"I think you should. It'll help get a lot off your chest," Misato replied.  
+"我觉得你应该告诉他。这样会让你心里轻松很多，" 美里回答。
+
+"I'm fine. I'll handle it on my own."  
+"我没事。我自己能处理。"
+
+"Shinji shared everything from his past with you, right? Shouldn't you do the same?"  
+"真嗣把他过去的所有事情都告诉你了，对吧？你不也应该这样做吗？"
+
+Sighing, the German replied, running a hand through her hair, "He has enough to worry about. I wouldn't want to pile another burden on him. I already ask him to make me food and clean the house. If I were to ask him to help carry all my problems on his back, I think I'd be asking too much of him. The least I can do is carry his burdens and mine. That way, we're even."  
+叹了口气，这位德国人回答道，一边用手梳理着她的头发，"他已经有够多烦心事了。我不想再给他增加负担。我已经让他给我做饭和打扫房子了。如果我还要他帮我背负所有的问题，我觉得我要求得太多了。至少我能做的，是承担起他的负担和我的。这样，我们就扯平了。"
+
+"But I think he'd want to carry your burdens. It would be his way of saying things are okay," Misato replied.  
+"但我想他会愿意替你分担重担的。这将是他用行动表达一切都会好起来的方式，"美里回答道。
+
+"I don't want him to, so shut up about it, already!"  
+"我不想让他这么做，所以别再提了！"
+
+"Alright, I understand," Misato replied, "Oh, and by the way, regarding Yumi and the whole thing with your mother, I took care of it, like you asked."  
+"好吧，我明白了，"美里回答，"哦，对了，关于由美和与你母亲相关的那件事，我已经按照你的要求处理好了。"
+
+"What did you say?" Asuka asked.  
+"你说什么？" 明日香问道。
+
+"That your mother was dead and it was a touchy subject for you."  
+"说你母亲去世了，这对你是敏感话题。"
+
+"Did you say anything else?"  
+"你还说了别的吗？"
+
+"Not at all." "一点儿也不。"
+
+"Thanks." "谢谢。"
+
+#
+
+"I'm home," Shinji replied, ignoring the fact that the house was silent and the lights were off. He walked in, removing his shoes only to walk over to the stove. He was about to set a pot to boil when he heard it: a phone ringing. He glanced at it, curiously. Was it Toji? Had he left something there by accident? Or maybe it was Asuka, telling him something about Rei that she had discovered. He approached the phone, nonchalantly, and answered it. "Hello?"  
+"我回来了，" 真嗣回答道，无视了房子里寂静无声、灯火全灭的事实。他走进门，脱下鞋子，径直走向炉灶。正准备把锅放上去烧水时，他听到了电话铃声。他好奇地瞥了一眼。是东治吗？他是不是不小心落下了什么东西？或者是明日香，告诉他发现了关于绫波的什么事情。他漫不经心地走向电话，接了起来。"喂？"
+
+"Hallo? Wer ist dieses?" "喂？是谁啊？"
+
+"Huh?" Shinji stammered, surprised to hear an unfamiliar female voice on the other side of the phone, "Excuse me?"  
+"啊？"" 真嗣结巴道，惊讶于电话那头传来一个陌生的女性声音，""不好意思，您是？"
+
+"Ist Asuka dort?" "请问是明日香吗？"
+
+"Uh, Asuka?" Shinji tried to remember some of the German he had learned from his fiancé, and decided to speak. "Uh, she's not home right now. Who is this?"  
+"呃，明日香？" 真嗣试图回忆他从未婚妻那里学到的德语，决定开口说话。"呃，她现在不在家。您是哪位？"
+
+"This is her sister." "我是她姐姐。"
+
+"Wait, sister?!" Shinji stammered, "She has a sister?"  
+"等等，姐姐？！" 真嗣结巴道，"她有个姐姐？"
+
+"Yes, she does. Who're you, exactly?"  
+"是的，她是。你到底是谁？"
+
+"I'm Shinji, her fiancé," he said, on instinct. It was only after the words came out of her mouth that he realized what he had just said, and how Asuka's sister wouldn't know that they were engaged.  
+"我是真嗣，她的未婚夫，"他本能地说道。直到话从她嘴里说出来后，他才意识到自己刚刚说了什么，以及明日香的妹妹不会知道他们订婚了。
+
+There was a moment of silence before the voice on the other line asked, curiously, "Verlobtes?"  
+电话那头沉默了一会儿，然后好奇地问道："订婚？"
+
+"Uh, yeah, uh…" "呃，是的，呃…"
+
+"When did this happen!?" "这是什么时候发生的！？"
+
+"A month or two ago."  
+"大约一两个月前。"
+
+"And she didn't tell us?"  
+"她没告诉我们吗？"
+
+"Uh, I thought she did."  
+"呃，我以为她说了。"
+
+There was a period of silence again before Asuka's sister snapped, "So when are you going to come to Germany."  
+又是一阵沉默，随后明日香的姐姐厉声问道：“那你什么时候来德国？”
+
+"Germany!?" "德国！？"
+
+"Who're you talking to?" a familiar voice behind him asked in a cold, dark tone.  
+"你在跟谁说话？" 一个熟悉的声音在他背后冷冷地问道，带着一丝阴暗的语气。
+
+"Oh, uh, hi Asuka. You wouldn't believe who just called just now…"  
+"哦，呃，嗨，明日香。你绝对猜不到刚才谁打电话来了……"
+
+---
