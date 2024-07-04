@@ -665,3 +665,346 @@ Asuka? 明日香？
 Father. 父亲。
 
 ---
+**Part 4 第四部分**
+
+"If you will do it, do it now! Otherwise, leave!"  
+“如果你要做，现在就做！不然就别做！”
+
+"I have a use for you."  
+"我有你的用处。"
+
+"Leave!" "离开！"
+
+The voice of the ghost from his past haunted his mind, enveloped his concentration as he drove home. The thought of his fiancé being pregnant and the no doubt violent rage that awaited him at home was in the back of his head. No, the young adult known as Shinji Ikari was focused on a man from the past, a man who he had not seen for the past decade, a man who still haunted him after all this time. A man with a long chinstrap beard, glasses, white gloves, and a cold, calculating glare that would leave you shivering in your boots.  
+来自过去的幽灵的声音萦绕在他的脑海中，笼罩着他的专注力，当他开车回家时。未婚妻怀孕的想法以及家中无疑等待着他的暴力愤怒在他脑海中挥之不去。不，被称为碇真嗣的年轻人正专注于一个来自过去的人，一个他十年来未曾见过的人，一个即使过了这么久仍然困扰着他的人。一个留着长长的下巴胡须、戴着眼镜、白色手套，以及一双冷酷、算计的眼神，足以让你在靴子里打颤的人。
+
+"Father." “父亲。”
+
+The father who abandoned him, who left him miserable and desperate in the world, alone, only to be a miserable wreck from childhood to adolescence. The horrors of Third Impact and the world that followed it had left him horror struck for the years after it, but every so often Shinji would remember the bastard of a father he had, unloving and uncaring. The only person he had ever met who had a kind thing to say about that man was Shinji Ikari's superior, the current Commander of NERV itself: Fuyutsuki.  
+那个抛弃了他的父亲，让他在这个世界上孤独、绝望，从童年到青春期都只是一个悲惨的废人。第三次冲击及其后的世界留下的恐怖，让他多年后仍心有余悸，但时不时地，真嗣会想起他那个无情无爱的父亲。唯一一个对那个男人有好话的人，是真嗣·碇的上司，NERV 现任指挥官：冬月。
+
+Shinji remembered when NERV had first been recommissioned by the World Government. Fuyutsuki, who had offered an explanation of the whole ordeal of Third Impact, was allowed to lead the organization, especially considering how Fuyutsuki decided to lend his effort reconstructing the Japanese government during the horrors of the early post-Third Impact world. Fuyutsuki was quick to hire all the old members of NERV, including the Eva pilots. Maya had been put in charge of the science department, Hyuga had become one of the head tacticians, Aoba was head of Weapon Development and the unofficial musician for the NERV Christmas parties, Misato was promoted to sub-commander, both he and Asuka were given high ranking jobs. Their schedules, thankfully, rarely clashed, so if they did have a child, they'd be able to raise—  
+真嗣记得 NERV 最初被世界政府重新启用的时候。冬月副司令曾对整个第三次冲击事件做出了解释，因此被允许领导组织，尤其是在第三次冲击后初期世界的恐怖中，他决定贡献力量重建日本政府。冬月迅速招募了 NERV 的所有老成员，包括 EVA 驾驶员们。玛雅被任命为科学部门负责人，日向成为了首席战术师之一，青叶担任武器开发部门主管兼 NERV 圣诞派对的非官方音乐家，美里晋升为副指挥官，他和明日香也都获得了高阶职位。幸运的是，他们的日程很少冲突，所以如果他们有了孩子，也能够共同抚养——
+
+Father. 父亲。
+
+That set Shinji back on track. He remembered when Fuyutsuki had first hired him. Shinji had refused, or at least was hesitant. This was his father's company, not his. He didn't want to be reminded of that man, that bastard, anymore than he had to. It was then that Fuyutsuki had said, wearily, "You know, your father would've wanted me to give you this high paying job, you know? One day you'll know this."  
+这使真嗣重新回到了正轨。他记得当初冬月第一次雇用他时的情景。真嗣拒绝了，或者说至少是犹豫不决。这是他父亲的公司，不是他的。他不想再被那个男人，那个混蛋，提醒任何关于他的事情。就在那时，冬月疲惫地说道：“你知道吗，你父亲会希望我给你这份高薪工作的，你知道吗？总有一天你会明白的。”
+
+The man who left him alone as a child for years, only called him when he needed him, and left him an emotional train wreck would have wanted him to work in a corporation that had been labeled, in the modern media, "The Modern Illuminati" and "The Founders of Third Impact"?  
+那个在他童年时将他独自留下多年，只在需要时才打电话给他，让他成为一个情感上的灾难的人，会希望他在一家被现代媒体称为“现代光明会”和“第三次冲击的创始人”的公司工作吗？
+
+Yeah, that sounded like something he'd do.  
+是啊，这听起来像是他会做的事情。
+
+Apparently Fuyutsuki cared so deeply about his father that he had erected a statue in his honor outside the NERV entrance. After all, nowadays NERV was a public organization, no longer a secret Government society. Because it was public, people walked by the statue of Gendo Ikari standing majestically every day, and, every day, someone would throw rotten fruit against its bust. While Fuyutsuki would sometimes personally clean the statue to ensure it was in pristine condition, Shinji actually wished that, one day, he could throw a giant watermelon against his father's face so that it would splatter against his nose line, covering his face in red as he shouted all the things he couldn't say a decade ago.  
+显然，冬月对父亲的深情厚意体现在他在 NERV 入口处为父亲竖立了一座雕像。毕竟，如今 NERV 已是一家公开机构，不再是秘密的政府社团。正因为公开，人们每天都会经过那尊庄严矗立的碇源堂雕像，而每天总有人向那雕像的胸像投掷腐烂的水果。尽管冬月有时会亲自清理雕像，确保其完好无损，但真嗣其实希望有一天能朝他父亲的脸扔一个巨大的西瓜，让它在鼻梁上炸开，满脸通红地喊出十年前无法说出口的一切。
+
+None of those unsaid words were all too polite.  
+那些未曾说出口的话，可都不怎么客气。
+
+Still, when Shinji's son—er, child—was born, he's make sure he—or she—never had to suffer that horrible fate of having a father ignore him, of abandoning him—or her—entirely. Still, raising his child the way he wanted to raise him would mean Shinji returning home to face his violent, ill-tempered fiancé. She sounded so angry over the phone, so entirely furious. What was he going to do? She wasn't the type to exactly forgive and forget quickly. Years ago, Asuka was a more violent individual, especially following Third Impact.  
+尽管如此，当真嗣的儿子——呃，孩子——出生时，他会确保他——或她——永远不会遭受那种可怕的命运，即被父亲忽视，被完全抛弃。然而，按照他想要的方式抚养孩子，意味着真嗣必须回家面对他那暴躁易怒的未婚妻。她在电话里听起来如此愤怒，完全怒不可遏。他该怎么办？她可不是那种轻易原谅和忘记的人。多年前，在第三次冲击之后，明日香变得更加暴力。
+
+He pulled over at a supermarket, looking for some sort of way to stall, to escape needing to return home to face the horror of his German haired lover—no, good friend—no, acquaintance—no, mortal enemy. Anxiously, he withdrew his mp3 player, and escaped into the gentle music it supplied. His old SDAT player, even at the time he used it constantly antiquated, had vanished during the horror of Third Impact. He had sought to get a replacement, but, as it were, had never really came around to purchasing one. However, the mp3 player he used now was a gift from Asuka.
+
+It had been a birthday present, his twenty first birthday. It had been a little more than a year or two since the world had fully recovered from the Hell of Third Impact. Most people often give others, on their twenty first birthday, something to signify the newfound privileges gained with their age. Toji, for example, bought him a pornographic DVD, much to both Hikari and Asuka's distaste. Kensuke, on the other hand, bought him a guidebook to the best bars in Tokyo-3. Misato had given him an expensive bottle of sake. Asuka would later joke that they were lucky that the bottle wasn't half empty by the time Shinji received it. Shinji expected things to allure him to the benefits of being an adult, but the gift that seemed to impact Shinji most was a gift that reminded him of the past.  
+那是一件生日礼物，他二十一岁的生日礼物。自第三次冲击的炼狱后，世界全面复苏已过去了一两年。大多数人会在二十一岁生日时，送些象征新获特权的东西。比如，真治送了他一张色情 DVD，让美里和明日香都颇为反感。剑介则送了他一本东京-3 最佳酒吧指南。美里给了他一瓶昂贵的清酒。明日香后来开玩笑说，幸好瓶子在真嗣收到时还没空了一半。真嗣本以为会收到些吸引他享受成人生活的好处，但对他影响最深的礼物，却是唤起过往回忆的那一份。
+
+"It's not like I needed to put that much thought into it," Asuka had rationalized after Shinji opened the present, turning the case over and over to see the present from every possible angle, "I just remember how you liked listening to that old tape player of yours all the time when we were younger. I mean, I knew that you wanted to have a tape player or whatever it was you had, but this is better. It has 100 gigabytes of memory, so you can fit a bunch of songs on it, and play some games like Solitaire on it. Also, it comes with a dozen songs on it, and you can play videos on it. So yeah, no big deal."  
+"我又不是需要花那么多心思去想这个，" 在真嗣打开礼物后，明日香这样辩解道，她不停地翻转着盒子，从各个可能的角度观察这份礼物，"我只是记得你小时候总是喜欢听你那个旧磁带播放器。我是说，我知道你想要一个磁带播放器或者你原来有的那种东西，但这个更好。它有 100GB 的内存，你可以放很多歌曲进去，还可以在上面玩像纸牌这样的游戏。而且，它自带了十几首歌，你还可以在上面播放视频。所以，没什么大不了的。"
+
+"How much did this cost?" Shinji had asked, worried that his friend had spent too much on someone like him.  
+"这东西花了多少钱？" 真嗣问道，担心他的朋友为他这样的人花了太多钱。
+
+"Why the hell does that matter?" Asuka snapped, "Look, you're actually caring about stuff like that? C'mon! Seriously! It's a damn gift! Never mind what it costs!"  
+"这他妈有什么关系？" 明日香厉声说道，"听着，你居然在乎这种事？拜托！说真的！这是份该死的礼物！别管它值多少钱！"
+
+Shinji could only stare at her in awe. Even though she had a confident grin on her lips, he knew that, deep down, she had been afraid that Shinji didn't like her present. That, below that harsh exterior, she had asked herself, day after day, would he like it? Would he accept it? "Thank you, Asuka!"  
+真嗣只能敬畏地盯着她。尽管她嘴角挂着自信的微笑，但他知道，在她内心深处，她一直担心真嗣不喜欢她的礼物。在那坚硬的外表下，她日复一日地问自己，他会喜欢吗？他会接受吗？“谢谢你，明日香！”
+
+"Hey, seriously, don't mention it."  
+“嘿，真的，不用谢。”
+
+As he focused again on the reality before him as he picked up a package of miso, Shinji Ikari focused on a separate memory. He recalled a day after following the nightmare that was Third Impact. It had been a month after Asuka returned that either of them dared to leave the sanctuary of the beach. Why it had taken so long Shinji didn't know. He guessed that, after witnessing the world die before them, they really didn't feel like adventuring the depths of oblivion. Perhaps it was because the sea of LCL had provided for them so well, with crabs and sea creatures right there for eating and the LCL sea there for nutritious life fluids. Additionally, in Asuka's condition, she couldn't move all that far without her organs bleeding within her.  
+当他再次专注于眼前的现实，拿起一包味噌时，真嗣·碇专注于另一段记忆。他回忆起在第三次冲击那场噩梦之后的一天。那是明日香回来一个月后，他们才敢离开海滩这个避难所。为什么花了这么长时间，真嗣不知道。他猜想，在目睹世界在他们眼前消亡之后，他们真的不想冒险深入那片虚无。也许是因为 LCL 海洋为他们提供了如此好的生存条件，螃蟹和海洋生物就在那里供他们食用，LCL 海洋则提供了营养丰富的生命之液。此外，以明日香当时的状况，她无法走得太远，否则她的内脏会在体内出血。
+
+Shinji had been constructing a wheelbarrow of sorts to carry the German. He had constructed it from driftwood that had miraculously came to them from the sea about two weeks after Shinji had found Asuka beside him. Having nothing else to do, he whittled the log until it had depth, enough to cradle a human body. The wheel, thankfully, had washed up on shore not long after he found the wood. It was something you'd find on a big wheel bicycle a toddler would use. It wasn't the best sort of barrow, but in this sort of situation, it was the best he had.  
+真嗣一直在制作一种独轮车，用来搬运那位德国人。他用的是漂流木，这些木头奇迹般地从海上漂来，大约在真嗣发现明日香躺在他身边的两周后。无所事事之下，他耐心地将木头削成有足够深度的凹槽，足以容纳一个人的身体。幸运的是，车轮不久后也被冲上了岸，看起来像是幼儿使用的大轮自行车上的那种。这不是最好的独轮车，但在这种情况下，这是他能做的最好的了。
+
+"I won't go in that," Asuka had said the moment she saw Shinji's creation, her voice dead and exhausted.  
+“我不会坐那个的，”明日香一看到真嗣的作品就立刻说道，声音死气沉沉，疲惫不堪。
+
+"Listen, we're going to have to see if anyone else is here," Shinji had said, surprised by his own sense of bravery. After baring witness to Instrumentality, he had learned to face reality head on. The only way their situation was going to change for the better was if they faced the world head on. Shinji had been surprised that Asuka, who was always so gung-ho and always looking for a solution. She was never this passive, or perhaps hesitant to do anything, before. "You're too injured to walk. The only way we're going to survive is if you get on and I wheel you around."  
+"听着，我们得看看这里还有没有其他人，" 真嗣说道，对自己突如其来的勇气感到惊讶。经历了人类补完计划后，他学会了直面现实。只有勇敢面对世界，他们的处境才有可能好转。真嗣对明日香感到意外，她总是那么积极主动，总是寻找解决问题的方法。她以前从未如此被动，或者说犹豫不决。"你伤得太重，走不了路。我们想要活下去，唯一的办法就是你坐上来，我推着你走。"
+
+"I don't care if I die," Asuka replied, in an almost dead voice, "Just leave me alone. I'd rather die than be with you."  
+"我不在乎我会不会死，" 明日香几乎用一种死寂的声音回答，"就让我一个人待着吧。我宁愿死也不要和你在一起。"
+
+"Listen! Please! Snap out of it!" Shinji had shouted as he had heaved the German to her feet, hoping she'd stand on her own two feet.  
+"听着！求你了！振作起来！" 真嗣喊道，他用力将德国女孩扶起，希望她能自己站起来。
+
+She hadn't. 她没有。
+
+Shinji had caught her before she had hit the floor. With a small grin on her lips, Asuka had asked, in a cold, strangely amused tone, "You mean you don't want me to die?"  
+真嗣在她撞到地板前接住了她。阿斯卡嘴角挂着一丝微笑，用一种冰冷而奇怪的语气问道：“你是说，你不想让我死？”
+
+"Why would I want you to die?" Shinji had stammered, now desperate, his eyes starting to tear.  
+“我为什么要你死？”真嗣结结巴巴地说，现在他急了，眼睛开始泛泪。
+
+"Why else would you leave me alone to die like that? Why else would you just jerk off on top of me, huh? Why else would you start strangling me the moment I came back to life? I don't want this. I just want to be left alone here, and die. Just let me shrivel up and die."  
+"不然你为何要留我一人孤独赴死？为何要在我身上发泄兽欲，嗯？为何我一复活你就立刻掐住我的脖子？我不想要这些。我只想在这里独自死去。就让我枯萎，让我死去。"
+
+"Please don't talk like that."  
+"请不要这样说。"
+
+"Why? It makes our poor little bastard Shinji the Hero get all upset? Do you want to cry, huh? Well, face reality: it's your fault I'm like this, why the world's like this! It's all your fault!" She had begun screaming as she slowly pushed herself into a standing position. However, as she continued to shout obscenities at the Third Child, she began to vomit on herself. Torrents of blood exploded from her mouth, dying the sand scarlet. She trembled, falling onto her back, clutching her belly. Tears filled her eyes, tears of pain, tears of fury and anger, tears that shone in the pale moonlight.  
+"为什么？难道这会让我们的可怜小混蛋真嗣英雄感到难过吗？你想哭吗，嗯？好吧，面对现实吧：这都是你的错，我变成这样，世界变成这样！都是你的错！"她开始尖叫，同时慢慢站起身来。然而，当她继续对第三适格者破口大骂时，她开始呕吐，鲜血从口中喷涌而出，将沙地染成猩红色。她颤抖着，倒在地上，紧抱着腹部。泪水充满了她的眼眶，那是痛苦的泪水，愤怒的泪水，在苍白的月光下闪烁着。
+
+He was sure, then and there, that she was going to die.  
+那一刻，他确信她即将死去。
+
+"Please, don't die! Don't die! I need you. I need you. I can't just live without someone, so please don't leave me alone!" He had fallen to his knees, tears running down his fourteen year old cheeks as he stared down at the broken girl as she coughed again and again, more droplets of ruby splattering against her lips and cheeks.  
+“求求你，不要死！不要死！我需要你。我需要你。我不能没有某个人而活，所以请不要留下我一个人！”他跪倒在地，泪水顺着他十四岁的脸颊滑落，他凝视着那个受伤的女孩，她一次又一次地咳嗽，更多的鲜红血滴溅在她的唇边和脸颊上。
+
+"Well, isn't this what you wanted? Me like this? Dummkopf!" she had grunted between coughs, "I hope you like it. I hate you so God d—" Shinji scooped her into his arms. She was surprisingly light, much lighter than he had anticipated, as he dumped her gently into the wheelbarrow. "What're you doing? I told you I'm not—hyakk!" She coughed loudly onto her lap, a large wad of blood splattering against her thighs.  
+“这不就是你想要的吗？我变成这样？笨蛋！”她在咳嗽间喘息着，“希望你喜欢。我恨你，该死——”真嗣将她抱入怀中。她出乎意料地轻，比他预想的要轻得多，他轻轻地将她放入手推车里。“你在干什么？我告诉过你我不——咳咳！”她大声咳嗽，一大滩血溅在她的腿上。
+
+Shinji remembered praying that a doctor or surgeon had returned from the sea of LCL, just so that Asuka wouldn't have to die in a make-shift wheelbarrow in the middle of nowhere like this. She didn't deserve to suffer like that, didn't deserve to die such a sad, pathetic death like this.  
+真嗣记得自己曾祈祷过有一位医生或外科医生从 LCL 之海归来，只为让明日香不必在这样的荒郊野外，躺在临时拼凑的轮床上死去。她不该遭受这样的痛苦，不该就这样悲惨、可怜地死去。
+
+She didn't deserve to suffer after all she had been through.  
+她经历了那么多，实在不该再受苦了。
+
+Shinji Ikari was pulled out of his flashback as the sound of his phone ringing filled the air. He hastily reached into his pocket, and withdrew his cell. "Hello?" he asked, not looking at the caller ID in his haste.  
+碇真嗣被手机铃声从回忆中拉回现实。他匆忙伸手进兜里，掏出手机。“喂？”他问道，急切间没顾上看来电显示。
+
+"Shinji! I just heard the good news!"  
+"真嗣！我刚听到好消息！"
+
+"Misato?" "美里？"
+
+A cheerful giggle met his ears from the other side of the phone line, a giggle that reminded him of all the times he had spent living at her house when he and Asuka were only fourteen and thirteen years old, respectfully. It reminded him, strangely enough, of a young girl, despite Shinji having, in memory, associated Misato as the closest thing to a mother he ever had. "Well, Asuka called me and told me the whole story. Or at least told me her side of it."  
+电话那头传来一阵欢快的笑声，让他想起了那些住在她家时的时光，那时他和明日香分别是十四岁和十三岁。这笑声让他奇怪地想起了一个小女孩，尽管在记忆中，美里是他最接近母亲的存在。“嗯，明日香给我打电话，把整个故事都告诉我了。至少是她那一边的版本。”
+
+"Oh, did she?" "哦，是吗？"
+
+"Yeah, complete with calling you a few creative curse words that my kids have been repeating for the past ten minutes."  
+"是啊，还用一些富有创意的脏话骂了你，我孩子们过去十分钟一直在重复这些话。"
+
+"Do you believe her?" "你相信她吗？"
+
+"What kind of a question is that? Of course I don't! I know you too well for that. I'm just surprised you actually managed to, uh, go to home base."  
+"这是什么问题？当然没有！我对你太了解了。我只是惊讶你居然真的能，呃，去到本垒。"
+
+"Come again?" “再说一遍？”
+
+"I can't say it with the kids around. Uh, hey!" Misato's voice faded away slightly, as though she were holding the phone a good deal away from her face and talking to her children. "Yumi, take your brother over into the other room, alright? Don't ask why! I'm having an adult conversati—no, you aren't grown up enough to know what it is. Thanks, sweetie." Her voice returned to its ordinary volume. "No, I mean, I never expected you to have sex."  
+"有孩子在旁边我不好说。呃，嘿！" 美里声音稍微减弱，仿佛她把电话拿得离脸很远，正对着孩子们说话。"由美，带你弟弟去另一个房间，好吗？别问为什么！我正在和一个成年人交谈——不，你还不够大，不知道这是什么。谢谢，宝贝。" 她的声音恢复了平常的音量。"不，我是说，我从没想过你会发生性关系。"
+
+"Wait, what?!" "等等，什么？！"
+
+"I thought you'd just remain a virgin for the rest of your—"  
+"我以为你会一直保持处子之身直到——"
+
+"Misato. Stop now." "美里。现在停下来。"
+
+"Alright, I'm just joking!"  
+"好吧，我只是开个玩笑！"
+
+"I hope you were." "我希望你是。"
+
+"But still, what're you going to name the baby?"  
+"不过，你打算给孩子起什么名字？"
+
+Shinji considered this. "I haven't really discussed it with Asuka. Actually, I haven't discussed anything with her yet."  
+真嗣思考了一下。 "我还没和明日香讨论过。实际上，我还没和她讨论过任何事情。"
+
+"Oh, did she kick you out of the house?"  
+"哦，她把你赶出家门了？"
+
+"I haven't even gotten home yet. I'm a little afraid to."  
+"我还没到家呢。有点害怕回去。"
+
+"Well, you can't run away from this forever, you know. Best get the worst over with. She'll calm down soon, so don't worry."  
+"唉，你总不能一直逃避这个问题。最好尽快面对最糟糕的情况。她很快就会冷静下来的，别担心。"
+
+"Are you sure about that?"  
+"你确定吗？"
+
+"Oh, absolutely positive! Asuka isn't the type to keep a grudge."  
+"哦，绝对肯定！明日香不是那种记仇的人。"
+
+"Are you sure about that?" Shinji asked, seriously.  
+"你确定吗？" 真嗣认真地问道。
+
+"Well, uh…" Misato's voice trailed off, leaving Shinji with the distinct impression she was struggling to buy time. "Oh crap! Ryouji! Stop hitting your sister! I got to go! See ya! Good luck with the preggy!" With that, the line died. Shinji personally doubted that she had any sort of problem with her kids at that moment. For a woman who told him not to run away, she sure was running away when he needed her. What a reliable adult she was.  
+"嗯，呃…" 美里的话音渐渐消失，让真嗣明显感觉到她在努力拖延时间。"哦糟了！良治！别打你妹妹！我得挂了！再见！祝你怀孕顺利！" 说完，电话就断了。真嗣个人怀疑她此刻并没有什么孩子的问题。这个告诉他不要逃避的女人，在他需要她的时候却逃得飞快。真是个可靠的大人啊。
+
+After paying for his food, Shinji continued into his car, and drove back home to face the music, to face his destiny. His mp3 player was still playing in his ears as he rode back home, despite a perfectly good car radio and stereo system. All he could think about was that redhead. He tried to remember the last time she was truly furious at him, the last time she had been this angry. When they were younger, they had argued constantly, but, as time went on, these arguments seemed to dwindle. That's not saying they didn't happen frequently, though. For example, just a few months ago they had found themselves arguing about something trivial, something regarding food.  
+付完餐费后，真嗣继续坐进车里，驱车回家面对现实，面对他的命运。他的 mp3 播放器仍在耳边播放着音乐，尽管车里有一套完好的车载收音机和音响系统。他满脑子都是那个红发女孩。他试图回忆她上次真正对他发怒是什么时候，上次她这么生气是什么时候。他们年轻时经常争吵，但随着时间的推移，这些争吵似乎逐渐减少。但这并不意味着它们不常发生。比如，就在几个月前，他们还因为一些琐事，关于食物的事情争吵过。
+
+"You know I like my burgers with a little red in them," Asuka had snapped, staring down at the deep brown meet with a disgusted expression.  
+"你知道我喜欢汉堡带点血丝的，" 明日香厉声说道，盯着那深褐色的肉，脸上露出厌恶的表情。
+
+"It's healthier when it's thoroughly cooked," Shinji had replied.  
+"彻底煮熟了更健康，" 真嗣回答道。
+
+"Yeah, but it's also all dried up! Do you want me eating a dried up burger like this?" she had replied, her tone harsh.  
+"是啊，但那样就全干了！你难道想让我吃这种干巴巴的汉堡吗？" 她回敬道，语气尖锐。
+
+"Just put ketchup on it and it won't be dry. Problem sol—"  
+"只要加点番茄酱就不干了。问题解决——"
+
+"Doesn't change the fact that the middle is still all brown!" Asuka had interrupted, violently, "I mean, seriously, I think the burgers at McDonalds are better!"  
+"中间还是一片棕色的事实并没有改变！" 明日香激烈地打断道，"我是说，认真点，我觉得麦当劳的汉堡都比这个好！"
+
+"Well, you could just order from there. Their burgers are thoroughly brown too, I think."  
+"那你完全可以点那家的。我觉得他们的汉堡也是完全棕色的。"
+
+"Yeah, but it's also not really meat! It's some meat substitute they have with a lot of filler in it! And besides, it makes you fat."  
+"是啊，但这也不算是真正的肉！这是他们用很多填充物做的肉替代品！而且，它会让你发胖。"
+
+"You seem to eat it enough on your way to work," Shinji replied.  
+"你上班路上似乎吃得够多了，" 真嗣回答道。"
+
+At that moment, the German had jumped to her feet, crushing her burger underneath her fist as she slammed her knuckles down against the table. "Are you implying something!?"  
+就在那一刻，那位德国人猛地站起身来，拳头下的汉堡被压得粉碎，她用指关节重重地敲击着桌子。"你在暗示什么吗！？"
+
+"Implying what?" "暗示什么？"
+
+"Dummkopf! You think I'm a damn porker, don't you!?" she had snapped, her face scarlet.  
+""笨蛋！你以为我是头该死的肥猪，对吧！？"" 她厉声说道，脸涨得通红。
+
+"Who ever said that?" Shinji had laughed in disbelief. Fat? Asuka was a stick. Her breasts probably contained more fat than the rest of her body combined, sure, but otherwise she was stick. Slender, svelte. When they were younger, there were even times Shinji wondered if she was too thin. In any case, the sheer idea that Shinji could even think, for a second, that she was fat was downright absurd!  
+""谁说的？"" 真嗣难以置信地笑了起来。胖？明日香瘦得像根棍子。她的胸部可能比身体的其他部分加起来还要多脂肪，当然，但除此之外她就是根棍子。苗条，纤细。在他们还小的时候，真嗣甚至有几次怀疑她是不是太瘦了。无论如何，真嗣竟然会有一瞬间认为她胖，这想法简直荒谬至极！
+
+"Don't you laugh at me! I—" A moment had passed where Asuka considered all that she had just said. More blush ran up her cheeks as she muttered, in a soft tone, "I'm doing it again, aren't I?"  
+"别笑话我！我——" 阿斯卡停顿了一会儿，思索着她刚刚所说的一切。她的脸颊上泛起了更多的红晕，她轻声嘀咕道，"我又在这样了，对吧？"
+
+"Doing what?" "在做什么？"
+
+The redhead had lowered herself into her seat, running a hand up her hair. "I'm just blowing things out of proportion like I always do. Say it. I know I'm right."  
+红发女孩坐回了自己的座位，用手梳理着头发。"我只是像往常一样夸大其词。说吧，我知道我是对的。"
+
+"Well, yeah, you are," Shinji replied.  
+"嗯，是的，你是，" 真嗣回答道。
+
+She had sighed again at this, holding her head in both hands. "I'm just a wreck, aren't I? I'm never going to change. I'll still be just as much of a bitch as I was when I was a kid."  
+她再次叹了口气，双手抱头。"我只是个废物，对吧？我永远不会改变。我还是会像小时候那样是个婊子。"
+
+"Huh? What're you talking about?" Shinji had asked, confused.  
+"啊？你在说什么？" 真嗣困惑地问。
+
+"Do you know what I heard some people saying at work? They were talking about me behind my back! I heard them, you know. They were chatting away about that German girl who has trouble reading Kanji or that German bitch who was a pilot or that German bitch who thinks she's so hot."  
+"你知道我在工作中听到一些人在说什么吗？他们在背后议论我！我听到了，你知道的。他们在闲聊那个德语女孩汉字读不好，或者那个德国婊子是个飞行员，还是那个德国婊子自以为很了不起。"
+
+"Who's been saying that?" Shinji had asked, critically.  
+"谁在说这些？" 真嗣追问道，语气中带着质疑。
+
+"A bunch of the girls who work there."  
+"就是那里的几个女同事。"
+
+"Do you know any of them."  
+"你认识他们中的任何一个吗？"
+
+"I don't know," she had replied, rising to her feet, "I shouldn't let it bother me, though. I'm better than that. I've grown up. I'm not a kid. I'm not a kid. I'm not a kid. I'm not a kid. I'm not—"  
+"我不知道，" 她回答道，站起身来，"不过我不应该让它困扰我。我比那更好。我已经长大了。我不是个孩子。我不是个孩子。我不是个孩子。我不是个孩子。我不是——"
+
+"You know, if someone hurts you, it's not immature not to feel a little insulted," Shinji had said, frowning, "In fact, I think it's kinda natural to feel something."  
+"你知道，如果有人伤害了你，感到有点受辱并不是不成熟，" 真嗣皱着眉说，"事实上，我觉得有点感觉是很自然的。"
+
+"But I don't like it," Asuka had replied, frowning as well, "I mean, why me?"  
+“但我并不喜欢这样，”明日香也皱着眉头回答，“我是说，为什么是我？”
+
+Why me indeed. As Shinji approached the door to his apartment complex, his bags in hand and his spirits tentative, he paused a moment to remove his mp3 player, ready to face reality. As he drew nearer to the door, he mumbled under his breath the mantra that he had recited over and over again throughout the course of his life: "I mustn't run away. I mustn't run away. I mustn't run away." He recited it again and again as he rang the doorbell with his elbow, unable to reach the button with his hands, laden with bags.  
+为什么是我，确实。当真嗣走近他的公寓楼大门时，手里提着行李，心情忐忑不安，他停了一会儿，取下他的 mp3 播放器，准备面对现实。当他走近门口时，他低声念叨着一生中反复背诵的咒语：“我不能逃跑。我不能逃跑。我不能逃跑。”他一遍又一遍地重复着，用肘部按响了门铃，因为双手提着行李，无法用手指触碰按钮。
+
+The door slid open to reveal the German girl. Just laying eyes on Asuka sent a jolt through Shinji's body. There she was, ready to beat him to a pulp, ready to shout and scream at him, ready to call him an idiot and remind him that it was his fault, not Asuka the girl who crawled into his be naked, that she had a baby growing inside of her. He flinched at first, instinctively, upon laying eyes on her flaming red hair. A second or two past before Shinji lowered his arms, only to meet his fiancé's eyes. They were puffy, but not tear laden. It was as though she had cried hours before, and the residual effects had yet to wear off. Cautiously, Shinji murmured, "I'm home," before walking anxiously past his fiancé into the kitchen. As he dropped the bags onto the kitchen table, he heard the door slide shut behind him. This was it. Asuka was going to pummel him now. She was going to shout now that the door was closed and the world couldn't see her ugly side.  
+门滑开了，露出那个德国女孩。仅仅看到明日香就让真嗣的身体一阵颤抖。她就在那里，准备把他揍得鼻青脸肿，准备对他大喊大叫，准备骂他是个白痴并提醒他，是她怀了孩子，而不是那个赤裸着爬进他床上的明日香。他一开始本能地退缩了一下，看到她那火红的头发时。一两秒钟过去，真嗣才放下手臂，与他的未婚妻对视。她的眼睛肿胀，但没有泪光。仿佛她几小时前哭过，而残留的影响还未消退。小心翼翼地，真嗣低声说：“我回来了。”然后紧张地从未婚妻身边走过，进入厨房。当他把袋子放在厨房桌上时，听到身后的门滑上了。就是这样。明日香现在要揍他了。她要关门后大喊大叫，让世界看不到她的丑陋一面。
+
+"Asuka, I'm sor—" “明日香，我很抱歉——”
+
+"Don't apologize," Asuka replied, "Don't worry about it. I should be the one saying sorry."  
+“别道歉，”明日香回答，“别担心。我才是该说对不起的那个人。”
+
+"Huh?" This was a tad different than what he had been expecting. He had thought at least one piece of furnature would be overturned, a few shouting matches, and at least fifty verbal punches matched with fifty real ones. He didn't expect her to just admit defeat so easily. He watched as Asuka fell into a couch, her hands resting on her torso. She glanced up at Shinji, a frown o her lips.  
+"啊？" 这和他预想的情况有些出入。他本以为至少会有家具被掀翻，几次争吵，以及至少五十句言语攻击配上五十次实际的冲突。他没想到她会这么轻易地承认失败。他看着明日香跌坐在沙发上，双手放在腹部。她抬头看向真嗣，嘴角带着一丝不悦。
+
+"I'm sorry. I said it, alright? Isn't that good enough?"  
+"对不起。我说了，行了吧？这样还不够吗？"
+
+"What do you—" "你这是——"
+
+"You didn't do anything wrong, I should've been taking the pill, all that stuff, alright?" Asuka said, her tone mildly frustrated, "Jesus! How many times do I have to say this again?" Her voice cracked mildly toward the end, but her resolve was strong. Her eyes were growing slightly more moist as the seconds past, but her heart didn't waver. She stared at Shinji with a deep resolve, as though she were hoping, praying, that her eyes relayed the message deep inside of her: she was sorry. She was wrong.  
+"你没做错什么，我本该吃药的，所有那些事，对吧？" 明日香说道，语气中带着些许懊恼，"天哪！我得说多少遍才行？" 她的声音在结尾处略显沙哑，但她的决心坚定。随着时间的流逝，她的眼眶微微湿润，但她的心意并未动摇。她凝视着真嗣，眼神中充满了深切的决心，仿佛在期待、祈祷她的眼神能传达出她内心深处的信息：她很抱歉。她错了。
+
+She admitted defeat. 她承认了失败。
+
+Shinji sighed in relief. "You know, for a moment, I was afraid you were going to kill me."  
+真嗣松了一口气。"你知道吗，有那么一刻，我还以为你要杀了我呢。"
+
+"I'd rather not have my baby girl not have a father," Asuka replied.  
+"我宁愿不让我的宝贝女儿没有父亲，"明日香回答道。
+
+"Wait, who said it was a girl? It could be a boy."  
+"等等，谁说是个女孩？也可能是男孩。"
+
+"Yes, but it could also be a girl!"  
+"是的，但也可能是个女孩！"
+
+"Are we fighting again?" "我们又吵起来了？"
+
+"We damn sure are fighting! I say it's a girl!"  
+"我们肯定是在吵架！我说是个女孩！"
+
+"It doesn't even have a gender yet, does it?"  
+"它甚至还没有性别，对吧？"
+
+"You know, I honestly don't think so yet."  
+"你知道吗，老实说，我还没这么想。"
+
+"We'll have more than enough time to realize if it's a boy or a girl, so don't worry about that," Shinji replied, frowning tensely.  
+"我们有足够的时间来确认是男孩还是女孩，所以别担心这个，" 真嗣回答道，眉头紧锁。"
+
+"Alright, I guess so," Asuka replied, rising to her feet, her hands on her stomach, "I'm just bummed that I need to gain weight for this thing! That's going to suck!"  
+"好吧，我想也是，" 明日香回答，站起身来，双手放在肚子上，"我只是有点郁闷，为了这小家伙我还得增重！那可真糟糕！"
+
+"You're skinny enough as it is. I doubt even twenty extra pounds would—"  
+"你已经够瘦了。我怀疑就算再长二十磅——"
+
+"Twenty!? Who'd say I'd gain that much!?" Asuka's eyes were wide, as though Shinji had just informed her she was dying of terminal cancer. Shinji was mildly surprised by this reaction. You'd think that she'd know about this sort of thing seeing as how she graduated from a German university at the age of 13 AND was a girl.  
+"二十磅！？谁说我能长那么多！？" 明日香瞪大了眼睛，仿佛真嗣刚刚告诉她得了晚期癌症。真嗣对这种反应感到有些惊讶。按理说她应该知道这些，毕竟她 13 岁就从德国大学毕业了，而且还是个女孩子。
+
+"I thought everyone knew about—"  
+"我以为大家都知道——"
+
+"Don't give me that bull! Well, if I am gaining weight for YOUR child, make me dinner. Now."  
+"别跟我来这套！好吧，如果我是因为你的孩子才变胖的，那就给我做饭吧。现在。"
+
+"You're saying that as though I never cook dinner."  
+"你这么说好像我从不做饭似的。"
+
+"Yeah? So?" Asuka asked, in a rather harsh tone.  
+"是吗？那又怎样？" 明日香问道，语气颇为尖锐。
+
+"Alright, my majesty," Shinji said in a sarcastic tone.  
+“好的，我的陛下，”真嗣带着讽刺的语气说道。
+
+#
+
+The stupid idiot was sleeping in bed next to her, but Asuka Langley Sohryu hadn't slept a wink yet. Her hand rested on her torso, absentmindedly adjusting the cloth around her belly. She knew that the baby hadn't even begun to develop yet, but she could almost feel the rug rat kicking. It was strange. Maybe it was a sensation brought up by paranoia, or stress. It was like being next to a sick person and developing a sore throat.  
+那个愚蠢的白痴就睡在她旁边的床上，但惣流·明日香·兰格雷还没合过眼。她的手放在腹部，心不在焉地调整着缠绕在肚子上的布料。她知道宝宝甚至还没有开始发育，但她几乎能感觉到那小家伙在踢腿。这很奇怪。也许这是由偏执或压力引起的错觉，就像身边有个病人自己也会喉咙痛一样。
+
+Still, she couldn't imagine herself being a mother. She didn't know the first thing about taking care of a child. What was she going to do? Feed it? Give it a nice, hospitable environment to live in? She could ask her stepmom, but she didn't want to really see her face right now. She knew she had to go back to Germany soon, though, if she was pregnant. Her family had the right to know.  
+尽管如此，她无法想象自己成为一个母亲。她对照顾孩子一无所知。她该怎么办？喂它？给它一个舒适宜居的环境生活？她可以问她的继母，但她现在真的不想见到她的脸。她知道如果怀孕了，她很快就得回德国去。她的家人有权知道这件事。
+
+Still, whenever she thought of Germany, the same memory returned to her mind's eye: the image of a doll dangling from a noose next to a limp human corpse, hanging from a similar noose, drifting back and forth, like a pendulum, dead, high above her head, high above the head of her child avatar. She cringed as the memory remained stuck in her brain. It wouldn't go away. It wasn't going away! The damn doll and the damn noose in that damned house! Damn them! Damn them! Damn them all!  
+然而，每当她想起德国，同样的记忆就会浮现在她的脑海中：一个玩偶悬挂在绳套上，旁边是一具软绵绵的人类尸体，同样挂在类似的绳套上，来回摆动，像钟摆一样，死气沉沉，高高悬在她的头顶，悬在她孩子化身的头顶。她皱着眉头，记忆如影随形，挥之不去。它不会消失！那个该死的玩偶和该死的绳套在那该死的房子里！该死！该死！该死他们所有人！
+
+She felt a tear roll down her cheek, a tear she brushed away aggressively. She wasn't a kid anymore! She couldn't just cry like that whenever something sad happened. She needed to be strong, stronger than anyone else. She had to be for her daughter—child. She couldn't become caught up in suffering, in the pain of memories of ancient history.  
+她感到一滴泪珠滑过脸颊，她用力擦去。她不再是孩子了！不能每次遇到伤心事就那样哭。她需要坚强，比任何人都坚强。为了她的女儿——孩子，她必须如此。她不能沉溺于痛苦，不能被古老记忆的伤痛所困。
+
+Memories of her mother. 关于她母亲的记忆。
+
+---
