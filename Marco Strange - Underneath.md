@@ -1347,3 +1347,147 @@ _Everything I do_
 
 _I do it for you."_
 
+Once the song was finished, Asuka placed the mic on the mic stand and walked over to the couch.  
+一曲终了，明日香将麦克风放回支架上，走向沙发。
+
+"Well, that was fun." Asuka sighed as she smiled. "So what do you have to say about that?"  
+"嗯，真有趣。" 明日香叹了口气，微笑着说，"那你对此有什么要说的吗？"
+
+As she turned, she saw Shinji staying quiet, with his face still a little red. She raised an eyebrow before putting her hand into a fist.  
+当她转身时，看到真嗣依然安静，脸颊还有些泛红。她挑了挑眉，然后把手握成拳头。
+
+"What!? Something you want to say, baka!?" Asuka cracked her fist, making Shinji jump.  
+"什么！？你有什么想说的吗，笨蛋！？" 明日香握拳示威，吓得真嗣一跳。
+
+"Sorry! It's just..." He looked down as he stopped himself.  
+"对不起！只是..." 他低头止住了话。
+
+"Just what!?" Asuka grabbed the collar of his hoodie. "Tell me, or else!"  
+"只是什么！？" 明日香抓住了他的连帽衫领口。"告诉我，不然你就惨了！"
+
+"I... I never heard you sing before..." Shinji stammered, holding his hands up like he had a gun pointed at him. "And it sounded really good."  
+"我... 我以前从没听过你唱歌..." 真嗣结结巴巴地说，双手举起像是有枪指着他。"而且听起来真的很棒。"
+
+"Oh..." Asuka let go of his collar and relaxed. "Well, thanks." Shinji sighed, realizing Asuka wasn't going to kill him after all.  
+"哦..." 明日香松开了他的衣领，放松下来。"嗯，谢谢。" 真嗣叹了口气，意识到明日香终究不会杀他。
+
+"By the way, what was that song?"  
+"对了，那首歌是什么？"
+
+"It's called, _(Everything I Do) I Do It for You_ by Bryan Adams." Asuka sighed as she leaned back into the couch.  
+"那首歌叫《(Everything I Do) I Do It for You》，布莱恩·亚当斯唱的。" 明日香叹息着，向后靠在沙发上。
+
+"I take it it's your favorite." Shinji smiled, still sitting straight up.  
+"我猜这是你的最爱吧。" 真嗣微笑着，依旧笔直地坐着。
+
+"I guess you could say that." Asuka smiled, putting her hands behind her head.  
+"可以这么说吧。" 明日香微笑着，将双手放在脑后。
+
+"Any certain reason?" "有什么特别的原因吗？"
+
+"Not sure." Asuka slowly opened her eyes and held her chin. To her, the song had just always been a part of her life. All she can say is whenever she hears it on the radio or if it plays in her head, she's happy. "Anyways, your turn to sing."  
+"不确定。" 明日香缓缓睁开眼睛，托着下巴。对她来说，这首歌早已是她生活的一部分。她只能说，每当在收音机里听到它，或是它在脑海中响起时，她都会感到快乐。"总之，轮到你唱了。"
+
+"Oh." Shinji frowned. "But, I don't even know what to sing."  
+"哦。" 真嗣皱起眉头。"可是，我连唱什么都不知道。"
+
+"Just pick something, you moron." Asuka turned her head to look at him. "You didn't see me having trouble when I picked a song to sing."  
+"随便选一首啊，笨蛋。" 明日香转头看向他。"我选歌的时候可没见我为难。"
+
+Shinji sighed as he thought for a moment. Only one song came to his mind, so he decided to put that in and walk up to the mic.  
+真嗣叹了口气，思索片刻。脑海中只浮现出一首歌，于是他决定放那首歌，然后走向麦克风。
+
+"What did you pick?" Asuka raised an eyebrow as she sat straight up.  
+“你选了什么？”明日香挑起眉毛，坐直了身子。
+
+"You'll see" Shinji smiled, trying to look confident for Asuka. However, his stammering made it clear to Asuka that he was nervous.  
+“你等着看吧。”真嗣微笑着，试图在明日香面前显得自信。然而，他的结巴让明日香清楚地看出他很紧张。
+
+The song _Fly Me To The Moon_ by Frank Sinatra started playing. Shinji tried his best to sing it, but he was nowhere near as good as Asuka. Not only was he singing off-key, but his timing would be way off. With each word that showed up, he would go from high to low with his voice, like he was searching for the right note. After a minute, he started to cough as he stressed out his voice. Thankfully, the song was a little over a couple of minutes long. Once it was done, he sat the mic down and ordered a glass of water.  
+弗兰克·辛纳屈的《Fly Me To The Moon》开始播放。真嗣尽力去唱这首歌，但他远不及明日香唱得好。不仅音准不对，节奏也完全乱了。每个词出现时，他的声音从高到低起伏不定，仿佛在寻找正确的音符。一分钟后，他开始咳嗽，因为嗓子过度用力。幸运的是，这首歌只有几分钟长。结束后，他放下麦克风，点了一杯水。
+
+"*Cough* I guess I suck at this. *cough*" Shinji tried to drink water to soothe his throat.  
+“*咳嗽* 我想我不擅长这个。*咳嗽*” 真嗣试图喝水来缓解喉咙。
+
+"I wouldn't say it was that bad." Asuka looked away and put her hand on her face.  
+“我不会说那么糟糕。” 明日香转过头，用手遮住脸。
+
+"That's nicer than I *cough* expected." Shinji felt like his throat was burning.  
+"那比我想象的*咳*要好多了。" 真嗣感觉喉咙像在燃烧。
+
+"What's that supposed to mean!?" Asuka crossed her arms as she got up.  
+"那是什么意思！？" 明日香交叉双臂站了起来。
+
+"I just thought you'd be bragging now." Shinji took another sip of water. "Like how you're the better singer, and I'm horrible."  
+"我只是以为你现在会自夸呢。" 真嗣又喝了一口水。"就像你唱得比我好，而我糟糕透顶。"
+
+"How dare you! I don't do that all the..." Asuka stopped herself as she thought back to what Shinji had said. Whether it was piloting the Eva, her grades, or even video games, Asuka would always brag about how she was superior. Not just to Shinji but to anyone she beat at anything. She took a deep breath before speaking to Shinji. "What I mean is, it was your idea to come, and I wanted to be nice since you told me how good my singing was."  
+“你怎么敢！我可不是那种……” 阿斯卡突然打住，回想起真嗣之前的话。无论是驾驶 Eva、成绩，还是电子游戏，阿斯卡总是夸耀自己的优越。不仅是对真嗣，任何她赢过的人她都会如此。她深吸一口气，然后对真嗣说：“我的意思是，是你提议来的，而且你说过我唱歌很好听，我想表现得友善些。”
+
+"Oh." Shinji just stared at her. "Well, I'm sorry for thinking you'd insult me."  
+"哦。" 真嗣只是盯着她。"好吧，我为以为你会侮辱我而道歉。"
+
+"Apology accepted." Asuka smiled as she put in another song. "You may want to skip the next few with how your voice currently sounds."  
+"道歉接受。" 明日香微笑着又放了一首歌。"照你现在的嗓音，可能想跳过接下来的几首。"
+
+"Probably a good idea." Shinji coughed again and drank his water.  
+“大概是个好主意。” 真嗣又咳嗽了一声，喝了口水。
+
+They spent another hour at the karaoke bar before deciding to leave. Asuka took over the whole time, which Shinji didn't mind since his throat was still sore. They were now outside and walking around.  
+他们在卡拉 OK 酒吧又待了一个小时，然后决定离开。明日香全程掌控，真嗣并不介意，因为他的喉咙仍然疼痛。现在他们已经在外面散步。
+
+"We'll have to try that again sometime." Asuka smiled. "It was more fun than I was expecting."  
+“我们得找个时间再试试。” 明日香微笑着说，“比我想象的要有趣多了。”
+
+"Hopefully, I don't lose my voice again." Shinji's looked down and sighed. He was talking better, but it still felt like his throat was on fire.  
+"希望这次我的声音不要再消失了。" 真嗣低头叹息，他的话音有所改善，但喉咙依旧像火烧一样难受。
+
+"You just need to practice, Baka." Asuka turned to look back at him. "Which I'd help with."  
+"你只需要多练习，笨蛋。" 明日香转头看向他。"我会帮忙的。"
+
+"You'd do that?" Shinji looked up at her.  
+"你会这么做吗？" 真嗣抬头看着她。
+
+"I mean," Asuka turned away at first, feeling a blush. She then turned back. "I mean, if I'm going to go to karaoke regularly from now on, the least I could do is teach you how to sing so I can get a break."  
+"我的意思是，" 明日香一开始转过身去，脸上泛起红晕。随后她又转了回来。"我的意思是，如果我以后要经常去唱卡拉 OK，至少我可以教你唱歌，这样我也能休息一下。"
+
+"Well, no matter the reason, I appreciate your wanting to help." Shinji smiled, actually feeling better for a moment.  
+"嗯，不管出于什么原因，我都很感激你愿意帮忙。" 真嗣微笑着，那一刻确实感觉好多了。"
+
+"Yeah, yeah." Asuka rolled her eyes, smiling to hear him say that. "Anyways, what now?"  
+"是啊，是啊。" 明日香翻了个白眼，听到他这么说，她笑了。"那么，现在怎么办？"
+
+"How bout we go eat somewhere?" Shinji rubbed his belly. "We didn't have that much for breakfast."  
+"我们去哪儿吃点东西吧？" 真嗣揉了揉肚子。"我们早餐没吃多少。"
+
+"That's true." Asuka mimicked him by rubbing her belly as well. "I take it you know a place?"  
+"确实。" 明日香也模仿他揉了揉肚子。"你是知道个地方吧？"
+
+"Of course." Shinji smiled as he turned and pointed. "It's down this way.  
+"当然。" 真嗣笑着转身指路。"往这边走。"
+
+"Good. I trust you with food since that place you suggested for pizza was delicious." Asuka smiled as she followed hm.  
+“很好。我相信你的推荐，毕竟你提议的那家披萨店味道确实不错。”明日香微笑着跟在他身后。
+
+---
+
+**A/N: Another chapter for everyone who's been checking out my story. Thought I'd change it up and drop a few facts about the story at the end of this chapter.  
+作者的话：为一直关注我故事的朋友们献上新一章。这次我想换个方式，在本章末尾透露一些关于故事的细节。**
+
+**1. The Bryan Adams song was chosen because it hit Number 1 in a particular country. I'll let you try to find out which that was.  
+1. 选择布莱恩·亚当斯的这首歌是因为它在某个国家登顶了排行榜第一名。我会让你试着找出是哪个国家。**
+
+**2. Frank Sinatra's version of Fly Me To The Moon was actually a coincidence. I forgot what I looked up. Something about songs and vocals related to bass, and that song came up.  
+2. 弗兰克·辛纳屈的《带我飞向月球》版本其实是个巧合。我忘了自己查的是什么了，大概是与低音相关的歌曲和演唱，结果那首歌就出现了。**
+
+**3. I'm naturally a bass singer, so that's why I was looking at that.  
+3. 我天生是低音歌手，所以才关注那方面。**
+
+**4. I've also stressed out my throat from singing, which does suck if you ever had that happen to you from singing too much or not warming up.  
+4. 我也因唱歌而使喉咙过度疲劳，如果你曾因唱得太多或未充分热身而遇到这种情况，确实会很糟糕。**
+
+**Anyways, that's it for this chapter. As always, please favorite/follow if you enjoy this story, and leave a review of what you think so far.  
+总之，这一章就到这里。一如既往，如果你喜欢这个故事，请收藏/关注，并留下你目前为止的想法和评论。**
+
+---
+### Chapter 11
