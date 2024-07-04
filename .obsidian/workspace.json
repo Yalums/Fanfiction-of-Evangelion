@@ -4,39 +4,9 @@
     "type": "split",
     "children": [
       {
-        "id": "5a72b41290db2a29",
-        "type": "tabs",
-        "children": [
-          {
-            "id": "f2f8ef3b50f5024f",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "DeadlyPole - 🍋Shinji and Asuka.md",
-                "mode": "source",
-                "source": false
-              }
-            }
-          }
-        ]
-      },
-      {
         "id": "b538de1d166bf94c",
         "type": "tabs",
         "children": [
-          {
-            "id": "5fe9135b3bf41c77",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Da Games Elite - The Little Angel.md",
-                "mode": "source",
-                "source": false
-              }
-            }
-          },
           {
             "id": "3660f98da3bd7fae",
             "type": "leaf",
@@ -47,26 +17,7 @@
                 "mode": "source",
                 "source": false
               }
-            },
-            "group": "51b9ccf1200a1c78"
-          }
-        ],
-        "currentTab": 1
-      },
-      {
-        "id": "4fa516c9dad7569a",
-        "type": "tabs",
-        "children": [
-          {
-            "id": "8256c615829c9193",
-            "type": "leaf",
-            "state": {
-              "type": "outline",
-              "state": {
-                "file": "kira862 -.md"
-              }
-            },
-            "group": "51b9ccf1200a1c78"
+            }
           }
         ]
       }
@@ -196,12 +147,12 @@
       "workspaces:管理工作区布局": false
     }
   },
-  "active": "8256c615829c9193",
+  "active": "3660f98da3bd7fae",
   "lastOpenFiles": [
-    "Marco Strange - Underneath.md",
-    "kira862 -.md",
     "DeadlyPole - 🍋Shinji and Asuka.md",
+    "kira862 -.md",
     "Da Games Elite - The Little Angel.md",
+    "Marco Strange - Underneath.md",
     "Marshall Banana - Asuka Strikes.md",
     "Shizumaru - In other words.md",
     "Shizumaru - I Mustn't Run Away.md",
