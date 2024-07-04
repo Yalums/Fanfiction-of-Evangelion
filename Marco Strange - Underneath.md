@@ -1491,3 +1491,156 @@ They spent another hour at the karaoke bar before deciding to leave. Asuka took 
 
 ---
 ### Chapter 11
+"And that's as much as I know." Kaji took a sip of his coffee after explaining everything to his former lover.  
+"这就是我所知道的一切。" 加治在向他的前恋人解释完一切后，喝了一口咖啡。
+
+"And you decided to wait when it came to telling me about this?" Misato glared at him with her arms crossed.  
+"而你决定在告诉我这件事上等待？" 美里交叉双臂，瞪着他。
+
+"I wanted to, but certain things came up." Kaji noticed Misato was still glaring at him and raised his hands in defense. "It's the truth, Misato. I had every intention of telling you myself, but I couldn't get around to..."  
+"我确实想告诉你，但有些事情发生了。" 加治注意到美里仍在瞪着他，便举起双手表示防御。"这是真的，美里。我本有意亲自告诉你，但我一直没能找到机会..."
+
+"I don't mean that, you moron!" Misato raised her voice as she slammed her hands on the table and stood up. "Why didn't your dumbass tell me this before Asuka got here!?"  
+"我不是那个意思，你这个白痴！" 美里提高嗓门，双手猛拍桌子站了起来。"你这个蠢货为什么不早点告诉我，在明日香来之前！？"
+
+"I know you're going to hate this answer," Kaji put his arms down. "I was hoping this issue went away."  
+"我知道你会讨厌这个答案，" 加持放下手臂。"我原本希望这个问题会自行消失。"
+
+"What do you mean went away?" Misato raised an eyebrow.  
+"你说的'消失'是什么意思？" 美里挑起眉毛。
+
+"The last time Asuka had that happen before coming here was over a year ago." Kaji sighed. "I figured Asuka grew out of it, and I didn't have to worry about it. I didn't expect it to just come back out of the blue."  
+“上次明日香出现这种情况还是在来这里之前，已经过去一年多了。”加持叹了口气，“我以为她已经长大了，不会再有这种事，没想到突然又冒出来了。”
+
+"I still think you should have told me from the start." Misato lowered her voice and sat back down. "It also would have been better than forcing Shinji into this predicament."  
+“我还是觉得你一开始就应该告诉我。”美里压低声音，重新坐下，“这样也比把真嗣卷入这种困境要好。”
+
+"Which I also feel bad about too." Kaji frowned. While Shinji did help Asuka, he knew it wasn't something Shinji should have been forced into. "Believe me. I never intended to have him dealing with something that was my job."  
+“对此我也感到很抱歉。”加持皱眉，尽管真嗣帮助了明日香，但他知道这不是真嗣应该被迫面对的事情，“相信我，我从未想过让他处理本该是我的职责的事情。”
+
+"I believe you." Misato sighed as she crossed her arms. "Despite being an ass, you seem to care about Shinji."  
+"我相信你。" 美里叹了口气，双臂交叉。"尽管你是个混蛋，但你似乎很关心真嗣。"
+
+"He's a good kid." Kaji smiled. "He reminds me of myself sometimes."  
+"他是个好孩子。" 加持微笑道。"有时候，他让我想起我自己。"
+
+"Hopefully, he's better with girls than you." Misato squeezed the bridge of her nose.  
+"希望他在女孩子方面比你强。" 美里捏了捏鼻梁。"
+
+"Oh, I'm sure Asuka will have the same complaints as you when she gets older." Kaji laughed, making Misato's face turn red.  
+"哦，我敢肯定明日香长大后也会有和你一样的抱怨。" 加持笑着说，让美里脸红了。
+
+"I swear I will shoot you one of these days." Misato clenched her fist as he continued to laugh. She took a breath before continuing. "Anyways, like I told Shinji, we can't ignore this. It's bad enough he's already involved in it, but we can't depend on him to always help Asuka when she gets like that."  
+"我发誓总有一天会开枪打你。" 美里握紧拳头，他继续笑着。她深吸一口气，然后继续说道："总之，就像我告诉真嗣的那样，我们不能忽视这一点。他已经卷入其中已经够糟糕了，但我们不能总是依赖他在明日香那样的时候帮助她。"
+
+"I know, and I think I might have some ideas on how to help Asuka." Kaji smiled. "Thankfully, they can't go on their trip, which might give us an opening to help Asuka."  
+"我知道，我想我可能有些主意来帮助明日香。" 加持微笑着说，"幸好他们不能去旅行，这可能给我们一个帮助明日香的机会。"
+
+"And what are these ideas you have?"  
+"那你有什么想法呢？"
+
+While Misato and Kaji were discussing how to help Asuka, she and Shinji had just finished their meal. The sun was now close to setting, and the two were unsure what to do next.  
+当美里和加持讨论如何帮助明日香时，她和真嗣刚刚吃完饭。太阳即将落山，两人不确定接下来该做什么。
+
+"Well, I have to hand it to you." Asuka rubbed her belly as they were walking. "You have a gift when it comes to delicious food."  
+"好吧，我得承认。"他们走路时，明日香揉着肚子说，"你在做美味的食物方面确实有天赋。"
+
+"I'm happy to hear that." Shinji smiled as he walked by her side. "I take it you've really enjoyed going out today."  
+"听到这个我很高兴。" 真嗣微笑着走在她身边。"看来你今天真的玩得很开心。"
+
+"Well, it's not as good as going on a trip." Asuka sighed as she put her hands behind her head. She smiled before continuing. "But I appreciate you doing your best to cheer me up."  
+"嗯，虽然比不上旅行。" 明日香叹了口气，双手枕在脑后。她微笑着继续说道。"但我很感激你尽力让我开心。"
+
+Shinji just smiled as he heard Asuka complain and then compliment him. While Asuka could still be rough with him, he started to see a kinder side to her as he talked to her more. However, he frowned as he thought about Asuka's problem and realized he still didn't know much about her.  
+真嗣听到明日香先是抱怨，然后又称赞他，只是笑了笑。尽管明日香对他仍有些粗鲁，但随着交谈的增多，他开始看到她更温柔的一面。然而，当他想到明日香的问题时，他皱起了眉头，意识到自己对她了解得还不够多。
+
+"What's wrong?" Shinji snapped back to his senses and turned over to look at Asuka. "You looked gloomy all of a sudden. Don't tell me you're upset you didn't cheer me up more."  
+"怎么了？" 真嗣猛地回过神来，转过身看向明日香。"你突然一脸阴沉。别告诉我你是因为没让我更开心而生气。"
+
+"No, it's not that." Shinji looked down.  
+"不，不是那样的。" 真嗣低头说道。
+
+"Well, spit it out already." Asuka stopped as she turned completely towards him and placed her hands on her hips. Shinji stopped as well.  
+"那就快说出来。" 明日香转身面向他，双手叉腰停了下来。真嗣也停住了。
+
+"You really want to know the truth?" Shinji sighed as he turned to face her.  
+“你真的想知道真相吗？” 真嗣叹了口气，转身面对她。
+
+"Yes, you baka, I literally just told you to tell me." Asuka kept staring at him.
+
+"Fine." Shinji took a breath. "The truth is that I..."  
+"好吧。" 真嗣深吸了一口气。"事实是，我……"
+
+As Shinji looked at Asuka, he didn't see the typical redhead that yelled at him to do whatever she wanted. He saw Asuka looking concerned. Instead of her glare, she frowned as she looked at him with her eyes wide open. She also didn't have a fist clench like whenever she would threaten him. He also realized that when Asuka told him to spit it out, she didn't yell at him like whenever she ordered him around.  
+当真嗣看着明日香时，他看到的并非那个惯常的红发女孩，总是对他大吼大叫，要求他做这做那。他看到的是一脸关切的明日香。她的眼神不再锐利，而是皱着眉头，睁大了眼睛注视着他。她的手也没有像往常威胁他时那样紧握成拳。他还意识到，当明日香让他有话直说时，她并没有像平时命令他那样对他大喊大叫。
+
+"Well?" Asuka chimed in, making Shinji snap back to his senses again. "What's the truth?"  
+"那么？" 明日香插话道，让真嗣再次回过神来。"真相是什么？"
+
+Shinji took a breath before continuing.  
+真嗣深吸了一口气，继续说道。
+
+"The truth is, I had a lot of fun today, and I'm sorry that I couldn't make you enjoy it more than you would have enjoyed that trip."  
+事实上，我今天玩得很开心，很抱歉没能让你享受到比那次旅行更多的乐趣。
+
+"Oh." Asuka sighed as she looked at him. "Well, like I said, I..."  
+"哦。" 明日香叹了口气，看着他。"好吧，就像我说的，我……"
+
+"I'm not done." Asuka's eyes shot open as Shinji interrupted her.  
+"我还没说完。" 明日香的眼睛突然睁大，因为真嗣打断了她。
+
+"Did he just..." Asuka thought to herself as she kept looking at Shinji.  
+"他刚刚是...？" 明日香心里想着，目光依旧停留在真嗣身上。
+
+"I realized I got lucky with a lot of the stuff we did. Chances are this would have ended badly, and that's mostly cause I don't know you outside of school and piloting the Eva."  
+“我意识到我们在很多事情上都挺幸运的。很可能这会以糟糕收场，主要是因为除了在学校和驾驶 Eva 之外，我对你一无所知。”
+
+"So what?" Asuka raised an eyebrow. "I still had fun, so what's it matter if..."  
+“那又怎样？”明日香挑了挑眉。“我玩得开心不就好了，管它呢……”
+
+"That's why I want to get to know you more, Asuka." Shinji put his hand to his chest. "The real you."  
+“这就是为什么我想更多地了解你，明日香。” 真嗣将手放在胸前，“真正的你。”
+
+"Wha... what do you mean the real me?" Asuka stuttered as her face blushed.  
+“什...什么意思，真正的我？”明日香结巴着，脸颊泛起红晕。
+
+"I mean, who you are outside of the Eva and school." Shinji lowered his hand as he took another breath. "I want to know who you are outside of that so I don't have to rely on luck to try to cheer you up in the future."  
+“我是说，你在 Eva 和学校之外的身份。”真嗣放下手，又深吸了一口气。“我想了解那个你，这样将来我就不必靠运气来尝试让你开心了。”
+
+There was silence between them for a few minutes. In Shinji's head, he was scared to death, wondering if Asuka would kill him for saying this. However, Asuka's head was in complete shock.  
+他们之间沉默了几分钟。在真嗣的脑海中，他害怕得要命，不知道明日香会不会因为他说这话而杀了他。然而，明日香则完全陷入了震惊之中。
+
+"The real me?" Asuka thought as she looked down. "No one's ever told me they wanted to know the real me..."  
+“真正的我？”明日香低头沉思，“从来没有人对我说过他们想了解真正的我...”
+
+"Asuka?" It was Asuka's turn to be snapped back to reality by Shinji. "Are you okay?"  
+"明日香？" 这次轮到明日香被真嗣拉回现实。"你还好吗？"
+
+"Yeah..." Asuka sighed. "Just..."  
+"嗯..." 明日香叹了口气。"只是..."
+
+"Just what?" Shinji raised an eyebrow.  
+“什么意思？” 真嗣挑了挑眉。
+
+"Just..." Asuka took a breath before putting on her typical smile. "I'm just happy that you realized you don't know me and are smart enough to ask me to tell you about my great life."  
+"只是..." 明日香深吸了一口气，然后挂上了她惯常的笑容。"我只是很高兴你意识到你不了解我，并且足够聪明地问我关于我精彩生活的故事。"
+
+Shinji sighed as he looked down, thinking it was pointless.  
+真嗣叹了口气，低头看着地面，觉得这一切毫无意义。
+
+"If it helps you make me happy, then I have no problem telling you things about me." Asuka smiled and held her hands up.  
+"如果这能帮你让我开心，那我毫不介意告诉你一些关于我的事。" 明日香微笑着举起双手。
+
+"Wait, really?" Shinji looked up at Asuka.  
+"等等，真的吗？" 真嗣抬头看向明日香。
+
+"Of course." Asuka grabbed his wrist. "Now that we have that settled, let's head back."  
+"当然。" 明日香抓住他的手腕。"既然已经决定了，我们回去吧。"
+
+"Oh, okay." Shinji sighed as he started walking with Asuka. He smiled as she walked before him, still holding his wrist. Mostly she did that to hide a similar smile on her face.  
+"哦，好吧。" 真嗣叹了口气，开始和明日香一起走。他笑着看她走在前面，依然抓着他的手腕。她这么做主要是为了掩饰自己脸上相似的微笑。
+
+---
+
+**A/N: New chapter. Honestly have been trying to work Kaji and Misato back during this short arc, but I wasn't sure how to put them back in. Hoping you enjoyed seeing both of them being concerned for Shinji and Asuka. As always, favorite/follow if you enjoy this story, and leave a review telling me what all of you think of the story so far.  
+作者注：新章节。老实说，我一直试图在这段短篇故事中重新引入加持和美里，但不确定如何安排他们回归。希望你们喜欢看到他们关心真嗣和明日香的样子。一如既往，如果喜欢这个故事，请点赞/关注，并留下评论告诉我你们对故事至今的看法。**
