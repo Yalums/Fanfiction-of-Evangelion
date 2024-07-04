@@ -1008,3 +1008,332 @@ She felt a tear roll down her cheek, a tear she brushed away aggressively. She w
 Memories of her mother. 关于她母亲的记忆。
 
 ---
+**Part 5 第五部分**
+
+"So when's your belly gonna get big?"  
+“所以你的肚子什么时候会变大？”
+
+"Shut up!" "闭嘴！"
+
+"My mommy's got big when she had Ryouji."  
+"我妈妈生龙二的时候肚子变得好大。"
+
+"Misato, why do we have to baby sit for you right now?" Shinji asked, turning away from Asuka, who was beat red in the face as little Yumi queried her, curiously.  
+""美里，为什么我们现在得帮你照顾小孩？"" 真嗣问道，转过身去，只见明日香满脸通红，小优美好奇地向她提问。
+
+Misato, who was currently red in the face as she stared at Yumi asking rather awkward questions to the now pregnant Asuka, replied, with a note of laughter in her voice, "Well, I told you on the phone. Makoto and I need to go to that dinner. The higher ups are going. Fuyutsuki really is working us to the bone." Turning away from Shinji, Misato hastily approached her inquisitive daughter. She was a small little girl, 7 years of age, with a small body, the pudginess of youth still fresh in her body, despite now she'd grown a good deal. She inherited her mother's hair, but needed to wear glasses just like her father. As her mother bent down on a single knee to see her eye-to-eye, Yumi pressed her knuckles anxiously against her lip. "Now, sweetie, look, you can't just ask people like that. They may be, uh, a little sensitive."  
+美里此刻满脸通红，她盯着由美，后者正向怀孕中的明日香提出一些颇为尴尬的问题。她带着一丝笑意回答道：“哎，我在电话里不是跟你说了嘛。真琴和我得去参加那个晚宴。高层们都会出席。副司令真是把我们当牛做马了。”美里转身避开真嗣，快步走向她那好奇的女儿。由美是个七岁的小女孩，身材娇小，童年的圆润尚未完全褪去，尽管她已经长高了不少。她继承了母亲的头发，但需要戴眼镜，就像她父亲一样。当母亲单膝跪地与她平视时，由美紧张地用指关节抵住嘴唇。“听着，宝贝，你不能这样随便问别人。他们可能会，呃，有点敏感。”
+
+"What do you mean?" Yumi asked with wide, watery eyes.  
+“你是什么意思？”由美睁大水汪汪的眼睛问道。
+
+"I mean, some people are a little sensitive about things like the size of their bellies," Misato replied, trying to be tactful.  
+“我是说，有些人对肚子大小这类事情比较敏感，”美里尽量委婉地回答。
+
+"But she isn't really any different from last time," Yumi replied, gesturing towards Asuka, who's torso was indeed nearly as flat as it was last time they had seen her. The only reason Shinji saw any difference at all in Asuka's anatomy was because they were living together. That was it. It was a very subtle change he could only see when she was naked, which was very infrequent to say the least. It was mostly that her abdominal muscles had sort of faded away, or were pushed outward ever so slightly.  
+"“但她其实和上次没什么不同，”优米回答道，指着明日香，她的躯干确实和上次见面时一样平坦。真嗣之所以能察觉明日香身体上的任何变化，仅仅因为他们同居了。仅此而已。这是一个非常细微的变化，他只能在明日香裸体时才能看到，这种情况至少可以说是非常少见。主要是因为她的腹肌似乎有些消退，或者说是微微向外推移。”
+
+"Yeah, well, I should be getting used to it," she had replied when Shinji had brought the subject up, "You know, it's weird. I'm a little worried about how my body's going to change, but somehow—WAIT A SECOND! Are you calling me fat or something? Dummkopf!"  
+"“是啊，好吧，我应该习惯了，”当真嗣提起这个话题时，她回答道，“你知道，这很奇怪。我对身体的变化有点担心，但不知怎么的——等等！你是在说我胖吗？笨蛋！”
+
+Needless to say, Shinji doubted he'd be bringing up any developments on Asuka's—er—developments.  
+"不用说，真嗣怀疑自己不会再提起明日香——呃——身体上的任何变化了。”
+
+"Just don't bring it up, Yumi. Just be a good girl. Aunt Asuka is, well, not all that used to being a mother." Misato rose to her feet after giving her daughter a tight, brief hug, only to turn toward both Shinji and Asuka. "Look, think of it as a learning experience. I mean, think about it: you're going to be raising a baby soon. This is just a warm up act. Ryouji—where's Ryouji?"  
+"就别提这事了，Yumi。乖乖听话就好。Asuka 阿姨嘛，嗯，不太习惯当妈妈。" Misato 紧紧地抱了一下女儿，然后站起身，转向 Shinji 和 Asuka。"听着，就当是学习经验吧。我是说，想想看：你们很快就要养育一个宝宝了。这不过是热身罢了。Ryouji——Ryouji 在哪儿？"
+
+Shinji glanced over his shoulder to see five-year-old Ryouji staring at the TV, transfixed by the images on the screen, in awe. He was watching some sort of program that clearly wasn't entirely age appropriate for him. Shinji wondered, absentmindedly, whether or not Misato had let him see this kind of stuff at their house, because neither Misato nor Yumi really reacted to seeing Ryouji watching a brutal action movie. Asuka glanced over him, and drew nearer to him, sitting cross-legged beside him, staring at the glowing screen. She reached for a bag of potato chips, only to rip it open. She picked a few chips from the bag, only to offer a few to Ryouji.  
+Shinji 回头一看，只见五岁的 Ryouji 正盯着电视，被屏幕上的画面深深吸引，满是敬畏。他在看某种显然不太适合他年龄的节目。Shinji 心不在焉地想，不知道 Misato 是否让他们家的小孩看这类东西，因为无论是 Misato 还是 Yumi，看到 Ryouji 在看一部残酷的动作片时都没有什么反应。Asuka 瞥了他一眼，然后靠近他，盘腿坐在他旁边，盯着发光的屏幕。她伸手去拿一袋薯片，撕开包装，从袋子里抓了几片，顺手递给 Ryouji 几片。
+
+"Well, it looks like they're getting along well," Misato replied, mildly relieved, "Well, I gotta go!"  
+"看来他们相处得不错，" Misato 略感宽慰地回答，"好了，我得走了！"
+
+"Mommy! Can I have a kiss good-bye?" Yumi replied. Ryouji offered no such sentiment, completely consumed by the program.  
+"妈妈！我可以得到一个告别吻吗？" 由美回答道。良治对此毫无表示，完全沉浸在程序中。
+
+"Okay." Misato hastily leaned in, kissed her daughter's forehead, only to dart out of the apartment, running for her car, eager to dart off to that dinner so she wouldn't need to be late. She left Shinji and Asuka alone with two children. It was only when the responsibility was fully deposited on Shinji that he panicked.  
+"好的。" 美里匆忙俯身，亲吻了女儿的额头，随即冲出公寓，奔向她的车，急切地想要赶去那顿晚餐，以免迟到。她留下真嗣和明日香独自照顾两个孩子。直到责任完全落在真嗣身上，他才开始慌张。
+
+Watching Misato's children? What a crazy idea! He didn't know how to raise them! He didn't know the first thing about raising a child, but maybe that was the point. He'd just need to get to know them, that was all. How hard could it possibly be. "I mustn't run away. I mustn't run away. I mustn't—"  
+看着美里的孩子？多么疯狂的想法！他不知道如何抚养他们！他对抚养孩子一无所知，但也许这就是重点。他只需要了解他们，仅此而已。这能有多难。 "我不能逃跑。我不能逃跑。我不能——"
+
+"What're you doing, Uncle Shinji?" Yumi asked, curiously.  
+"你在做什么，真嗣叔叔？" 由美好奇地问道。
+
+"Huh? Nothing, don't worry." Turning to Yumi, anxious grimace on his face, he asked, curiously, "Well, what do you guys like to eat?"  
+"嗯？没什么，别担心。" 他转向由美，脸上带着焦虑的苦笑，好奇地问，"那么，你们喜欢吃什么呢？"
+
+"I want miso soup," Ryouji called from the TV, not turning around.  
+"我要味噌汤，" 亮司从电视那边喊道，没有回头。
+
+"Don't listen to him!" Yumi replied, "He doesn't know what he wants. Can you make some riceballs?"  
+"别听他的！" 由美回答，"他根本不知道自己想要什么。你能做些饭团吗？"
+
+"Miso soup!" Ryouji shouted, turning around to face Yumi.  
+"味噌汤！" 亮司喊道，转身面对由美。"
+
+"Miso stinks! Riceballs are better!"  
+"味噌臭死了！饭团更好！"
+
+"Miso!" "味噌！"
+
+"Rice!" "米饭！"
+
+"Miso!" "味噌！"
+
+"Rice!" "米饭！"
+
+"Why does this look so familiar?" Asuka asked, curiously.  
+"为什么这看起来这么眼熟？" 明日香好奇地问道。
+
+"Don't know," Shinji replied, "I usually don't fight back, and when I do, you usually hit me."  
+"不知道，" 真嗣回答，"我通常不还手，而我一还手，你通常就会打我。"
+
+"Good point." "说得好。"
+
+"Miso!" "味噌！"
+
+"Rice!" "米饭！"
+
+"Miso!" "味噌！"
+
+"Rice!" "米饭！"
+
+"Shouldn't we be doing something to break them up?" Shinji asked.  
+"我们不应该做点什么来阻止他们吗？" 真嗣问道。
+
+"Yeah, I know! Make some German food!" Asuka declared.  
+“耶，我知道了！做些德国菜吧！”明日香宣布道。
+
+"What?" Both Yumi and Ryouji turned toward the red head, curiously, "What's German food?"  
+“什么？”优米和凌二都好奇地转向红发女孩，“德国菜是什么？”
+
+"Mein Gott! You don't know what German food is?" Asuka asked, a sly smile on her lips, "Well, that's okay. Shinji, make it."  
+“我的天哪！你们不知道德国菜是什么？”明日香问道，嘴角带着一丝狡黠的微笑，“好吧，没关系。真嗣，你来做。”
+
+"What? What do you want me to make?"  
+"什么？你想让我做什么？"
+
+Blushing, Asuka turned to Shinji, and loudly whispered into his ear, hastily. "I don't know! Just make something! Make Wiener Schnitzel. We have the ingrediants for that, right?"  
+脸红的明日香转向真嗣，急忙凑到他耳边大声耳语道：“我不知道！随便做点什么吧！做维也纳炸肉排。我们有做那个的材料，对吧？”
+
+"Yeah, I think so." "嗯，我想是的。"
+
+"Well, get on it! I'm hungry!" Asuka whispered.  
+“快点动手吧！我饿了！”明日香低声催促道。
+
+"Wait, aren't we making this for the kids?" Shinji asked, glancing at the German through narrowed eyes.  
+“等等，我们不是在做给孩子们吃的吗？”真嗣眯起眼睛，瞥了一眼德国人问道。
+
+"Yeah! That's right. The kids. Right." Asuka pulled away, and turned toward the kids. "Hey, I have a question for you. You guys wanna play a video game?"  
+“对啊！没错。孩子们。对。”明日香退开一步，转向孩子们。“嘿，我问你们个问题。你们想玩电子游戏吗？”
+
+"What kind of game?" Ryouji asked, eagerly.  
+"什么游戏？" 亮司问，急切地。
+
+"I don't like those games," Yumi replied, anxiously pushing up her glasses.  
+"我不喜欢那些游戏，" 由美回答，焦虑地推了推眼镜。
+
+"What? Afraid you can't beat me?" Asuka replied, a sneer on her lips.  
+"什么？怕赢不了我？" 明日香回答，嘴角带着一丝嘲讽。
+
+"No I'm not!" Yumi insisted, balling up her hands into pudgy fists.  
+"不，我没有！" 由美坚持道，将她的小手握成胖乎乎的拳头。
+
+"Oh really? Then play!" "哦，真的吗？那就来吧！"
+
+"I will!" "我会来的！"
+
+As Shinji made the German food, which really wasn't all that hard to do considering it was mostly a fried dish, she glanced over at Asuka as she played her game. Even though she was behaving much like a child herself, the children were having fun with her. She knew how to let them have a good time, knew what to say, even though it sometimes was a little mean. He knew, right then and there, that she was ready to be a mom. She would make an amazing mother for his son—er, child.  
+当真嗣做着德国菜时，考虑到这主要是一道炸食，其实并不难做，她瞥了一眼正在玩游戏的明日香。尽管她自己表现得就像个孩子，但孩子们和她在一起玩得很开心。她知道如何让他们玩得尽兴，知道该说什么，尽管有时有点刻薄。他当时就明白，她已经准备好成为一个母亲了。她会成为他儿子——呃，孩子的出色母亲。
+
+But would he really make all that good of a father?  
+但他真的会成为一个好父亲吗？
+
+"Shinji, for a Japanese person, you can at least cook decent German food," Asuka said, sampling the plate of fried food with an almost nostalgic glint in her eyes, "I've trained you well."  
+“真嗣，作为一个日本人，你至少能做出像样的德国菜。”明日香说着，品尝着那盘炸食，眼中闪过一丝怀旧的光芒，“我把你训练得不错。”
+
+"Trained? All you did was buy me a German cook book and told you to make German stuff. You didn't train me at all," Shinji replied, his eyes narrowed.  
+"训练？你不过是给我买了本德国烹饪书，然后让我做德国菜。你根本没训练我，" 真嗣回答道，眼睛眯了起来。
+
+"It's the same difference."  
+"其实差不多。"
+
+"This isn't half-bad," Ryouji replied as he nibbled on some of the dish.  
+"这还不赖嘛，" 良治边说边尝了几口菜。
+
+"It's too fried," Yumi replied, disgusted, "I still want rice balls!"  
+"太油腻了，" 优米回答，一脸厌恶，"我还是想吃饭团！"
+
+"German food beats rice balls," replied Asuka, simply, with an amused grin, but not one without a hint of malice, "If you want rice balls that badly, I'm sure the invincible iron chef Shinji could make you some."  
+"德国菜可比饭团强多了，" 明日香简单地回答，带着一丝戏谑的笑意，但也不乏一丝恶意，"如果你那么想吃饭团，我相信无敌的铁厨真嗣肯定能给你做几个。"
+
+"It wouldn't be a problem," Shinji replied, smiling.  
+"那不成问题，" 真嗣微笑着回答。"
+
+"Ah! So the invincible Shinji rises up to the challenge of making rice balls for a little girl," Asuka said, making Yumi giggle slightly, "I guess he can do just about anything! Even cook decent German food without a drop of that great blood in his system."  
+"啊！看来无敌的 Shinji 要挑战为小女孩做饭团了，" Asuka 说道，逗得 Yumi 轻声笑了起来，"看来他无所不能！甚至能在没有那伟大血统的情况下做出像样的德国菜。"
+
+"Great blood?" Shinji replied, finishing his meal, which he had to say was too fried, wasn't his taste, and he would probably make rice balls for himself to get the lousy taste out of his mouth, "I don't know about that."  
+"伟大血统？" Shinji 回答道，结束了他的晚餐，他不得不说这顿饭太油腻了，不合他的口味，他可能会为自己做些饭团来去除嘴里的糟糕味道，"我不太确定。"
+
+"Germany is the greatest nation in the world," Asuka proclaimed, "And don't you forget it, dummkopf!"  
+"德国是世界上最伟大的国家，" Asuka 宣称，"你可别忘了，笨蛋！"
+
+"Speaking of Germany, have you called your parents yet about you're, uh, pregnancy?" Shinji asked as he withdrew the rice cooker from a cabinet.  
+"说到德国，你给父母打电话了吗？关于你，呃，怀孕的事？" 真嗣一边问，一边从橱柜里拿出电饭煲。
+
+"Oh, my parents?" Shinji glanced over at his fiancé. Her eyes glanced down at her dish as she ran her hands through her hair, averting her gaze from anyone's eyes. "I actually, uh, haven't even told them we were engaged yet."  
+"哦，我父母？" 真嗣瞥了一眼他的未婚妻。她的目光落在自己的盘子上，双手梳理着头发，避开了所有人的视线。"其实，呃，我还没告诉他们我们订婚了。"
+
+"You haven't?" Shinji stammered. That entire time Shinji had asked Asuka if she had asked her parents if they were going to be at the wedding, and yet, all this time, she hadn't. There had to be a reason, just had to be, why she wouldn't inform her own family of such an important occasion.  
+"你还没说？" 真嗣结巴道。这段时间里，他一直问明日香是否已经告诉她父母他们要结婚的事，然而，她却一直没说。一定有什么原因，一定有，为什么她不告诉自己的家人这么重要的时刻。
+
+"Yeah, uh, sorry?" "嗯，呃，抱歉？"
+
+"Don't worry about it. When are you going to tell them? They do deserve to know."  
+"别担心。你打算什么时候告诉他们？他们确实有权知道。"
+
+"I'll call 'em eventually. Sooner than later. Maybe." Once again, she averted her gaze.  
+""我迟早会打电话给他们的。尽快吧。也许。"" 她再次移开了视线。
+
+"You can't run away from this," Shinji replied.  
+"你逃不掉的，" 真嗣回答道。
+
+"Coming from you, Mr. 'I Mustn't Run Away', I don't think you're in any position to be telling me that," Asuka replied, snidely, but not harshly.  
+"从你这位'我不能逃跑'先生嘴里说出来，我觉得你没资格这么说我，" 明日香尖刻地回应，但并不严厉。
+
+"But I mean, you rarely mention your parents, but I'm sure they miss you," Shinji said, smiling, "I mean, they can't be anything like my father was." Upon stating that, the words "my father," an image emerged in Shinji's brain. An image of himself, years from now, having grown a chin-strap beard like his father, staring down at his future son, a weedy awkward youngster much like he had been, huddled in a corner as he, Shinji, reprimanded him, speaking in Shinji's voice but in an uncharacteristically harsh tone, a cruel tone that sounded like a man by the name of Gendo Ikari. Shinji ran a hand through his hair as he pulled out the bag of rice, scooping enough rice for two people, and Asuka because he knew she'd want some, along with some for Ryouji in case he was jealous of his elder sister.  
+"但我的意思是，你很少提到你的父母，但我确信他们想念你，" 真嗣微笑着说，"我是说，他们不可能像我父亲那样。" 说到这里，"我父亲"这几个字在真嗣脑海中浮现出一个画面。画面中的自己，多年以后，留着像他父亲那样的下巴胡须，低头看着未来的儿子，一个瘦弱笨拙的少年，就像他曾经那样，蜷缩在角落里，而真嗣自己则在训斥他，用真嗣的声音却带着一种异常严厉的语气，一种残酷的语气，听起来像是叫源堂·碇的男人。真嗣用手梳理了一下头发，拿出米袋，舀了足够两人份的米，还有明日香的份，以及一些给凌二，以防他嫉妒他的姐姐。
+
+Asuka didn't seem to notice Shinji's stress. "Yeah, well, I guess you're right. Still, I'm not sure how happy I'd be if my stepmom started to act like she really cared if I was getting married or not."  
+明日香似乎没有注意到真嗣的压力。“嗯，好吧，我想你是对的。不过，我不确定如果我的继母开始表现得好像真的很在意我是否结婚，我会感到多高兴。”
+
+"She cares," Yumi declared, balling up her fists passionately, "Mothers always care about stuff like that!"  
+“她关心，”优米坚定地握紧拳头，充满激情地说，“母亲总是关心这类事情的！”
+
+Frowning slightly, Asuka replied, "I don't know about that."  
+明日香微微皱眉，回答道：“我不太确定这一点。”
+
+"Besides, what's a stepmom?" Ryouji asked.  
+"再说了，什么是继母？" 龙二问道。
+
+Asuka was about to answer when Yumi interrupted her. "Don't you know anything? A stepmommy is a mommy you have after your real mommy goes away! A girl in my class has a stepmommy."  
+明日香正要回答，却被由美打断了。"你什么都不懂吗？继母就是当你亲生妈妈离开后，你有的新妈妈！我班上有个女孩就有个继母。"
+
+"You mean mommy's going to leave me?" Ryouji stammered, tears in his eyes.  
+"你是说妈妈要离开我吗？" 龙二结结巴巴地说，眼里含着泪水。
+
+Neither Shinji or Asuka responded.  
+无论是真嗣还是明日香都没有回应。
+
+"Of course she isn't, silly!" Yumi replied, reproachfully, "Mommy isn't going anywhere. It's just what happens if you get a divorce, that's all. And your mommy doesn't leave you, really. She just lives somewhere else. My friend at school sees her mommy all the time—"  
+"当然不会，傻瓜！" 由美反驳道，"妈妈哪儿也不会去。只是离婚了就会这样，仅此而已。而且你妈妈并没有离开你，真的。她只是住在别的地方。我学校的朋友就经常见到她妈妈——"
+
+"Can we please change the subject?"  
+"我们能换个话题吗？"
+
+Shinji glanced over at his fiancé to see a sight he had never, in all his years, expected to see out of the blue like this. Asuka's head was slumped over, her face almost completely covered by the shadows of her bangs. A small moist gasp for air escaped her throat as a small, beady tear rolled down the strong German's cheek. Shinji could only stare in shock as she brushed the tear aside with her knuckle, only for a second tear to replace the first. What was wrong with her? Just talking about mothers brought her to tears? Just what the hell happened to Asuka's mother? Was she involved in a bitter divorce? Was her mother arrested for drug abuse? Did she die? The truth was that Asuka had never, in all the years she knew her, mentioned the status of her real mother. Occasionally, and by occasionally she meant rarely, she'd mention her family in Germany, but never would she mention her real mother.  
+真嗣瞥了一眼他的未婚妻，看到了一幅他多年来从未预料到会突然出现的景象。明日香的头低垂着，她的脸几乎完全被刘海的阴影遮住。她喉咙里发出一声微弱的湿润喘息，一颗小泪珠从这位坚强的德国女孩的脸颊上滚落。真嗣只能震惊地看着她用指节擦去泪水，随即第二颗泪珠又取而代之。她怎么了？仅仅谈论母亲就让她流泪了吗？明日香的妈妈到底发生了什么？她是否卷入了痛苦的离婚？她的母亲是否因吸毒被捕？她去世了吗？事实是，明日香从未在她所知的这些年里提及过她亲生母亲的情况。偶尔，她指的是极少的时候，她会提到她在德国的家人，但绝不会提及她的亲生母亲。
+
+Except for the immediate aftermath of Third Impact.  
+除了第三次冲击刚发生后的那段时间。
+
+He approached his fiancé, and put a comforting hand on her shoulder. She glanced up. Her sky blue eyes were filled with tears she struggled to hold back, her stiff upper lip struggling against quivering sobs. Her face was contorted as it fought the war against crying, against showing her true feelings. As Shinji bent down to embrace her, the proud German continued to resist the tears. Even as she buried her face into spot between his shoulder and chest, she chose to whip the tears that had yet to fall against Shinji's shirt rather than let them slip down her face.  
+他走向未婚妻，轻轻地将手放在她的肩上。她抬头望向他，天蓝色的眼眸中盈满了泪水，她努力抑制着不让它们落下，紧绷的嘴唇与颤抖的呜咽抗争。她的脸因与哭泣的斗争而扭曲，努力不显露真实的情感。当真嗣弯腰拥抱她时，这位骄傲的德国女孩仍在抗拒泪水。即使她将脸埋在他肩与胸之间的位置，她选择将尚未滑落的泪水甩在他的衬衫上，而不是让它们顺着脸颊流淌。
+
+"You stupid idiot," Asuka mumbled, her words interrupted for a brief second by an uncontrolled sob, a sob she struggled to quench.  
+“你这个笨蛋，”明日香喃喃道，话音被一个无法控制的呜咽打断了一瞬，她努力压制着这个呜咽。
+
+"Aunt Asuka? Are you okay?" Yumi asked, concerned. She put a back on her "aunt's" back. Ryouji too took a closer look, a glint of fear in his eyes for her safety. Slowly, she rose out from her position, with muted sobs.  
+“明日香阿姨？你还好吗？”由美担心地问。她将手放在她“阿姨”的背上。亮司也仔细观察着，眼中闪过一丝对她安危的担忧。慢慢地，她从原来的位置站起身，压抑着呜咽。
+
+"I'm fine," Asuka replied, running a hand through her hair, glancing at them all, "Let's just not talk about that kind of stuff, okay? It just isn't something I really enjoy talking about."  
+"我没事," 明日香回答，用手梳理着头发，瞥了他们一眼，"我们别谈那些了，好吗？那不是我真正喜欢谈论的话题。"
+
+"Am I in trouble?" Yumi asked, a terrified glint in her eye.  
+"我会惹上麻烦吗？" 优米问，眼中闪过一丝恐惧。
+
+"No, you're not in trouble."  
+"不，你没惹麻烦。"
+
+"Are you going to tell my mommy?" Yumi asked, even more concerned.  
+"你要告诉我妈妈吗？" 优美问，更加担忧了。
+
+"I don't think I will," Asuka replied, grimacing in amusement, "Well, actually, I might, but just so she'd talk to you privately about it, maybe."  
+"我觉得我不会，" 明日香回答，带着一丝戏谑的苦笑，"嗯，其实，我可能会，但只是为了让妈妈私下和你谈谈，或许。"
+
+"Okay," Yumi replied, resigning to her fate.  
+"好吧，" 优美回答，无奈地接受了命运。
+
+After finishing the Weiner Schnitzel, Shinji prepared the rice balls that Yumi had so desperately begged for, and that Shinji so desperately craved. Asuka was playing her games once more with Ryouji, and Yumi was rummaging through her backpack for something that Shinji could not see. As he set out the rice balls on the table, announcing their completion, she watched as Yumi pulled out a large sketchbook, an object she gazed upon with a look of sheer pride. She approached Asuka, and tapped her on the shoulder. This surprised her, which gave Ryouji a perfect opportunity to deliver a fatal blow to her character, leaving her open to a humiliating stage Fatality. Her eyes widened in horror as she watched her character fly through the air, fall through space, and land with a sickening splatter against a carpet of iron spikes. With a look of sheer mortification and fury, she rounded on Yumi. "What is it?!" she snapped, as though she had just caught Yumi stealing something precious away from her.  
+吃完维也纳炸肉排后，真嗣准备起了由美子苦苦哀求、而他本人也渴望至极的饭团。明日香正和亮司再次玩着游戏，而由美子则在背包里翻找着什么，真嗣看不清。当他将饭团摆上桌，宣告完成时，他看到由美子抽出了一本大画册，她凝视着它，脸上满是自豪。她走向明日香，轻拍她的肩膀。这让她吃了一惊，给了亮司一个绝佳的机会，对她的角色施以致命一击，让她暴露在令人羞辱的舞台终结技之下。她惊恐地睁大眼睛，看着自己的角色飞过空中，穿过空间，最终以令人作呕的声响落在一片铁刺地毯上。带着极度的尴尬和愤怒，她转向由美子。“什么事？！”她厉声问道，仿佛刚刚抓到由美子偷走了她的珍贵之物。
+
+Yumi, who looked as though Asuka was about to bludgeon her with a battle axe, and in all honesty it looked like Asuka would have found that to be a rather suiting punishment for distracting her, extended the notebook to the German and cried, frightened, "I'm sorry! I just wanted to show you something to make up for before! I'm sorry! I'm so sorry!"  
+优子看起来就像明日香要拿战斧劈她一样，说实话，明日香似乎觉得这种惩罚对分散她注意力的人来说相当合适。她将笔记本递给德国女孩，惊恐地哭喊道：“对不起！我只是想给你看点东西来弥补之前的过失！对不起！真的很抱歉！”
+
+"Stop saying you're sorry."  
+“别再说对不起了。”
+
+"Yes, sorr—er—" “是的，对不——呃——”
+
+"You take after that idiot, don't you?" Asuka asked, gesturing over to Shinji, who stared at Asuka with a look of confusion. She just had to drag him into this, didn't he? Drag him into a conversation that didn't involve him. Well, despite that, the little girl was clearly amused by Asuka calling Shinji an idiot. Her expression calming, perhaps after rationalizing that loosing to a little child at a fighting game once wasn't the end of the world nor should it be, she accepted the notebook, and glanced at the first page. "Wow, this is actually pretty good for a seven year old. Did you draw this?"  
+"你还真像那个笨蛋，不是吗？" 明日香问道，指了指一旁的真嗣，后者一脸困惑地看着明日香。她非得把他扯进来吗？扯进一个与他无关的对话里。不过，这个小女孩显然被明日香称真嗣为笨蛋逗乐了。她的表情缓和下来，或许是在理性思考后认为，输给一个小孩子在格斗游戏里一次并不是世界末日，也不应该如此，她接过笔记本，瞥了一眼第一页。"哇，作为一个七岁孩子，这画得真不错。这是你画的吗？"
+
+"Uh-huh," Yumi said, proudly.  
+"嗯哼，" 由美自豪地说道。
+
+As Asuka flipped through the pages, she continued, "I mean, no stick figures, just real looking people. When I was your age, I—I—" Asuka's eyes widened slowly as she stared at one individual page, her mouth contorting as she struggled to find words to describe what she was trying to say. Yumi glanced at her, relatively confused. She probably wasn't sure whether Asuka being speechless was a good or bad omen. She glanced over Asuka's shoulder to see the picture in question, only to smile.  
+明日香翻阅着页面，继续说道："我是说，没有火柴人，都是栩栩如生的人物。我像你这么大的时候，我——我——" 明日香的眼睛慢慢睁大，她盯着其中一页，嘴巴扭曲着，努力寻找合适的词汇来描述她的感受。由美疑惑地看着她，不太确定明日香说不出话是好是坏。她凑到明日香肩后，想看看那幅画，随即露出了微笑。
+
+"Oh! I really like that picture."  
+"哦！我真的很喜欢那张画。"
+
+Shinji wanted to inch nearer, but she was sure Asuka would explain it later. He finished the rice balls as Asuka asked, in a strained tone, "How did you, uh, draw this?"  
+真嗣想再靠近一点，但她确信明日香稍后会解释。他按照明日香的要求吃完了饭团，明日香用一种紧张的语气问道：“你是怎么，呃，画出这个的？”
+
+"What do you mean?" "你什么意思？"
+
+"Did you copy from a picture?"  
+“你是照着图片临摹的吗？”
+
+"Oh! No! Nothing like that! I met someone who looked like that, and I thought she was really cool looking, so I sketched her. I asked her to pose and everything."  
+"哦！不！不是那样的！我遇到了一个看起来像她的人，我觉得她看起来很酷，所以就给她画了张素描。我还请她摆姿势呢。"
+
+"Asked her to pose?" "请她摆姿势？"
+
+"Uh-huh." "嗯嗯。"
+
+"Are you lying to me?"  
+"你在骗我吗？"
+
+"Why would I be lying to you?" Yumi's expression grew tense, as though she were afraid of Asuka yelling at her once more. "It's just another person. I asked her to do a few drawings for me, too. No, wait, that's not what I meant. I meant to say I drew her a few other times, I mean. Sorry if I wasn't clear."  
+"我为什么要骗你？"" 优美的表情变得紧张，仿佛害怕明日香再次对她大吼。""只是另一个人而已。我也请她帮我画了几幅画。不，等等，我不是那个意思。我是说我给她画了几次，我是说。如果我没说清楚，对不起。"
+
+Glancing over at Shinji, Asuka snapped, "Dummkopf! Get over here!"  
+瞥了一眼真嗣，明日香厉声道：“笨蛋！快过来！”
+
+"What?" "什么？"
+
+"You heard me! Look at this drawing!"  
+"你听到了！看看这幅画！"
+
+Shinji darted over, mildly happy that the rice balls were at the very least finished. She wondered what could possible surprise Asuka this much. It took a lot to startle his fiancé. Judging by the comments she made, he doubted the German was stunned by the artistic ability of this special younger. In fact, he felt it was something much more, something important, that would startle him upon looking at the picture.  
+真嗣迅速凑了过去，略感欣慰至少饭团已经做好了。她好奇是什么能让明日香如此惊讶。要让他的未婚妻感到震惊可不容易。从她的评论来看，他怀疑德国人并非被这位特殊小辈的艺术才能所震撼。实际上，他觉得这背后隐藏着更为重要、更为惊人的东西，一旦看到那幅画便会明白。
+
+It didn't take long to see what Asuka was so shocked about.  
+没过多久，就明白了明日香为何如此震惊。
+
+"Is that who I think it is?" Shinji stammered, his eyes wide in horror.  
+"那是我以为的那个人吗？" 真嗣结巴着说，眼中充满了恐惧。
+
+"I can't believe this," Asuka stammered, "Maybe it's a look alike."  
+"我简直不敢相信，" 明日香结巴着说，"也许只是长得像而已。"
+
+"It's gotta be. Hey, Yumi, what was the name of this girl?"  
+"肯定是。嘿，由美，这个女孩叫什么名字？"
+
+Smiling brightly, Yumi replied, "She said her name was Rei. Rei Ayanami."  
+笑容灿烂地，优米回答道：“她说她的名字是绫波丽。”
+
+---
