@@ -706,3 +706,4 @@ Shinji was inside a grocery store, buying food. He pulled through the candy aisl
 "好的。" 光点点头，站起身跟着他回到樱的房间。
 
 ---
+### Chapter 6
