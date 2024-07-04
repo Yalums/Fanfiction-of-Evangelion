@@ -652,3 +652,230 @@ Shinji then walked to where he had been sitting, and bent down and grabbed the l
 As he started walking towards the slope, Shinji said, "Don't try moving much either. Your legs will recover faster if you let them sit."
 当他开始向山坡走去时，信治说："也别试着多动。如果你让它们静静地坐着，你的腿会恢复得更快。"
 
+Asuka was just about to open her mouth and say something though when she stopped herself. What point was there in arguing with him anyway.  
+明日香正要张嘴说些什么，却又突然打住了。反正跟他争论又有什么意义呢。
+
+"I'll be back in a few hours," said Shinji as he reached the top of the slope and disappeared in a few hours.  
+“我几个小时后就回来，”真嗣说着，到达坡顶后便消失了。
+
+'Like I'll believe that,' thought Asuka as she looked into the fire. She had noticed that he had taken the lighter with him.  
+'我才不信呢，'明日香一边凝视着火焰一边想。她注意到他已经把打火机带走了。
+
+She slowly wrapped her body in the blanket, even managing to place her legs in them. She remembered when she had woken up, and had at first thought that she was in her bed back home in Germany. Everything had been incredibly warm, but then something, a cold breeze most likely had hit her. She then noticed that she was on sand, and in a sleeping bag. She had looked around and her eyes had quickly snapped to that boy. It was only a few seconds before she was on top of him, trying to break his neck. She wondered why he hadn't brought that up yet.  
+她慢慢地用毯子裹住身体，甚至设法把腿也放进去。她记得自己醒来时，起初以为自己躺在德国家里的床上。一切都非常温暖，但随后有什么东西，可能是冷风，吹到了她。她这才注意到自己躺在沙滩上，睡在睡袋里。她环顾四周，目光很快落在了那个男孩身上。仅仅几秒钟后，她就扑到他身上，试图扭断他的脖子。她不知道他为什么还没提起这件事。
+
+'Probably waiting till I fall asleep to do something,' thought Asuka. She shivered at the thought. No, she couldn't fall asleep, not in case he did end up coming back.  
+'可能是在等我睡着后搞什么鬼，'明日香心想。想到这里，她不禁打了个寒颤。不，她不能睡着，万一他真的回来了怎么办。
+
+She shifted positions, forcing herself to become less comfortable, but the combination of the sleeping bag and fire were making her eyes start to droop.  
+她调整了姿势，强迫自己变得不那么舒适，但睡袋和篝火的组合让她的眼皮开始沉重。
+
+'Can't...sleep,' muttered Asuka.  
+'不能...睡，'明日香喃喃自语。
+
+It was moments later when her head drooped onto her chest, and she fell deeply asleep.  
+片刻之后，她的头垂落在胸前，深深地进入了梦乡。
+
+It took Asuka several seconds to remember where she was when she awoke, but when she did, she sat bolt upright.  
+当明日香醒来时，她花了好几秒钟才想起自己身在何处，但一旦记起，她便猛地坐直了身子。
+
+"Oh...you awake?" "哦...你醒了？"
+
+Her head darted to her left and saw Shinji walking over to the fire, several more pieces of wood in his arms.  
+她迅速转向左边，看到真嗣抱着几根木柴走向火堆。
+
+Her mouth opened against her will and she stammered, "You're back?"  
+她的嘴不由自主地张开，结巴道：“你回来了？”
+
+"I was gone for several hours and have been back for several, you've just been sleeping this whole time."  
+“我离开了几个小时，回来也已经有好几个小时了，你一直都在睡觉。”
+
+Asuka opened her mouth again, but this time clamped it closed and turned towards the fire, but only now realized it was extinguished.  
+明日香再次张开了嘴，但这次她紧紧闭上，转向了火堆，却直到此刻才意识到火已经熄灭了。
+
+"No need for a fire right now with the sun as it is," said Shinji.  
+“现在太阳这么好，不需要生火。” 真嗣说道。
+
+Asuka looked up into the sky and saw that he was right. The sun was high in the sky, indicating that it was noon or a little after.  
+明日香抬头望向天空，发现他说得没错。太阳高悬，表明已是正午或稍晚些时候。
+
+"I found more water," said Shinji as he pointed to several more bottles next to the fire. Asuka stared at these and then back at Shinji, confused by what she was seeing.  
+"我找到了更多水，" 真嗣指着火堆旁的几瓶水说道。明日香盯着这些水瓶，又回头看向真嗣，对眼前所见感到困惑。
+
+"Why did you come back?" she eventually asked.  
+"你为什么回来？" 她最终问道。
+
+Shinji set the wood down beside the fire pit and then looked at her, a frown on his face.  
+真嗣将木头放在篝火旁，然后看着她，脸上带着一丝不悦。
+
+"Why wouldn't I?" “我为什么不会呢？”
+
+Asuka didn't reply, feeling like she would have rather not asked.  
+明日香没有回答，感觉自己宁愿没有问出口。
+
+"Its not like I gain anything from leaving you."  
+“我离开你又没有什么好处。”
+
+"So you would if you could gain something!" Her voice was suddenly harsh.  
+“所以如果有利可图你就会离开！”她的声音突然变得尖锐。
+
+Shinji shook his head and replied, "I didn't say that, and I wouldn't do that."  
+真嗣摇了摇头，回答道：“我没那么说，也不会那么做。”
+
+Asuka shut up briefly, but Shinji could tell that she was still seething about this. He couldn't understand this girl.  
+明日香短暂地沉默了，但真嗣能感觉到她对此仍怒火中烧。他无法理解这个女孩。
+
+Walking around the other side of the fire pit, he sat down and opened one of the water bottles. Taking several swigs, he set it down and saw that she was staring at him intently. Wiping his mouth he let out a sigh and asked, "Is your leg any better?"  
+绕过篝火的另一侧，他坐了下来，打开一瓶水。连喝了几口后，他将水瓶放下，发现她正目不转睛地盯着他。他擦了擦嘴，叹了口气问道：“你的腿好些了吗？”
+
+Asuka ignored him for for a while before she muttered, "No."  
+明日香无视了他一会儿，然后低声咕哝道：“不。”
+
+'At least she's talking,' thought Shinji.  
+"“至少她开始说话了。”真嗣心想。
+
+"We'll we should at least clean up the burn marks from the cinders."  
+"我们至少应该清理一下从煤渣上留下的烧痕。"
+
+Shinji made to stand up, but was quickly rebutted by Asuka.  
+真嗣正要站起来，但很快被明日香反驳了。
+
+"Don't bother, I'll do it myself."  
+"别费心了，我自己来。"
+
+"With what? You're are not using the water in the bottles to clean those burns."  
+"用什么？你不会是用瓶子里的水来清洗那些烧伤吧。"
+
+"Who said I was gonna use those?"  
+"谁说我打算用那些？"
+
+"Then what? Ocean water won't help you."  
+"那又怎样？海水可帮不了你。"
+
+Asuka paused; she was going to use the water from the ocean.  
+明日香停顿了一下；她打算用海水。
+
+"I can deal with the salt."  
+我能处理这盐。
+
+"I wasn't talking about that, the ocean isn't...the water is something different, some strange liquid that smells like blood. You can even smell it from here."  
+“我不是在说那个，海洋不是……水是另一种东西，某种闻起来像血的奇怪液体。你甚至从这儿都能闻到。”
+
+Now that Asuka thought about it, he was right. She could smell it from here, the stench of LCL fluid. She had become so accustomed to it that she hardly noticed it. But why had the Bay of Tokyo-3 turned to LCL fluid? Or was it just like she had thought when this boy told her they were in the remnants of Tokyo-3?  
+现在想来，他说的没错。她从这里就能闻到那股味道，LCL 溶液的恶臭。她已经习惯了，几乎察觉不到。但为什么东京-3 湾会变成 LCL 溶液呢？还是说，就像这个男孩告诉她他们在东京-3 废墟中时她所想的那样？
+
+Letting out a sigh, Asuka grabbed the empty water bottle and threw it at Shinji. "Just fill this with the stuff in the ocean. Who cares what it is."  
+叹了口气，明日香抓起空水瓶朝真嗣扔去。“直接用海里的水装满就行了。管它是什么。”
+
+"But it could harm you."  
+“但它可能会伤害你。”
+
+'If it could harm me I'd be dead by now,' thought Asuka snidely.  
+“如果它能伤害我，我现在早就死了，”明日香尖刻地想道。
+
+"Don't worry about it," said Asuka as she waved him off. "Just get the stuff and I'll do the rest."  
+"别担心，" 明日香一边挥手让他离开，一边说。"把东西拿来，剩下的我来搞定。"
+
+Shinji stared at her for several more seconds, wondering why she was so positive that the stuff was fine.  
+真嗣又盯着她看了几秒钟，不明白她为什么如此确信那东西没问题。
+
+"Okay," he said eventually.  
+"好吧，" 他最终说道。
+
+It took him only a few minutes to fill the bottle when he reached the ocean. It was strange, it felt like sand when he ran his hands through it, but it clearly fit in the bottle as a liquid.  
+当他到达海边时，只用了几分钟就装满了瓶子。这很奇怪，当他用手拨弄时，感觉像沙子，但它显然以液体的形式装进了瓶子里。
+
+Taking it back to Asuka, he handed her the bottle and she quickly opened it and spread it on her outstretched leg. She immediately winced.  
+他带着瓶子回到明日香那里，递给她，她迅速打开瓶盖，将其涂抹在她伸出的腿上。她立刻皱起了眉头。
+
+"Does it hurt?" asked Shinji.  
+“疼吗？” 真嗣问道。
+
+Asuka took a few seconds to reply.  
+明日香顿了几秒才回答。
+
+"Yes, but thats because of the salt."  
+"是的，但那是因为盐。"
+
+"Salt?" "盐？"
+
+"The salt from the ocean mixed with this stuff."  
+海水中的盐分与这种物质混合在一起。
+
+"So thats why it felt like sand," mumbled Shinji.  
+“所以才感觉像沙子啊。” 真嗣喃喃自语道。
+
+"Most likely," replied Asuka, 'though several of its other properties probably caused that affect,' she thought silently.  
+"很有可能，"明日香回答道，'尽管它的其他特性可能也导致了这种影响，'她默默地想。
+
+It didn't take long for Asuka to clean the burns on her legs; thankfully they weren't that bad, but her legs still wouldn't move.  
+没过多久，明日香就清理好了腿上的烧伤；幸好伤势并不严重，但她的双腿依旧无法动弹。
+
+The day passed slowly afterwards and Shinji and Asuka barely talked to each other during this time. Shinji was constantly keeping the fire burning, wanting to keep his mind occupied with something, while Asuka seemed to have been lost in her own thoughts, curled in the warmth of the sleeping bag.  
+那天之后，时间过得异常缓慢，真嗣和明日香在这期间几乎没有交谈。真嗣不停地维持着火堆燃烧，试图用忙碌来占据自己的思绪，而明日香似乎沉浸在自己的思绪中，蜷缩在睡袋的温暖里。
+
+The sun began sinking across the ocean eventually and Asuka opened her eyes and turned towards it. Shinji, who had thought she had been asleep turned towards her and was momentarily surprised at how beautiful she looked with the orange and red rays of the sun hitting her face.  
+太阳开始缓缓沉入海平线，最终，明日香睁开了双眼，转向夕阳。真嗣原以为她已经睡着了，便也转头看向她，一时间被夕阳橙红的光芒映照在她脸上的美丽模样所惊艳。
+
+"What exactly are we going to do now?" asked Asuka suddenly as she turned back towards the fire.  
+“我们现在到底要做什么？”明日香突然转身面向火堆问道。
+
+Shinji didn't know himself, which was the problem. He had been maintaining his sanity be doing everything by the moment, by the minute, and by the hour. If he had to think about the days to come, he wasn't sure what they would do. They couldn't just keep living like this.  
+真嗣自己也不知道，这就是问题所在。他一直靠按部就班、分秒必争来维持理智。如果让他考虑未来的日子，他不确定他们会怎么做。他们不能就这样一直生活下去。
+
+Shinji's stomach rumbled then, and he was reminded of his hunger once again. He hadn't found food again today, which was growing to be a problem. If he didn't find any tomorrow...  
+那时，真嗣的肚子咕噜作响，再次提醒了他饥饿的感觉。今天他又没找到食物，这逐渐成了个问题。如果明天还找不到...
+
+"I don't know," replied Shinji slowly.  
+“我不知道，”真嗣缓缓回答道。
+
+'And here I thought you had a solution to everything,' thought Asuka bitterly. But at the same time, she realized just how worried Shinji was about things, even if he didn't say anything. She supposed that it had been different for him when he had found himself here, all by himself until he found her. But even then he didn't know whether she would awake. If she had been in his position...  
+“我还以为你什么问题都有办法解决呢，”明日香苦涩地想着。但与此同时，她意识到真嗣对事情的担忧有多深，即使他什么都没说。她猜想当他独自一人来到这里，直到找到她之前，他的处境一定很不同。但即便如此，他也不确定她是否会醒来。如果她处在他的位置……
+
+"Can I ask you something?" asked Shinji suddenly.  
+"我能问你件事吗？" 真嗣突然问道。
+
+"...What?" replied Asuka after a seconds pause.  
+"……什么？" 明日香顿了几秒后回答。
+
+"Why did you trying killing me?"  
+“你为什么要杀我？”
+
+Asuka had been waiting for this question from him and had been surprised that it hadn't come sooner.  
+明日香一直在等他问这个问题，惊讶的是他居然到现在才问。
+
+"How would you have reacted if you were in my place?"  
+"如果你处在我的位置，你会怎么反应？"
+
+"...What do you mean?" "...你是什么意思？"
+
+"Waking up without any idea where you were with some boy sleeping across from you."  
+“醒来时完全不知道自己在哪里，对面还躺着一个男孩。”
+
+'Isn't choking someone still going too far?' thought Shinji.  
+"“掐住别人脖子是不是还是太过分了？”真嗣心想。
+
+Asuka didn't want to spell it out for him though, so she didn't. If he didn't understand what she was getting at, it was better that way. The less he knew about her, the better.  
+明日香并不想明说，所以她没有。如果他不明白她的暗示，这样反而更好。他了解得越少，对她越有利。
+
+The sun across the horizon set and in several short hours, a new day would be starting.  
+太阳横跨地平线缓缓落下，短短几个小时后，新的一天即将开始。
+
+Asuka rolled over, facing away from the fire and covered herself from head to toe in the sleeping back. The plug suit didn't make sleeping particularly comfortable, but it was something she had wondered about before. She couldn't remember wearing her plug suit or going in for any tests before this all happened. She couldn't really remember much of what she had done during that day was the problem.  
+明日香翻了个身，背对着火堆，将整个人从头到脚裹进睡袋里。插入栓服并不适合睡眠，这一点她之前也考虑过。她记不清在这场变故之前是否穿过插入栓服或进行过任何测试。问题在于，她几乎记不起那天自己做了些什么。
+
+Shinji continued sitting in front of the fire, his head resting in his hands. He had gotten a headache sometime during the past hour, and hoped that it would subside sooner or later. He was unwillingly thinking about tomorrow and what it would bring. Asuka's leg didn't seem to be getting any better, so they would have to stay on the beach for a while. If he was honest, he would have preferred to have found a place to stay in the city; at least it would be close to more supplies.  
+真嗣继续坐在火堆前，双手托着头。过去的一个小时里，他的头开始隐隐作痛，希望这痛楚能早点消退。他不由自主地思考着明天会带来什么。明日香的腿似乎没有好转的迹象，所以他们还得在海滩上逗留一段时间。老实说，他更希望能找到城市里的落脚点；至少那里离补给更近一些。
+
+Placing more wood onto the fire, he lay down on the cool sand and rolled onto his back so that he was looking up at the sky. It was still hard to comprehend what had happened, since it felt like he had been sitting in a classroom until just a little while ago. But things were as they were.  
+往火堆里添了些木柴，他躺在凉爽的沙地上，翻身仰面朝天，凝视着天空。这一切仍难以置信，仿佛不久前他还坐在教室里。但事实就是如此。
+
+It took both Shinji and Asuka a long time to fall asleep that first night that they were together, mainly because both were still a bit wary of the other, but when they finally did, it was almost in unison.  
+那第一晚，真嗣和明日香花了很长时间才入睡，主要是因为两人对彼此仍有些许戒备，但当他们最终睡着时，几乎是同时的。
+
+---
+
+**And I would just like to say Dear God FanFiction has changed a lot during these past few months.  
+我只想说，天啊，这几个月来同人文网站变化真大。**
+
+---
