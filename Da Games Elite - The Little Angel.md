@@ -2208,3 +2208,282 @@ This was going to be one long visit, wasn't it?
 这趟拜访会很长，不是吗？
 
 ---
+**Part 9 第九部分**
+
+Why the hell was she in Germany, anyway? It wasn't like she actually liked this part of Europe or anything. If anything, she all but hated this place and the memories stored here. She would've enjoyed burning the nation to the ground, if it burned down the memories of that little room and that bed and that damn stinking doll! Asuka stared out her window while that stupid idiot Shinji behind her snoozed on a pink mattress intended for the redhead. He could take the damn bed for all she cared. It wasn't like she even liked pink anyway.  
+她到底为什么会跑到德国来？她又不是真的喜欢欧洲的这一部分。说真的，她几乎恨透了这里和这里储存的记忆。如果可以，她倒是很乐意看到这个国家化为灰烬，只要能烧掉那个小房间、那张床和那个该死的臭娃娃的记忆！明日香盯着窗外，而那个愚蠢的白痴真嗣在她身后，正睡在一张原本属于红发女孩的粉色床垫上。他爱睡那张床就让他睡去吧，反正她也不喜欢粉色。
+
+She clenched her fists, angrily, as she pounded the wall. That idiot couldn't stay awake until the damn sun set, could he? He had to be an unsightly loaf on a bed, unable to stand by her side, protect her from awkward conversations, salvage her from the past and all of its horrors. The damn asshole! He was such a jerk for being so inconsiderate! What a jerk! How much she wanted to just punch a hole through him!  
+她紧握双拳，愤怒地捶打着墙壁。那个白痴不能等到太阳落山吗？他非得像个难看的懒汉一样躺在床上，无法站在她身边，保护她免受尴尬对话的困扰，无法从过去及其所有恐怖中拯救她。该死的混蛋！他这么不体贴，真是个混蛋！多么混蛋！她真想在他身上打个洞！
+
+She punched the wall again. Oh, who was she trying to fool? It wasn't that idiot she was mad at. She gave him credit for being able to endure two hours of her dragging him into every room she went to without complaining, even the bathroom, just to make sure that he'd be the main subject of conversation, so she wouldn't be alone with her family. She supposed it was inevitable that this would happen. All great things needed to end eventually, didn't they?  
+她再次捶打墙壁。哦，她在骗谁呢？她并不是在生那个白痴的气。她承认他能忍受她拖着他进入她去的每一个房间，甚至包括卫生间，而不抱怨，只是为了确保他会成为谈话的主题，这样她就不会独自面对家人。她想这是不可避免的。所有伟大的事情最终都需要结束，不是吗？
+
+"Hey, sis." “嘿，姐姐。”
+
+All good things came to an end.  
+所有美好的事物终有尽头。
+
+"Yeah?" Asuka turned to face her younger sister Kate, who was staring at her elder sister with a look of indifference.  
+"是吗？" 明日香转向她的妹妹凯特，后者正用一种漠然的表情盯着她的姐姐。
+
+"Mom wanted me to ask you if you could come down for a second."  
+"妈妈让我问你能不能下来一下。"
+
+"Not a problem," sighed the redhead, frowning to herself as she gazed out the window for a moment longer. There was no point running away. She needed to face it. Right now, or never at all.  
+"没问题，"红发女子叹了口气，皱着眉头，目光在窗外停留了片刻。逃避毫无意义。她需要面对它。就在此刻，否则永远没有机会了。
+
+The two sisters left Shinji asleep on the bed, snoring slightly. As they reached the flight of the stairs, Kate turned around to her sister, pressing her hand against the elder sister's belly. "Say, sis, I think I feel a kick," Kate replied, giggling.  
+两姐妹让真嗣在床上继续睡着，轻微地打着呼噜。当她们走到楼梯口时，凯特转身面向姐姐，把手按在姐姐的肚子上。"姐，我觉得我感觉到胎动了，"凯特笑着说。
+
+"It isn't that developed yet. Give it a few months," the redhead sighed, frowning to herself as she asked, slowly, "What did mom want me for, exactly?"  
+"还没那么明显呢。再过几个月吧，"红发女子叹息道，皱着眉头，缓缓地问，"妈妈到底找我有什么事？"
+
+Kate shrugged. "Not sure, you know?"  
+凯特耸了耸肩。"不太确定，你知道吗？"
+
+"Oh, okay." That didn't sit well with Asuka. The subject matter of their conversation could be one of many topics. For one, it could be about Shinji, which would be perfectly fine. On the other hand, it could be about the baby, which would be a little more awkward. And on the other hand, it could be about her real mother, which, if that were so, she doubted she'd be able to finish a coherent thought.  
+"哦，好吧。"这让明日香感到不太舒服。他们谈话的主题可能是多种多样的。比如说，可能是关于真嗣的，那倒没什么问题。另一方面，也可能是关于宝宝的，那就会有点尴尬。再者，可能是关于她亲生母亲的，如果是那样的话，她怀疑自己能否完整地表达出一个连贯的想法。
+
+Her mother was standing in the living room with an old taped up box. It was covered in dust, filled with artifacts that Asuka hadn't seen in years. The icy woman glanced over at the German redhead with a small smile on her lips. "Ah, dearie, I had been meaning to ship this to you, but felt this required the more personal touch. This is a lot of stuff I've been meaning to give you from our house. Lots of old stuff that you'd be able to maybe give to your baby."  
+她的母亲站在客厅里，手里拿着一个用胶带封好的旧箱子。箱子上积满了灰尘，里面装着许多明日香多年未见的物品。这位冷冰冰的女人瞥了一眼德国红发的女儿，嘴角露出一丝微笑。"啊，亲爱的，我一直想把这些东西寄给你，但觉得这需要更私人化的方式。这些都是我们家里我一直想给你的东西。很多旧物，也许你可以把它们传给你的宝宝。"
+
+"Oh, so it's mostly baby toys?" Asuka asked.  
+"哦，那大多是婴儿玩具吗？" 明日香问道。
+
+"Mostly." "基本上是。"
+
+The redhead approached the array of dust covered toys, glancing at each one with relative indifference. Sure, some of it would be rather nice to give to her daughter—er—child, but a lot of it was rather old. An old plastic doll house sported a rather large crack running down the side. It more resembled the House of Usher than a child's toy, thanks to the thick layers of filth and ash that ensnared the plaything. One tea cup had been crushed under the weight of a plastic toy that was so damaged it was almost impossible to determine just what it had been in its former glory.  
+红发女子走近那一排积满灰尘的玩具，相对漠然地扫视着每一个。当然，其中一些给她的女儿——呃——孩子，会相当不错，但很多都相当老旧。一个旧塑料娃娃屋侧面有一道很大的裂缝。由于厚厚的污垢和灰烬覆盖，它更像《厄舍古屋的倒塌》中的房子，而非儿童玩具。一个茶杯被一个塑料玩具压碎了，那玩具损坏严重，几乎无法辨认它昔日的辉煌。
+
+"It's a lot of junk, my dear, but I'm sure some stuff will prove quite useful," her mother replied, hesitantly.  
+"这都是些破烂，亲爱的，但我确信有些东西会很有用，"她母亲犹豫地回答道。
+
+"It's a box of crap. I don't remember any of these things," Asuka replied, in a false-sugary tone. After all, she needed to keep up appearances, didn't she? She needed to at least pretend she was happy. If she wasn't pretending, her stepmom would ask why she wasn't happy, and then she'd be forced to listen to a story about her real mother. All at once, she remembered a doll, hanging from a nose, a nightmarish dead, ghoulish body hanging in the air next to it, and the doll her stepmother had given her years ago. She could remember it so well, remember ripping the damn thing to shreds. It was almost as though that bitch was rubbing it in that her real mother was a lunatic.  
+"这就是一箱垃圾。我一点也不记得这些东西，"明日香用一种假甜的语气回答。毕竟，她需要维持表面形象，不是吗？她至少得假装自己很开心。如果不假装，她的继母会问她为什么不开心，然后她就得被迫听一个关于她亲生母亲的故事。突然间，她记起一个挂在鼻子上的玩偶，一个噩梦般的死尸，恐怖的身体悬在空中，还有几年前继母给她的那个玩偶。她记得那么清楚，记得把那该死的东西撕成碎片。仿佛那个婊子在故意提醒她，她的亲生母亲是个疯子。
+
+As she returned to the land of the living, she noticed a small amount of fuzzy white cotton stuck to her fingers. As she pulled it away, Kate leaned in closer, curiously. "Hey, what's that on your hands?"  
+当她回到现实世界时，她注意到手指上粘着一小撮模糊的白色棉花。当她把它扯下来时，凯特好奇地凑近了。"嘿，你手上那是什么？"
+
+"Not sure," Asuka muttered in response as she removed the last of the cotton, "Looks like cotton, or stuffing."  
+"不确定，" 明日香低声回应，同时取下最后一片棉花，"看起来像是棉花，或者是填充物。"
+
+"Stuffing?" "填充物？"
+
+"Yeah, like the stuffing you'd have in a stuffed toy or a—a—" She couldn't say it. If she said that word, the word that began with a "D," then she'd give it strength, she'd make it real, she'd make the pain emerge yet again, pain strong enough to burn her heart and soul, her moral and strength, her resolve and composition, to the ground in a pile of ashes.  
+"对，就像填充玩具里的那种填充物，或者——或者——" 她说不出口。如果她说出那个词，那个以"D"开头的词，那么她就会赋予它力量，她就会让它变成现实，她就会再次唤起那股足以将她的心灵和灵魂、她的道德和力量、她的决心和构成，焚烧成灰烬的痛苦。
+
+Her mother glanced at the box, and leaned in toward the box. She reached out for it, groping toward it. "Maybe you can look at the rest later, or—" Asuka grabbed the woman by the wrist, holding her back, holding her arm still, holding her away, holding the nightmarish memories close. Slowly, Asuka released her stepmother, leaving her hands at bay. The redhead turned to the box. She reached inside, tossing toys aside, throwing houses and tea sets aside as she found more stuffing, more of that cotton, stuck to the toys. Finally, at the very bottom of the bin, she saw it.  
+她的母亲瞥了一眼那盒子，身子朝它倾斜过去。她伸手去够，摸索着。“也许你可以稍后再看剩下的，或者——”明日香抓住女人的手腕，阻止她，固定她的手臂，让她远离，紧握着那些噩梦般的记忆。慢慢地，明日香松开了她的继母，让她双手远离。红发女孩转向盒子。她伸手进去，把玩具扔到一边，把房子和茶具也扔开，因为她发现了更多的填充物，更多的棉花，粘在玩具上。最后，在箱子的最底部，她看到了它。
+
+A small doll, ripped down the middle.  
+一个被从中撕开的小玩偶。
+
+The first gift she had received from her stepmother.  
+她从继母那里收到的第一份礼物。
+
+The last doll she had touched following the death of her mother.  
+这是她在母亲去世后触摸的最后一个玩偶。
+
+She trembled as she stared at it, reaching out for it with shaky hands. Slowly, her fingers wrapped around the object, her eyes transfixed into its beady black set. She couldn't believe it. How was this possible? It just couldn't be true. Why would this doll be here? Why would it be here? She glanced at her stepmother, her eyes pleading for an explanation for why this doll had to be in a box filled with toys and goodies from the past, why the horrible memories of the past had to be at the bottom of pleasant memories.  
+她颤抖着凝视着它，伸出颤抖的手去触碰。慢慢地，她的手指环绕着那个物体，眼睛紧盯着那对黑色的小珠子眼睛。她无法相信。这怎么可能？这不可能是真的。为什么这个玩偶会在这里？为什么它会在这里？她瞥了一眼继母，眼中恳求着解释为什么这个玩偶必须在一个装满过去玩具和好东西的盒子里，为什么可怕的过去记忆必须藏在愉快的记忆之下。
+
+"I don't follow what's happening," Kate mumbled, "It looks like an ugly doll, though."  
+“我不明白发生了什么，”凯特喃喃自语，“虽然看起来是个丑陋的玩偶。”
+
+Very slowly, Asuka pulled the doll closer to her chest, holding it to her heart, keeping the memories as close to her as possible. She didn't care what anyone said. She didn't care what anyone said. All that did matter was that she needed this doll. She glanced over at her mother, slowly, as she said, "Can you put all that back in the box please?"  
+"非常缓慢地，明日香将那个玩偶紧紧抱在胸前，贴着她的心，尽可能地将那些记忆珍藏在离自己最近的地方。她不在乎别人怎么说。她不在乎别人怎么说。唯一重要的是，她需要这个玩偶。她瞥了一眼母亲，缓缓地说道：“你能把这些都放回盒子里吗？””
+
+"Oh, uh, certainly," her stepmother replied, "Kate, put this stuff back inside, will you?"  
+"“哦，呃，当然可以，”她的继母回答道，“凯特，把这些东西放回盒子里，好吗？””
+
+"What? Why do I have to—?"  
+"“什么？为什么我得——？””
+
+"Asuka?" "明日香？"
+
+The redhead glanced up at the stairs behind her. There that big idiot Shinji stood, a confused and dopey expression on his face. He was so stupid, standing there, so moronic, so damn annoying. What was he doing there, just staring at her as she held a doll to her chest. What was he doing, anyway? Judging her? Judging what she was doing like some sort of stupid superior judge of some kind. He wasn't perfect. He had problems. She didn't deserve to have that idiot just stare at her like that, like some stupid idiot.  
+红发女孩抬头望向身后的楼梯。那个大傻瓜真嗣就站在那里，脸上带着困惑又呆滞的表情。他真是蠢透了，就那样站在那儿，那么愚蠢，那么讨厌。他到底在那儿干什么，只是盯着她把一个娃娃抱在胸前。他到底在干什么？是在评判她吗？像某种愚蠢的高高在上的审判者一样评判她的行为。他并不完美。他也有问题。她不该被那个傻瓜那样盯着，像个愚蠢的白痴一样。
+
+"You dummkopf!" Asuka cried out as the idiot embraced her, his arms comforting her like a warm, soothing blanket, enveloping her in warmth as she cooed to herself, almost silently, but enough to relieve the pressure building in her chest, the pressure to cry out in joy that she had been saved.  
+"你这个笨蛋！" 明日香喊道，当那个傻瓜拥抱她时，他的双臂像一条温暖、抚慰的毯子，将她包裹在温暖中，她轻声自语，几乎无声，但足以缓解胸中积压的压力，那股想要欢呼她被拯救的压力。
+
+"I'll go get dinner ready, won't I?" her stepmother mumbled, leaving the room in favor of finishing things at the kitchen.  
+"我去准备晚饭，好吗？" 她的继母咕哝着，离开了房间，去厨房完成剩下的工作。
+
+"I don't get it. What's the big deal about a doll?" Kate asked.  
+"我不明白。一个玩偶有什么大不了的？" 凯特问道。
+
+"A doll? Is that what set you off?" asked Shinji, curiously.  
+"一个玩偶？这就是让你生气的原因吗？" 真嗣好奇地问。
+
+"Yeah, but don't worry. I'm fine," Asuka replied, nonchalantly rubbing her eyes, "It's not like it's a problem or anything."  
+"嗯，不过别担心。我没事，" 明日香回答道，漫不经心地揉着眼睛，"又不是什么大问题。"
+
+"Did it remind you of something?" Shinji asked.  
+"这让你想起了什么吗？" 真嗣问道。"
+
+"No! Not at all! Just—"  
+"没有！一点也没有！只是——"
+
+"Just what?" “什么意思？”
+
+"Stop interrupting! Dummkopf!" She couldn't tell him the truth. She couldn't explain what she really felt, what she had gone through so many years ago when she had first ripped the doll into pieces. "Look, can you do me a favor and put this in my bags?"  
+“别打岔了！笨蛋！”她无法告诉他真相。她无法解释自己真正的感受，无法诉说她多年前第一次将那个玩偶撕成碎片时的经历。“听着，你能帮我个忙，把这个放进我的包里吗？”
+
+"Oh, okay." “哦，好的。”
+
+About fifteen minutes later, dinner was served. It was a rather simple meal, with lots of steamed meats and vegetables. She did love the taste, despite the fact that she had to admit to herself Shinji's food was much better. Still, that didn't mean she had to give that idiot another reason to inflate his broken ego. "I missed this great food. You don't get this sort of stuff in Japan. It's all fish and rice there, but this, oh this is just so filling! I mean, you wouldn't believe how much that idiot makes, but it isn't satisfying at all. It leaves you wanting more."  
+大约十五分钟后，晚餐端上了桌。这是一顿相当简单的饭菜，有许多蒸肉和蔬菜。尽管她不得不承认，真嗣做的食物要美味得多，但她还是很喜欢这种味道。不过，这并不意味着她需要给那个白痴另一个机会来膨胀他那破碎的自尊。“我怀念这美味的食物。在日本可吃不到这种东西。那里全是鱼和米饭，但这个，哦，这个真是太饱腹了！我是说，你无法相信那个白痴能赚多少，但那根本不满足。它让你总想再来点。”
+
+"Thanks so much for being supportive," mumbled Shinji.  
+“非常感谢你的支持，”真嗣咕哝道。
+
+"I'm glad you approve," her stepmother replied, nodding in approval, "Still, we have much to discuss, Asuka."  
+“很高兴你满意，”她的继母回答道，点头表示赞同，“不过，我们还有很多事情要谈，明日香。”
+
+"Like what?" "比如什么？"
+
+"Well, we need to discuss wedding arrangements, where it's going to take place, and, perhaps most import of all, the baby."  
+"嗯，我们需要讨论婚礼的安排，地点，还有，可能最重要的是，宝宝的事。"
+
+"How did you guys ask each other out?" Kate asked, anxiously, staring at the two of them.  
+"你们是怎么互相表白的？" 凯特焦急地问，盯着他们俩。
+
+"A little random," Asuka mumbled.  
+"有点随意了，" 明日香咕哝道。
+
+"Oh, what?" stammered the surprised Shinji, "How I asked her out?"  
+"哦，什么？" 真嗣结巴着，惊讶地问，"我约她出去的方式吗？"
+
+#
+
+"If you want, you can take her home with you now. Her condition has stabilized in the past week or so."  
+"如果你想，现在就可以带她回家。她的状况在过去一周左右已经稳定下来了。"
+
+"Thank you so much," Shinji had said, bowing respectfully as the red haired German girl was escorted out of her room, a grim expression on her face. She had been inducted in the asylum for several months now, ever since society had completed its reconstruction. He could only smile now, seeing the German salvaged from her self-imposed shackles. She had driven herself mad, and now she was reaping the benefits of her perseverance.  
+"非常感谢你，" 真嗣说道，恭敬地鞠了一躬，那位红发德国女孩被护送出她的房间，脸上带着严肃的表情。她已经被收容在这所精神病院几个月了，自从社会重建完成后。现在他只能微笑，看到这位德国女孩从自我设限的枷锁中被拯救出来。她曾让自己陷入疯狂，而现在她正享受着坚持不懈带来的好处。
+
+She was so beautiful, like an Angel.  
+她如此美丽，宛如天使。
+
+Well, not that kind. 嗯，不是那种天使。
+
+"I can walk on my own," Asuka had grumbled toward the nurses assisting her as she had shaken out of their grip. It had been at this moment that Shinji new Asuka had, beyond a shadow of a doubt, recovered. He had been worried, after all. It had been a few months since he watched her thrown into this place for her own safety. She had just snapped so horribly after all she had seen. Shinji couldn't blame her. She had been confronted with so much, forced to endure so much, and she didn't have the liberty of being able to override her pride in order to confide her concerns in someone else.  
+"我自己能走，" 明日香对着那些试图扶她的护士们咕哝道，同时挣脱了她们的搀扶。就在这一刻，真嗣确信明日香已经完全康复了。毕竟，他一直很担心。自从他看着她为了安全被送进这个地方已经过去了几个月。她经历了那么多可怕的事情后，情绪崩溃了。真嗣无法责怪她。她面对了太多，承受了太多，而且她没有机会放下自尊去向别人倾诉她的担忧。
+
+"Nice to see you're alright," Shinji had said, hoping to break the silence as he drove her home.  
+"很高兴看到你没事，" 真嗣说道，希望能打破沉默，开车送她回家。
+
+"Alright?" Asuka had laughed, but it was a vacant laugh without any true passion to it, "I guess that's one way of putting it."  
+"没事？" 明日香笑了，但那笑声空洞，没有真正的热情，"我想这算是一种说法吧。"
+
+Shinji hadn't know exactly how to respond to that one. Such a difficult comment, so cold and indifferent. Casually, he switched tactics. Anything to get her talking. "Where should I drop you off?"  
+真嗣并不确切知道该如何回应那句话。如此难以捉摸的评论，既冷酷又漠然。他随意地改变了策略，只为了让她开口说话。“我应该把你送到哪里？”
+
+"Home." “家。”
+
+"Where's home?" Shinji had asked, hoping to prolong discussion.  
+“家在哪里？”真嗣问道，希望能延长对话。
+
+"That apartment we shared, remember? You still own it, right?" Asuka had replied.  
+"我们曾经同住的那间公寓，记得吗？你还拥有它，对吧？" 明日香回答道。
+
+"Well, yeah. I've been practicing cello constantly while you were gone. I think I've really improved. You gotta hear—"  
+"嗯，是的。你不在的时候，我一直不停地练习大提琴。我觉得我真的进步了。你得听听——"
+
+"Did you learn how to play Moonlight Sonata on your cello?"  
+"你学会用大提琴演奏《月光奏鸣曲》了吗？"
+
+Shinji considered this. No, he hadn't. He knew exactly what song it was, and maybe he'd be able to try adapting it to work for the cello, but there was one major problem with Moonlight Sonata. "Well, that's usually a piano piece."  
+真嗣思考了一下。不，他没有。他确切地知道那首曲子是什么，也许他可以尝试改编它以适应大提琴，但《月光奏鸣曲》有一个主要问题。“嗯，那通常是钢琴曲。”
+
+"Oh. I tried to learn it for my violin. If you want, we could do a duet," Asuka had replied, her voice flat and empty.  
+“哦。我曾尝试为我的小提琴学习它。如果你愿意，我们可以合奏一曲，”明日香回答道，她的声音平淡而空洞。
+
+"Something the matter?" “有什么问题吗？”
+
+Asuka was silent. 明日香沉默了。
+
+"Did something happen at the asylum?"  
+“精神病院发生了什么事吗？”
+
+Asuka was silent. 明日香沉默了。
+
+"Can you at least talk to me about it?"  
+"你至少能跟我谈谈这件事吗？"
+
+Asuka was silent. 明日香沉默了。
+
+"Could you at least—" "你至少能——"
+
+"They played Moonlight Sonata over and over again at that asylum," Asuka replied, flatly, "They played it again and again and again and again and again and again and again and again and again and again and again and again and again and again. It's enough to drive someone mad."  
+"他们在那所精神病院一遍又一遍地播放《月光奏鸣曲》，" 明日香回答道，语气平淡，"他们一遍又一遍又一遍又一遍又一遍又一遍又一遍又一遍又一遍又一遍又一遍又一遍又一遍又一遍地播放。这足以把人逼疯。"
+
+"Oh, uh, well, it's a nice song, you know?"  
+"哦，呃，好吧，你知道，这是一首不错的曲子？"
+
+"You know when the played that song, usually this one guy would scream. He must've hated that song, being exposed to it so long. The people there got used to it, but he couldn't. He couldn't adjust. I used to tell him to shut up at first, but then I got to understand why he was in such pain. He hurt that way because he was sick of that song being forced on him. All he needed was someone else."  
+"你知道吗，每当播放那首曲子时，通常会有一个人尖叫。他一定讨厌那首歌，长时间被迫听它。那里的人习惯了，但他不行。他无法适应。起初我常叫他闭嘴，但后来我开始理解他为何如此痛苦。他那样痛苦是因为厌倦了被迫听那首歌。他需要的只是另一个人。"
+
+"I'm not sure I follow—"  
+"我不太明白你的意思——"
+
+"But he had no one else. No one listened to him because no one understood him, and no one understood him because no one was listening to him, and no one was listening to him because no one—"  
+"但他没有其他人了。没人听他说话，因为没人理解他，而没人理解他，因为没人听他说话，没人听他说话，因为没人——"
+
+"Calm down." Shinji put a hand on the redhead's shoulder, frowning gently as he gazed over at her, a serious expression on his face. "I'm here. I'm listening to you."  
+"冷静点。" 真嗣把手放在红发女孩的肩上，微微皱眉，认真地看着她，脸上带着严肃的表情。"我在这里。我在听你说。"
+
+"Please don't leave me," she whispered as she held herself in her own arms. "Please don't abandon me. Please don't kill me."  
+"请不要离开我，"她低声说着，将自己紧紧抱住。"请不要抛弃我。请不要杀了我。"
+
+Shinji glanced at her, and said, softly, "Okay, I'll never leave you, okay?"  
+真嗣瞥了她一眼，轻声说道："好的，我永远不会离开你，好吗？"
+
+#
+
+"Oh, Shinji was being really pathetic and whiney, so I decided to ask him on a date to make him feel better," Asuka grumbled.  
+"哦，真嗣表现得真是可怜兮兮的，所以我决定约他出去让他感觉好些，"明日香咕哝着。"
+
+"That's not it at all," Shinji grumbled silently.  
+"根本不是那样," 真嗣默默地咕哝着。
+
+"Oh, so what was your story, huh?" Asuka snapped, a sarcastic grin on her lips.  
+"哦，那你的故事是什么，嗯？" 明日香厉声说道，嘴角挂着讽刺的笑容。
+
+"Well—" "嗯——"
+
+"What names are you considering for the baby?" Asuka's stepmother asked, curiously.  
+"你们考虑给孩子起什么名字？" 明日香的后妈好奇地问。
+
+"We haven't really—" "我们还没真正——"
+
+"Rei if it's a girl," Shinji replied.  
+"如果是女孩就叫丽," 真嗣回答道。"
+
+"Wait, what?" Asuka stammered, "There is no way, and I mean no way at all, that we're naming my daughter Rei!"  
+"等等，什么？" 明日香结巴道，"绝不可能，我是说绝对不可能，我们不会给我的女儿取名叫丽的！"
+
+"And why not?" Shinji asked, "Rei was such an important part of our lives when we were kids."  
+"为什么不呢？" 真嗣问道，"丽在我们小时候是我们生活中非常重要的一部分。"
+
+"Well, let's go down the list, shall we? Number one, she's a damn doll. Number two, she's a clone of your mom. Number three, she's a damn doll!"  
+"好吧，让我们逐一列举，好吗？第一，她是个该死的玩偶。第二，她是你的妈妈的克隆体。第三，她是个该死的玩偶！"
+
+"You said that twice." "你说了两次。"
+
+"Just to reinforce my point!"  
+"只是为了强调我的观点！"
+
+"What if it's a boy?" Kate asked.  
+"如果是男孩怎么办？" 凯特问道。"
+
+"It's not going to be a—"  
+"不会是——"
+
+"Kaworu." "薰。"
+
+"Shinji, shut it!" "真嗣，闭嘴！"
+
+---
