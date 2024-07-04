@@ -1615,3 +1615,325 @@ There was a period of silence again before Asuka's sister snapped, "So when are 
 "哦，呃，嗨，明日香。你绝对猜不到刚才谁打电话来了……"
 
 ---
+**Part 7 第七部分**
+
+"SHINJI, YOU IDIOT!" “真嗣，你这个笨蛋！”
+
+"I'm sorry! I didn't realize—"  
+"对不起！我没意识到——"
+
+"You idiot! Don't talk, just stay quiet!" Asuka snapped, pacing back and forth, her hands balled up in fists as she glared venomously at her fiancé. It wasn't that she was really made at him, but it was a hell of a lot easier to shout at him than it was to shout at her sister over in Germany for calling her like that. Asuka was about to call her, too, once she found out what was up with Yumi drawing Ayanami. Still, the revelation that her sister had called while her back was turned was enough to make her forget momentarily about Wonder Girl. "You shouldn't have said you were my fiancé!"  
+"你这个白痴！别说话，安静点！" 明日香厉声喝道，来回踱步，双手紧握成拳，恶狠狠地瞪着她的未婚夫。倒不是她真的对他生气，只是对他大吼比对远在德国的姐姐大吼要容易得多。明日香本来也打算打电话给姐姐，一旦她弄清楚由美为什么会画绫波零。然而，得知姐姐在她转身时打来电话的事实，足以让她暂时忘记了对绫波零的疑惑。"你不该说你是我的未婚夫！"
+
+"Why not?" Shinji asked. "为什么不行？" 真嗣问道。
+
+"Because now I'm going to have to go back to Germany and drag you along with me," Asuka snapped.  
+"因为现在我不得不回德国，还得把你也拖上，"明日香厉声说道。
+
+"But I thought you felt Germany was the greatest nation in the world," Shinji replied, his eyes narrowed.  
+"但我觉得你认为德国是世界上最伟大的国家，"真嗣回答，眼睛眯了起来。
+
+"Yeah, well, it is, but I hate having to see my parents!" The sounds of her father and stepmother making love echoed through her head, a sound superimposed to the memories of her mother in her hospital ward, stroking the doll she believed to be her daughter. She shook the memories out of her head before continuing her point. "They just bother me, alright?"  
+"是啊，没错，但我不喜欢不得不见我的父母！"她父亲和继母做爱的声音在她脑海中回响，这声音与她母亲在医院病房里抚摸着她认为是自己女儿的玩偶的记忆重叠在一起。她摇摇头，把这些记忆甩开，继续说道。"他们就是让我心烦，行了吧？
+
+"Okay, fine, but you were going to have to tell them eventually," Shinji replied.  
+"好吧，行，但你迟早得告诉他们，" 真嗣回答道。
+
+"Not necessarily," she replied.  
+"不一定，" 她回答说。
+
+"Were you just going to run away?"  
+"你只是打算逃跑吗？"
+
+"Don't throw that rhetoric at me, you stupid house broken male!" Asuka snapped, pointing at her fiancé with a look of utter disdain. Sure, his frail backbone was holding firm for this instance, but it wasn't enough to persuade Asuka that she was being unreasonable. He didn't know her family, nor did he know just why she wanted to avoid them like the plague. Then again, it wasn't his place to know. She had just wanted to keep him away from that side of her, and yet it had come to drag Shinji deeper into her tangled web of suffering. Sighing for a moment, inhaling in an attempt to calm herself, she said, her face beet red, "We need to figure out how we can do this."  
+"别用那套说辞来对付我，你这个被驯化的蠢男人！" 明日香厉声喝道，指着她的未婚夫，脸上满是鄙夷。没错，他那脆弱的脊梁这次倒是挺得笔直，但这还不足以说服明日香她是在无理取闹。他不了解她的家庭，也不知道她为何像躲避瘟疫一样避开他们。再说了，他也没必要知道。她只是想让他远离自己的那一面，然而事与愿违，这反而让真嗣更深地陷入了她痛苦的纠葛之中。她叹了口气，深吸一口气试图平复心情，脸涨得通红，说道："我们需要想个办法来解决这件事。"
+
+"When are we going over there, again?"  
+"我们什么时候再去那边？"
+
+#
+
+"When was the last time you came over here?"  
+"你上次是什么时候来这儿的？"
+
+"Too long, Kate," Asuka had said in a falsely sweet sounding voice, speaking real, fluent German for the first time in months. She was surprised to hear a slight Japanese accent in her tone. She had been away from her motherland for too long, and yet, at the same time, was hesitant to go back there for years in fear she'd have to speak to her parents again.  
+"太长了，凯特，" 明日香用一种假甜的声音说道，几个月来第一次流利地说起了真正的德语。她惊讶地发现自己语调中带有一丝日本口音。她离开祖国太久了，然而与此同时，又因多年害怕不得不再次与父母交谈而犹豫是否回去。
+
+"Well, I hear you have a fiancé," her sister Kate had replied in an inquisitive tone. Her sister wasn't like Asuka. As opposed to her, Kate lacked the fourth of Japanese blood her mother had given her. All she had was the Langley blood, but not the Sohryu blood. That's what made her different, made her an alien.  
+"嗯，我听说你有个未婚夫，" 她的姐姐凯特用一种好奇的语气回答。她的姐姐不像明日香。与她相反，凯特缺乏母亲赋予她的四分之一日本血统。她只有兰格利家族的血统，却没有惣流家的血统。这就是让她与众不同，让她成为一个异类的原因。
+
+"Yeah, I've been meaning to tell you, but things have been so hectic I completely forgot," Asuka replied.  
+"是的，我一直想告诉你，但事情太忙乱了，我完全忘记了，" 明日香回答道。
+
+"I can imagine, what with wedding plans and all that. So who is the lucky man. Shinji? Isn't that the name of the Third Child?"  
+"我能想象，毕竟婚礼计划什么的。那么，那位幸运的男士是谁？真嗣？那不是第三适格者的名字吗？"
+
+"Yes." "是的。"
+
+"Wow, I thought you said that guy was an idiot!"  
+"哇，我记得你说过那家伙是个笨蛋！"
+
+"Well, he is. A complete and utter idiot, housebroken, stupid, and just—just—"  
+"嗯，他就是。一个彻头彻尾的傻瓜，驯服了，愚蠢，而且——就是——就是——"
+
+"Aw, it sounds adorable!" Kate had squealed. Asuka had cringed at the sound of her voice. She resented everything about that girl. It wasn't her fault she was her stepmother's daughter, but that didn't mean she'd just accept Kate with open arms or anything. "So when's the wedding?"  
+"啊，听起来好可爱！" 凯特尖叫道。明日香听到她的声音就皱起了眉头。她对那个女孩的一切都感到厌恶。虽然不是她的错，她是继母的女儿，但这并不意味着她会张开双臂欣然接受凯特。"那婚礼是什么时候？"
+
+"What?" "什么？"
+
+"The wedding. When is it?"  
+"婚礼。什么时候举行？"
+
+"Oh, that. Well, we're planning on having it in a few months."  
+"哦，那个啊。我们打算几个月后办。"
+
+"When are you guys planning on having a baby?"  
+"你们打算什么时候要孩子？"
+
+"A little under nine months."  
+"差不多九个月后。"
+
+She did despise slips of the tongue.  
+她确实讨厌口误。
+
+"What was that?" “那是什么？”
+
+"Nothing! Nothing at all," Asuka replied, frantically, "I didn't say anything!"  
+“没什么！一点也没有，”明日香慌忙回答，“我什么都没说！”
+
+"Did you say nine months?"  
+"你说九个月？"
+
+There was no point now. She might as well just bite the bullet. Resenting her sister's inquisitive nature with a wave of fury, damning Shinji for getting her into this situation, she said, in an uncharacteristically high voice, "Uh, well, I said less than nine months."  
+现在说什么都没用了。她索性豁出去算了。带着一股怒气，怨恨姐姐的好奇心，咒骂真嗣把她拖入这种境地，她用异常尖锐的声音说道：“呃，好吧，我说的是不到九个月。”
+
+"What? Tell me everything. Now."  
+"什么？快告诉我一切。现在。"
+
+"Well, you know, stuff happened, and, uh, Kate! Stop giggling!" she snapped, her face filling with a radiant scarlet glow.  
+"哎，你知道的，事情发生了，呃，凯特！别笑了！" 她厉声说道，脸上泛起一片绯红的光彩。
+
+"I can't help it! It's just too rich! You a mother!"  
+"我忍不住！这太有趣了！你居然成了妈妈！"
+
+"Oh shut up!" "哦，闭嘴！"
+
+"So when're you coming over to introduce your fiancé?"  
+"那你什么时候带未婚夫过来介绍给我们认识？"
+
+Asuka had sighed, shaking her head. She had ran a hand through her hair, wondering when a good time would be. She wouldn't have minded coming over on February 30th, or maybe the day after the End of Time. However, she couldn't just say that to her sister. She glanced over at Shinji, considering for a moment to ask him for advice, only to turn away, harshly. That bastard was the reason she was put into this situation; the last thing she wanted was to hear his voice right now. "I don't know. What time's good for you?"  
+明日香叹了口气，摇了摇头。她用手捋了捋头发，思索着何时是合适的时间。她并不介意在 2 月 30 日，或者也许是时间尽头后的第二天过来。然而，她不能就这样告诉她姐姐。她瞥了一眼真嗣，考虑了一会儿是否要向他寻求建议，结果却猛地转过头去。那个混蛋是她陷入这种境地的原因；她现在最不想听到的就是他的声音。“我不知道。你什么时候方便？”
+
+"Hang on a sec. Mom wants to talk to you." Asuka had cringed yet again. Just what she needed, her damn stepmother on the line. Clenching her fists into tight little balls, she had waited until that little brat deposited the phone in her mother's hands, only to count the seconds until that dreaded voice rang through the phone.  
+"稍等一下。妈妈想跟你说话。"明日香再次皱起了眉头。真是她需要的，她那该死的继母在电话那头。她紧握拳头，等待着那个小鬼把电话交给她的母亲，然后开始数秒，直到那个令人畏惧的声音通过电话传来。
+
+"Hello, dear?" At the sound of that voice, the woman had become a girl once more, a girl running through German air, running toward a door beyond which remained a dead corpse hanging from the rafters. She had held the memories at bay as she had focused on the then and there, in Japan, in Tokyo-3, NOT in Germany.  
+"亲爱的，你好吗？" 听到那个声音，女人瞬间变回了女孩，一个在德国天空中奔跑的女孩，朝着一扇门跑去，门后是一具悬挂在横梁上的尸体。她一直将这些记忆拒之门外，专注于当下和那里，在日本，在第三新东京市，而不是在德国。
+
+"Hello, mother!" Asuka had called out in a forced cheery tone, "How are you?"  
+"你好，妈妈！" 明日香用一种刻意欢快的语气喊道，"你还好吗？"
+
+"What's this I hear about you getting married?"  
+"我听说你要结婚了，这是怎么回事？"
+
+She did indeed cut straight to the point. Recovering from her momentary stunned silence, she had replied, with a forced smile on her face and a force girlish laugh in her voice, "Aw, sorry I didn't tell you before. So much has happened lately I've just forgotten to tell you that sort of thing. I hope you can forgive me." Oh how she had just wanted to tell that stupid bitch that she had avoided calling her this whole time. Had it not been for that idiot picking up the phone, she'd still avoid communication with that woman. It wasn't like she was her real mother anyway.  
+她的确直截了当地切入主题。从短暂的震惊沉默中恢复过来，她脸上强挤出笑容，声音里带着刻意的少女般笑声，回答道：“哎呀，对不起，之前没告诉你。最近发生了太多事，我忘了告诉你这些。希望你能原谅我。”哦，她多么想直接告诉那个愚蠢的婊子，她这段时间一直避免给她打电话。如果不是那个白痴接了电话，她还会继续避免与那个女人联系。反正她也不是她的亲生母亲。
+
+"It's quite alright. I suppose I can forgive you, but next time, please tell your family about such major developments, alright?"  
+“没关系。我想我可以原谅你，但下次，请务必告诉你的家人这些重大变化，好吗？”
+
+"Sure, okay." “当然，好的。”
+
+"Such as you going about and making me a grandmother without ever informing me."  
+"比如你四处走动，让我成了祖母，却从未告知我一声。"
+
+Asuka had wanted to shout out that her stepmother could rest assured that she wasn't the baby's grandfather and that Kyoko Sohryu was the legitimate grandmother, but, once again, she held that indignation inside of her chest as she had replied, in a sugary tone, "I'm sorry about that too!"  
+明日香本想大声反驳，告诉她的继母大可放心，她绝不是那孩子的祖父，而绫波零才是合法的祖母，但又一次，她将那份愤慨压在胸中，用甜腻的语气回答：“我也为此感到抱歉！”
+
+"So who is this man, anyway?"  
+"那么，这个男人究竟是谁？"
+
+"Oh, Shinji Ikari." "哦，碇真嗣。"
+
+"Oh, you mean that pilot you worked with?"  
+"哦，你是说那个你合作过的驾驶员？"
+
+"The same." "正是他。"
+
+"We're all very proud of what you did as a child, you know. I think all of Germany would rejoice at your wedding." Truthfully, judging by how the NERV building was damaged in Japan, she seriously doubted that any nation would rejoice about the union of two small individuals. Clearly her stepmother was trying to play up her pride, an aspect of herself that had deflated gradually over the years. Regardless, it did boost her spirits up slightly, if only for a moment.  
+"我们都非常为你小时候的成就感到骄傲，你知道的。我想整个德国都会为你的婚礼欢欣鼓舞。" 说实话，鉴于日本 NERV 大楼受损的情况，她严重怀疑任何国家会对两个小人物的结合感到高兴。显然，她的继母试图夸大她的自豪感，这是她多年来逐渐消退的一面。尽管如此，这确实让她的心情稍微振奋了一些，哪怕只是片刻。
+
+"Oh, I doubt that," Asuka had replied, honestly, "Anyway, it's been great talking to you, but I'm going to have to—"  
+"哦，我对此表示怀疑，" 明日香诚实地回答，"不管怎样，和你聊天很愉快，但我得——"
+
+"When will you be coming over to introduce us to the Third Child?"  
+"你什么时候带第三适格者来见我们？"
+
+The moment she had hoped to avoid. "Oh, uh, I don't know, I have a lot of work to do, so I don't know when I'll be able to get over there."  
+她一直希望避免的那一刻。“哦，呃，我不知道，我有很多工作要做，所以我不确定什么时候能过去。”
+
+"You can arrange something with your superiors, I'm sure. I'm sure they let people off for brief vacations and maternity leave and the like."  
+“你肯定能和你的上司安排一下。我相信他们会允许人们休短暂的假期、产假之类的。”
+
+This was very true. They did let Misato off TWICE for maternity leave, AND took several vacations to spend time with her children, and she had a higher position than either of them did. Fuyutsuki would have no problem giving them time off to visit Germany, much to her dismay. "I'll need to ask." No doubt she'd forget to ask Fuyutsuki and end up replying to her mother that her boss was a jerk that refused to let her take time off. That sounded like a good alibi, until her stepmother spoke.  
+这确实没错。他们确实让美里休了两次产假，并且还多次休假去陪伴她的孩子，而她的职位比他们俩都高。冬月会毫不犹豫地给他们放假去德国，这让她非常沮丧。“我需要问问。”毫无疑问，她会忘记问冬月，最终回复她母亲说她的老板是个拒绝让她请假的混蛋。这听起来像是个不错的借口，直到她的继母开口说话。
+
+"Don't worry. I'll just have your father make a call for you."  
+"别担心。我让令尊打个电话帮你搞定。"
+
+Damn it! That bitch thought of everything, didn't she? "What? Oh, I don't think you'd need to go to all that trouble!"  
+该死！那个婊子真是面面俱到，不是吗？“什么？哦，我觉得你没必要费那么大劲！”
+
+"Oh, no trouble at all! He was going to need to have a telephone conference with your Commander Fuyutsuki regardless in order to settle an affair regarding a German railway system. I'm sure if he asked your boss he'd be delighted to help."  
+"哦，一点儿也不麻烦！他本来就需要和你们的指挥官冬月进行一次电话会议，商讨关于德国铁路系统的事务。我相信如果他向你的上司提出请求，他一定会乐意帮忙的。"
+
+"Oh, really, you don't need to go to that much trouble—"  
+"哦，真的，你不必这么麻烦——"
+
+"No trouble at all! Shall I request that you're available for, say, two weeks from today so you'd be able to get your affairs in order?"  
+"一点儿也不麻烦！我是否可以请求您从今天起的两周内都有空，这样您就能安排好您的事务了？"
+
+"Oh, that should be fine," Asuka resigned.  
+"哦，那应该没问题，"明日香无奈地答应道。
+
+"Good. I'll see you in a bit, then. Gute Nacht!"  
+"好。那我一会儿见。晚安！"
+
+#
+
+"Two weeks, huh?" Shinji replied, in stunned silence, "That's a little quick."  
+"两周，是吗？" 真嗣震惊地沉默了一会儿，"这有点快。"
+
+"She'll hold us to it, you know. There's no way I can avoid it," Asuka sighed in resignation.  
+"她会坚持的，你知道的。我没法逃避，" 明日香叹息着接受了现实。"
+
+"It can't be that bad, can it?" Shinji replied, "I mean, you knew this was going to happen sooner or later, so you might as well go ahead and reach out for it." Shinji had never heard the German mention much about her family, so this reaction she had didn't exactly surprise her. The sister hadn't sounded mean on the phone, and the conversation she had with her mother—er, stepmother—didn't sound too unpleasant, so why was it so difficult for her to actually muster the courage to see them? It just didn't add up. Maybe it had something to do with her birthmother.  
+"应该没那么糟糕吧，不是吗？" 真嗣回答道，"我是说，你知道这迟早会发生，所以还不如干脆去面对它。" 真嗣从未听这位德国女孩过多提及她的家庭，所以她的这种反应并不让她感到特别惊讶。电话里她的姐姐听起来并不刻薄，而她和母亲——呃，继母——的对话也不算太不愉快，那为什么她就是难以鼓起勇气去见她们呢？这说不通。也许这与她的生母有关。
+
+"What do you think I should do now?" Asuka asked Shinji in a desperate tone.  
+"你觉得我现在该怎么办？" 明日香用一种近乎绝望的语气问真嗣。
+
+#
+
+"What do you think I should do now?" Asuka had cried out as fists had beat against the door of the NERV building.  
+"你觉得我现在该怎么办？" 明日香哭喊着，拳头重重地敲打在 NERV 大楼的门上。
+
+"I don't know! Grab something! Anything! Barricade the door!" Shinji had shrieked, grabbing every sort of reinforcement he could grab his hands on as he jammed it against the locked door, be it metal bars, pieces of wood, or even dead bodies that had begun to pile up along the ground, the dead bodies riddled with bullets, bodies of comrades who they had allied themselves with along their escape from the concentration camp. It was at moments that these that he was glad that their now dead comrades had the foresight, and the bravery, to sacrifice their lives in order to disable their weapons.  
+“我不知道！抓点什么！什么都行！堵住门！” 真嗣尖叫着，抓起他能抓到的所有加固物，无论是金属棒、木块，甚至是开始堆积在地上的尸体，那些尸体布满了弹孔，是他们从集中营逃亡途中结盟的战友。在这些时刻，他庆幸那些已故的战友有先见之明和勇气，牺牲自己的生命来破坏敌人的武器。
+
+Shinji glanced over his shoulder, seeing bloody masses of bodies, some still alive, most dying, many younger than he was. Their wide, terrified eyes staring at the banging beyond the door, a pulsating rhythmic slamming that was almost in synch with Shinji's own heartbeat, powerfully beating against the interior of his ribcage as he reinforced the door, praying that they'd live, praying that he'd be able to build up the walls between him and the enemy long enough for them to escape.  
+真嗣回头瞥了一眼，看到血肉模糊的尸体群，有些还活着，大多数奄奄一息，其中许多比他还年轻。他们惊恐的大眼睛盯着门外的撞击声，那有节奏的砰砰声几乎与真嗣自己的心跳同步，有力地撞击着他的胸腔，他在加固门的同时祈祷他们能活下来，祈祷他能建立起足够坚固的屏障，让他们有足够的时间逃脱。
+
+Was this any different from the battles against the Angels? Was it? They were relentless, maybe even worse, maybe just as dangerous. He needed to face his fears and save himself. Otherwise, what did he really learn after all that horror three years earlier in Third Impact?  
+这与对抗使徒的战斗有何不同？是吗？它们无情，或许更甚，或许同样危险。他需要直面恐惧，拯救自己。否则，经历了三年前第三次冲击的恐怖后，他究竟学到了什么？
+
+And over his gasping for air, his terrified attempts to live, he could hear the once proud German whispering to herself, in terrified, harsh tones: "I don't want to die. I don't want to die. I don't want to die. I don't want to die. I don't want to die. I don't want to die. I don't want to die. I don't want to die. I don't want to die. I don't want to die. I don't want to die. I don't want to die. I don't want to die. I don't want to die. I don't want to die. I don't want to die. I don't want to die. I don't want to die."  
+在他喘息求生、惊恐挣扎之际，他听到那位曾经骄傲的德国人用恐惧而严厉的语气自言自语：“我不想死。我不想死。我不想死。我不想死。我不想死。我不想死。我不想死。我不想死。我不想死。我不想死。我不想死。我不想死。我不想死。我不想死。我不想死。我不想死。我不想死。我不想死。”
+
+They weren't going to die.  
+他们不会死。
+
+Not like this. 不是这样的。
+
+They were closed off in a tiny little room, filthy, bloodstained, and defenseless. There was no hope for survival if those doors gave. They had to make sure it was impossible for the enemy to get in, for those monsters to penetrate their sanctuary. The militia was just a new government that had hoped to regain power in the collapsed regime. Like most of the horrible, destructive groups, it had united under a relatively peaceful philosophy: eliminating evil. A good idea in theory, except the leader, a Jewish zealot, had a deep seated grudge against the Germans because of the Holocaust. Once again, in and of itself, not a terrible opinion. The Nazis had done horrible things to the Jews. However, like all believes, no matter how pure, when pushed to its extreme, it became rotten. The zealot had decided that all Germans were secretly Nazis, and that, in order to avoid a second Holocaust of Jews, he needed to create a Holocaust of Germans. They created dozens of concentration camps just like the Nazis had, all for the same intention: tormenting and killing their enemies.  
+他们被关在一个狭小肮脏的房间里，血迹斑斑，毫无防备。如果那些门被攻破，生存的希望将荡然无存。他们必须确保敌人无法闯入，那些怪物无法侵犯他们的避难所。民兵只是一个新成立的政府，希望在崩溃的政权中重掌权力。像大多数可怕的破坏性团体一样，它在一个相对和平的理念下团结起来：消灭邪恶。理论上是个好主意，只是领导者，一个犹太狂热分子，因大屠杀而对德国人怀有深仇大恨。这本身并不是一个糟糕的观点。纳粹对犹太人犯下了可怕的罪行。然而，像所有信仰一样，无论多么纯洁，一旦推向极端，就会腐化。这位狂热分子认定所有德国人都是秘密纳粹分子，为了防止犹太人再次遭受大屠杀，他需要制造一场针对德国人的大屠杀。他们建立了数十个集中营，就像纳粹所做的那样，目的都是为了折磨和消灭他们的敌人。
+
+Shinji became involved when Asuka had been captured, and he along with her for being a "German lover."  
+真嗣之所以卷入其中，是因为明日香被捕，而他则因为被视为“德国人的情人”而一同被抓。
+
+They had been sent out by the then unofficial NERV to help with the peace effort, and now they were dragged into a damn war! He just wanted the banging to stop. He wished his mother was there, that Ayanami was there, to save them, to maybe salvage them from the wreckage. But he couldn't wish for miracles now. He had received his fair share of miracles already. There was no time for praying; the time to act was nigh.  
+他们曾被当时的非官方组织 NERV 派遣，协助和平事业，如今却被卷入了一场该死的战争！他只希望那震耳欲聋的声响能停止。他多么希望母亲在那里，绫波也在那里，来拯救他们，或许还能从废墟中挽救他们。但他现在不能奢望奇迹。他已经得到了足够多的奇迹。没有时间祈祷了；行动的时刻即将到来。
+
+And then he heard it: gunshots. Gunshot after gunshot echoed through the air, and the sounds of bodies hitting the floor rang even through the thick defenses. Regardless of the gunfire and screams of zealots, Shinji didn't dare lower his guard. There was always a chance the conflict outside would be resolved. He knew the zealots couldn't be the ones shooting, as they didn't have anymore firearms to use. Surely it was a rival militia, perhaps worse than the last. He wouldn't give in now. Maybe, with a bit of lucky, they'd leave the facility alone and let them make a safe escape. Just maybe the zealots would forget about the escapees and let them return to Tokyo-3 safely. Even though it wasn't stable yet, it was a hell of a lot better than Europe right now! Even America would be safe, but Europe was a hell hole at the present time that no one should have the misfortune to dwell in.  
+然后他听到了：枪声。一声接一声的枪响在空气中回荡，厚重的防御也挡不住身体倒地的声音。尽管枪声和狂热者的尖叫此起彼伏，真嗣丝毫不敢放松警惕。外面冲突总有解决的可能。他知道那些狂热者不可能在开枪，因为他们已经没有更多武器可用。肯定是另一支敌对民兵，或许比上一次更糟糕。他现在绝不会屈服。也许，只要运气好一点，他们会放过这个设施，让他们安全逃脱。也许狂热者会忘记逃亡者，让他们安全返回第三新东京市。尽管那里还不稳定，但总比现在的欧洲好得多！即使是美国也会安全，但欧洲现在是个地狱，谁都不该有幸生活在那里。
+
+And then there was silence. For a moment, Shinji didn't breathe. For five moments, there was silence. And, after the sixth moment, Shinji drew breath. Turning to his comrades, he said, in a harsh tone, "I think we made it."  
+然后是一片寂静。有那么一刻，真嗣屏住了呼吸。五秒钟，一片寂静。第六秒过后，真嗣深吸了一口气。转向他的同伴，他用严厉的语气说：“我想我们成功了。”
+
+#
+
+"When was the last time you were even in Germany?" Shinji asked, curiously.  
+“你上次去德国是什么时候？”真嗣好奇地问。
+
+"Well, in the Concentration Camp," Asuka replied.  
+"嗯，在集中营里，" 明日香回答道。
+
+"Yeah, but that militia is gone now, so I know that's not what's bothering you," Shinji replied.  
+"是啊，但那支民兵现在已经不在了，所以我知道这不是困扰你的原因，" 真嗣回答。
+
+"Yeah, because crazy people trying to kill me is something you just forget after a few days."  
+"是啊，因为那些试图杀我的疯子，你不可能几天后就忘得一干二净。"
+
+"Asuka." “明日香。”
+
+"Alright, I just don't want to see my parents. Is that so horrible? You didn't want to see your father after all!"  
+“好吧，我只是不想见我父母。这有那么可怕吗？你不是也不想见你父亲吗！”
+
+Once again, the image of himself in the future dominating his child like his own father had dominated him flashed in Shinji's mind. He suppressed the image, only to focus on his fiancé once more, a slightly anxious expression on her face. "What's wrong? You can talk to me about it if it really bothers you."  
+又一次，未来自己像父亲曾经支配他那样支配孩子的画面在真嗣脑海中闪现。他压制住这个画面，重新将注意力集中在未婚妻身上，她脸上带着一丝焦虑。“怎么了？如果真的困扰你，可以和我谈谈。”
+
+"It's nothing." "没什么。"
+
+"No it's not." "不，不是的。"
+
+"Really, don't worry about—"  
+"真的，别担心——"
+
+"Here you are just running away from your problems again. I thought you outgrew that, you idiot."  
+"你又是在逃避问题。我以为你已经改掉了，你这个笨蛋。"
+
+Frowning again, Shinji replied, distantly, "I'm just afraid I'll end up being just as good of a father as mine was."  
+再次皱起眉头，真嗣遥远地回答道：“我只是害怕我会成为一个像我父亲那样糟糕的父亲。”
+
+"How so?" "此话怎讲？"
+
+"Well, I know I won't be nearly as bad of a dad as he was, I just can't shake the feeling that I'll somehow hurt my child, or maybe he'll hurt me alternatively because I'm afraid of hurting him. I don't know what to think, but I'm just afraid something bad will happen because I wouldn't know what to do."  
+"嗯，我知道我不会像他那样糟糕地成为一个父亲，但我就是无法摆脱那种感觉，觉得我会在某种程度上伤害我的孩子，或者也许他会因为我害怕伤害他而反过来伤害我。我不知道该怎么想，我只是害怕会发生什么坏事，因为我不知道该怎么办。"
+
+The redhead examined him with a raised eyebrow before drawing nearer. She lazily flicked him in the forehead, at which she snapped, "Dummkopf! You're stupider than I thought if that's what you're worried about being like that idiot."  
+红发女子扬起眉毛打量着他，然后靠近了一些。她懒洋洋地弹了一下他的额头，随即厉声说道：“笨蛋！如果你担心变成那个白痴那样，那你可真是比我想的还要蠢。”
+
+"How is it stupid? It's a very legitimate fear!"  
+“这怎么蠢了？这是一个非常合理的担忧！”
+
+"Well, tell me this: are you going to emotionally abandon your kid?"  
+"那么，告诉我：你会不会在情感上抛弃你的孩子？"
+
+"No."
+
+"Are you going to make him pilot a gigantic robot?"  
+"你会让他驾驶巨大的机器人吗？"
+
+"I don't think so." "我不这么认为。"
+
+"Are you going to focus on a creepy blue haired girl more than him?"  
+"你打算把注意力更多地放在那个蓝头发的诡异女孩身上，而不是他吗？"
+
+"Not likely." "不太可能。"
+
+"Then you'll be fine. What're you worried about?" Asuka replied, sitting back on her bed, exhaling slowly as she muttered to herself, "But my mother, on the other hand…"  
+"那你就不用担心了。你在担心什么呢？" 明日香回答道，坐回自己的床上，缓缓呼出一口气，喃喃自语，"但另一方面，我的母亲……"
+
+"What was that?" "那是什么？"
+
+"Nothing. I was just thinking about my mother—er, I mean, stepmother."  
+"没什么。我只是在想我的母亲——呃，我是说，继母。"
+
+"Oh, okay," Shinji replied, convinced, "I'm guessing you don't get along with her?"  
+"哦，好吧，" 真嗣回答，信服了，"我猜你跟她相处得不太好？"
+
+"Yeah, I suppose." "是啊，我想是的。"
+
+"Do you want to talk about it?" Shinji asked.  
+"你想谈谈这件事吗？" 真嗣问道。"
+
+Smiling slyly, Asuka replied, "Dummkopf! If I started telling you everything wrong with me, then I'd really realize I'm in a pathetic state."  
+阿斯卡狡黠地笑了笑，回答道："笨蛋！如果我开始告诉你我所有的错处，那我才会真正意识到自己有多可悲。"
+
+"So I can tell you things, but not the other way around?"  
+"所以我可以告诉你事情，反过来就不行？"
+
+"Basically. Now go to bed. We have two weeks before we go to Hell."  
+"基本上是这样。现在去睡觉吧。我们还有两周就要去地狱了。"
+
+---

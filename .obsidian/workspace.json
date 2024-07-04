@@ -18,8 +18,21 @@
                 "source": false
               }
             }
+          },
+          {
+            "id": "26cbf1e27576ce1e",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "DeadlyPole - 🍋Shinji and Asuka.md",
+                "mode": "source",
+                "source": false
+              }
+            }
           }
-        ]
+        ],
+        "currentTab": 1
       },
       {
         "id": "b538de1d166bf94c",
@@ -103,7 +116,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "Da Games Elite - The Little Angel.md",
+                "file": "DeadlyPole - 🍋Shinji and Asuka.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -120,7 +133,7 @@
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "Da Games Elite - The Little Angel.md",
+                "file": "DeadlyPole - 🍋Shinji and Asuka.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               }
@@ -143,7 +156,7 @@
             "state": {
               "type": "outline",
               "state": {
-                "file": "Da Games Elite - The Little Angel.md"
+                "file": "DeadlyPole - 🍋Shinji and Asuka.md"
               }
             }
           }
@@ -164,10 +177,10 @@
       "workspaces:管理工作区布局": false
     }
   },
-  "active": "f2f8ef3b50f5024f",
+  "active": "26cbf1e27576ce1e",
   "lastOpenFiles": [
-    "Marco Strange - Underneath.md",
     "Da Games Elite - The Little Angel.md",
+    "Marco Strange - Underneath.md",
     "Marshall Banana - Asuka Strikes.md",
     "Shizumaru - In other words.md",
     "Shizumaru - I Mustn't Run Away.md",
