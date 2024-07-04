@@ -138,8 +138,7 @@ Looking once more at her pale skin and her sleeping face, Shinji turned away fro
 最后一件事；我下周要期末考试，所以第一章要到四月的第一个星期才能发布。（那时我有春假）。干杯！**
 
 ___
-### Chapter 2
-Chapter 2: New Beginnings  
+### Chapter 2: New Beginnings  
 第二章：新的开始  
 
 **ANNNNNNNND I'M BACK. Wow Jesus how long has it been...four months I think? Anyway yeah sorry guys about that long bout of nothing. I just had so much stuff going on during that last term of school that this was put on the back burner for a long time. But I'm back to updating this (for a while at least, things might get slow again in September). So again, thanks to everybody that waited patiently for this and I apologize for the wait.  
@@ -283,3 +282,4 @@ Finally after about the seventh car he had been through, he found a lighter on t
 
 Sliding back down the slope to the beach below, he jogged to the fire pit and kneeled down next to it. Setting the brush on top of the wood, he placed the lighter in the brush and lit it. Grabbing some of the smaller logs, he placed them gently on top of the brush, letting the logs catch fire. Shifting the logs that were now lit around, he proceeded to gently stroke the fire, catching the sparks on the other pieces of wood. Tokyo-3's nights could be particularly brutal at times, and Shinji wanted not only himself, but the girl to be warm.  
 他滑下斜坡回到海滩，小跑向篝火坑，跪在旁边。将树枝放在木头上，他把打火机放在树枝中点燃。抓起一些小木柴，轻轻放在树枝上，让木柴着火。移动已经点燃的木柴，他开始温柔地拨弄火焰，让火花点燃其他木块。第三新东京市的夜晚有时特别严酷，真嗣不仅希望自己，也希望那个女孩能感到温暖。
+
