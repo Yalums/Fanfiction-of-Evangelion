@@ -423,3 +423,245 @@ Shinji knew he had experienced this once before. This sounded so oddly familiar,
 Oh.
 
 ---
+**Part 3 第三部分**
+
+"Hey! Get back here! Stop crying!"  
+嘿！回来！别哭了！
+
+"You know, it's strange seeing you as a mom, Hikari."  
+"你知道吗，看到你当妈妈的样子真奇怪，光。"
+
+"You really think so?" "你真的这么觉得？"
+
+It was a shock to see her freckled, brown haired friend as anything other than the class representative she had first met in middle school, a girl who took charge of her classes with her loud, occasionally militaristic orders. Still, Hikari Suzuhara, as Asuka still had to remember was now her full name, looked almost a little comical after a few weeks of being a mom. She was clinging to her little boy, whom Hikari called Shinji, but Asuka called Shin-chan, who was putting up quite a fit. They had changed his diaper, but it looked like he was more interested in something else, specifically the fluid contents of Hikari's plumped breasts.  
+看到她这位有着雀斑、棕色头发的朋友，不再是中学时初次见到的那个班级代表，那个以响亮、偶尔带有军事化口吻发号施令的女孩，确实让人震惊。不过，尽管须原光现在已经是她的全名，须原光，但当了几个星期的妈妈后，她看起来几乎有点滑稽。她紧紧抱着她的小男孩，光称他为真嗣，而明日香则叫他真酱，小家伙正在闹脾气。他们刚给他换了尿布，但他似乎对别的东西更感兴趣，特别是光那丰满乳房中的乳汁。
+
+Asuka had to admit that, for a woman who had only given birth a couple weeks ago, she sure had adjusted well to the new situations related to motherhood. Sure, she hadn't lost all the baby fat that she had accumulated while bringing her bouncing rugrat into the world, but she had lost a good deal of it, enough to the point where she looked much like her old self again. With a smile on her face, she pressed her child's lips against her exposed breast, and breastfed him. It was only after a few seconds that she realized that Asuka was in the room with her, watching this somewhat personal moment. Blushing, she said, "Sorry about this."  
+"明日香不得不承认，对于一个仅仅几周前才分娩的女人来说，她确实很好地适应了与母亲身份相关的新情况。当然，她还没有完全减掉怀孕期间积累的婴儿肥，但她已经减掉了不少，足以让她看起来又像过去的自己了。她面带微笑，将孩子的嘴唇贴在她裸露的乳房上，开始哺乳。几秒钟后，她才意识到明日香在房间里，正看着这个略显私密的时刻。她脸红了，说道：“抱歉让你看到这个。””
+
+"Hey, don't worry about it. It's natural," she shrugged, "Nothin' awkward about feeding your baby."  
+"“嘿，别在意。这是很自然的，”她耸耸肩，“喂宝宝没什么尴尬的。””
+
+"Thanks. Where's Shinji?"  
+"“谢谢。真嗣去哪儿了？””
+
+"He's sucking on your—" "他在吸你的——"
+
+"Not that one!" "不是那个！"
+
+"Oh! You mean the idiot! Well, he's at work right now," Asuka replied, scratching her cheek absentmindedly. The idiot. The words seemed to ring off her tongue, almost in an affectionate sort of way, as though she were beating him with a smile on her face. It was strange. Sure, she could be abusive, but he never did leave her, did he? He never did abandon her. Sure, in the past they had their struggles, but now, everything had balanced itself out just about right, hadn't it?  
+"哦！你是说那个笨蛋！嗯，他现在在工作，" 明日香回答道，心不在焉地挠了挠脸颊。笨蛋。这个词似乎从她嘴里蹦出来，带着一种近乎宠溺的意味，仿佛她是在笑着揍他。这很奇怪。当然，她可能会很刻薄，但他从未离开过她，不是吗？他从未抛弃过她。没错，过去他们有过争执，但现在，一切都恰到好处地平衡了，不是吗？
+
+"You really like him, don't you?" Hikari replied, smiling.  
+"你真的很喜欢他，对吧？" 光笑着回答。
+
+"He's just an idiot," Asuka restated.  
+"他就是个白痴，" 明日香重申道。
+
+"Yeah, but he cooks, helps clean around the house while you just laze there eating potato chips," Hikari pointed out.  
+"是啊，但他会做饭，还会帮忙打扫家里，而你只是懒洋洋地躺在那里吃薯片，" 光指出。
+
+"Blunt today, are we?" "今天这么迟钝，是吧？"
+
+Hikari giggled again, blushing deep red. "Sorry."  
+光再次咯咯笑起来，脸红得深。“对不起。”
+
+"Don't worry about it. Hey, where's that other stooge, Toji?" Asuka hadn't seen him once since she set foot in the Suzuhara residence. It was strange. It wasn't uncommon for Toji to spend time with Shinji while she was here, but at least she saw him. Now it was as though he had been a ghost that had recently been exorcised.  
+"别担心。嘿，那个跟班户次去哪儿了？" 明日香自从踏进铃原家就没见过他一次。这很奇怪。户次和真嗣一起度过时间并不罕见，但至少她能看到他。现在他好像是个刚被驱走的鬼魂。
+
+"Well, he's out getting stuff for the baby, or at least that's what he said the moment he heard you were coming," Hikari replied.  
+"嗯，他出去给宝宝买东西了，或者至少他是这么说的，就在听说你要来的时候，"光回答道。
+
+"Dummkopf," Asuka murmured, resentfully. That idiot just took off an ran just because of her arrival? What an asshole! He was all fun and games with Shinji, but the moment Shinji's soon-to-be wife arrived, he had to get out of there! Figures. What an asshole. Sure, she wasn't always the sweetest person to him, but still, did he have to prove to her that he was an asshole?  
+"笨蛋，"明日香不满地嘟囔着。那个白痴就因为她的到来而跑掉了？真是个混蛋！他和真嗣玩得挺开心的，但真嗣的未婚妻一出现，他就得溜之大吉！真是的。真是个混蛋。没错，她对他并不总是那么友善，但他有必要向她证明自己是个混蛋吗？
+
+"Well, in all fairness, you do have a tendency to yell at him," Hikari said.  
+"好吧，公平地说，你确实有对他大吼大叫的倾向，"光说。
+
+"Well, yeah, but that's only when he's being a complete and utter moron."  
+"嗯，是的，但那只是当他完全彻底像个白痴的时候。"
+
+"But it's half of the time you're with us?"  
+"但那几乎是你和我们在一起的一半时间？"
+
+"Er ist ein Idiot!" Asuka replied, bluntly.  
+"他就是个白痴！" 明日香直截了当地回答道。
+
+"Come again?" “再说一遍？”
+
+"He's an idiot!" she replied, a laugh on her tongue, but, midway through her giggle, she clasped her hand on her mouth as she struggled to hold back a sudden wave of nausea, a wave that had hit her without warning, without any previous signs, without any sort of ANYTHING preceding it. She darted to the bathroom, where she knelt down by the toilet seat as she threw it open, lowering her mouth to the open water, waiting for vomit to spill from her mouth.  
+“他是个傻瓜！”她笑着回答，但笑声中段，她突然用手捂住嘴，努力抑制住一阵突如其来的恶心感，这感觉毫无预警，没有任何先兆，没有任何前兆。她冲进浴室，跪在马桶前，打开盖子，将头靠近水面，等待着呕吐物的涌出。
+
+Thankfully, after waiting for a few minutes, the sudden urge to vomit faded away, but the nausea hadn't.  
+幸运的是，几分钟后，突如其来的呕吐冲动消退了，但恶心感并未消失。
+
+"Hey! Are you alright?" Hikari asked, darting into the room after placing her baby safely into his crib.  
+"嘿！你还好吗？" 光问道，将宝宝安全地放进婴儿床后快步走进房间。
+
+"Yeah, just felt a little sick all of a sudden," she replied, holding a hand on her lower belly as she rose to her feet.  
+"嗯，只是突然感觉有点不舒服，" 她回答，一手按在腹部下方，缓缓站起身来。
+
+"Are you sick?" "你生病了吗？"
+
+"A little, I think. I'm not sure. This has been happening for the last few days, since last Monday, so I guess I'm just having a stomach virus or something like that, you know? It's nothing to be too worried about. Just a little bit of medicine and—"  
+"我觉得有点儿。我不确定。这种情况已经持续了几天，从上周一开始，所以我猜我只是得了胃病毒之类的，你知道吗？没什么好太担心的。吃点药就好了——"
+
+"Uh, are you sure about that?" Hikari asked.  
+"呃，你确定吗？" 光问道。
+
+"What do you mean?" "你什么意思？"
+
+"You don't get sick too often," Hikari replied.  
+"你不太常生病，" 光回答道。
+
+"Yeah, so this is just one of those infrequent times I'm actually feeling under the—"  
+"是啊，所以这只是那些不常见的时刻之一，我其实感觉不太舒服——"
+
+"When was the last time you had your period?"  
+"你上次来月经是什么时候？"
+
+"Well—wait a second! Just what're you implying by that!?" snapped Asuka, staring dumbfounded at her friend, her eyes wavering in their sockets.  
+"哎——等等！你这话是什么意思！？" 明日香厉声说道，目瞪口呆地盯着她的朋友，眼珠在眼眶里摇摆不定。
+
+"Well, you might be pregnant for all we know," Hikari replied, "I mean, I felt really nauseous, and if you've been feeling nauseous since last Monday, and today's Sunday, that means you've been feeling this way for a week!"  
+"嗯，我们也不知道你是不是怀孕了，" 光子回答道，"我是说，我当时感觉非常恶心，如果你从上周一就开始感到恶心，而今天是周日，那就意味着你已经这样持续一周了！"
+
+"So?"
+
+"That's a little more than a few days," Hikari replied, "Look, maybe I'm just jumping to conclusions, but have you and Shinji, er, well, have you—" Asuka's face, which had turned a darker shade of red than the hair on her head, answered Hikari's question for her. "You know, I have a pregnancy test think left over from when I was pregnant. I should probably get that right now."  
+"那可不止几天了，" 光子回答道，"听着，也许我只是有点草率下结论，但你和真嗣，呃，嗯，你们有没有——" 明日香的脸，已经红得比她的头发还要深，替她回答了光子的问题。"你知道，我怀孕时还剩了一个验孕棒。我现在应该去拿那个。"
+
+"I'm not pregnant! I'd know if I was pregnant!"  
+"我没有怀孕！如果怀孕了我会知道的！"
+
+Shinji was sitting behind his desk, staring up at the ceiling as he always did during these slow days. The fact that he was a former pilot of the Evangelion seemed to be enough reason for him to be given a job at NERV, but the fact that he had been assigned as one of the heads of the newly instated NERV seemed a little extreme. He wasn't a soldier, didn't know anything about the new society, which had focused itself on militaristic defense and the aid of nations throughout the world who were recovering after the horrors of Third Impact. His job essentially meant working out peace treaties between nations NERV seemed to like, proposing to his superiors to veto other peace treaties in order to eliminate cruel and abusive governments, and, of course, searching for souls returning from the sea of LCL, which had shrunk in the years following Third Impact. It had shrunk from a massive planet-sized ocean to a sea located near the Tigris and Eurphrates Rivers, where, according to the numerous religious cults that had sprang up following the horrors of Instrumentality, that the Abrahamic Bible designated that the Garden of Eden existed.  
+真嗣坐在办公桌后，像往常一样盯着天花板发呆。他曾是 EVA 驾驶员，这似乎足以让他获得在 NERV 工作的资格，但被任命为新成立的 NERV 高层之一，似乎有些过头了。他不是军人，对新社会一无所知，这个社会已经转向军事防御，并帮助世界各地从第三次冲击的恐怖中恢复过来的国家。他的工作基本上是协调 NERV 喜欢的国家之间的和平条约，向他的上级提议否决其他和平条约以消除残酷和虐待的政府，当然，还要寻找从 LCL 之海归来的灵魂，这个海在第三次冲击后的几年里已经缩小了。它从覆盖整个行星的巨大海洋缩小到位于底格里斯河和幼发拉底河附近的一个海，根据第三次冲击后涌现的众多宗教团体所说，那里是圣经中指定的伊甸园所在地。
+
+Garden of Eden? What a joke.  
+伊甸园？真是笑话。
+
+The phone at his desk rang. As he answered it, he expected to hear his superiors on the other line. "Hello, this is Shinji Ikari speaking." He expected some order, some new job for him to handle. However, he DIDN'T expect a high pitched female voice to shout at him from the top of her lungs, a voice so loud that she had to draw the phone at least an arm's length away from his ear to actually hear properly.  
+他桌上的电话响了。他接起电话，以为会听到上级的声音。“你好，我是碇真嗣。”他以为会接到什么命令，有什么新任务要处理。然而，他万万没想到会是一个尖锐的女性声音从电话那头尖叫出来，声音大到他不得不把电话至少拿开一臂之遥才能听清楚。
+
+"You stupid idiot! How could you?! You stupid, stupid, jerk! You disgusting pervert, I should've never trusted you for a second! Schwein! Dummkopf! Bastard! Seducer! Schmutz der Erde!"  
+“你这个大笨蛋！你怎么能这样？！你这个蠢货，蠢货，混蛋！你这个恶心的变态，我真不该相信你哪怕一秒钟！猪！傻瓜！混账！诱骗者！地球上的污垢！”
+
+"Wait, just hold on a second Asuka—!"  
+"等等，先别急，明日香——！"
+
+"Don't you just tell me to hold on a second, you stupid idiot!"  
+"别跟我说什么等一下，你这个大笨蛋！"
+
+"Just what're you yelling about?"  
+"你到底在嚷嚷什么？"
+
+"Oh! Don't act like you don't know you idiot!"  
+"哦！别装作你不知道，你这个白痴！"
+
+"I don't know! You just started yelling at me and—" Shinji was interrupted when the door opened. In walked the elderly Commander Fuyutsuki, a man who had miraculously managed to keep his job, no, be promoted to head of NERV following the controversy NERV received following Third Impact.  
+""我不知道！你突然对我大吼大叫，然后——"" 真嗣的话被开门声打断了。走进来的是年迈的指挥官冬月，一个在第三次冲击引发的争议后奇迹般保住职位，甚至被提拔为 NERV 负责人的男人。
+
+"Ikari-san, we have—" "碇君，我们有——"
+
+"Don't you just play stupid and act like the innocent little oaf everyone thinks you are! Schwein!"  
+"别装傻充愣，表现得像大家以为的那个无辜小傻瓜一样！猪头！"
+
+"On second thought, I'll leave you two alone." Fuyutsuki backed out of the room, closed the door over, and, if Shinji's ears didn't deceive him, sprinted as far away from the room as possible.  
+"再一想，我还是让你们俩单独待着吧。" 冬月退出了房间，关上门，而且，如果真嗣的耳朵没听错的话，他飞快地跑得离房间越远越好。
+
+Why did he have to leave him alone with this insanity?  
+为什么他非得把他一个人留在这疯狂之中？
+
+"But what's going on? I don't understand what's happening."  
+"但这是怎么回事？我不明白发生了什么。"
+
+On the other side of the line, Shinji could hear a second voice speak. He barely made out, "Asuka, let me speak to him for a second. You're being hysterical!" only to have the rest of Hikari Suzuhara's interruption blocked out by more of his fiancé's shouting.  
+电话那头，真嗣能听到另一个声音说话。他勉强听出，"明日香，让我跟他说几句。你太激动了！"但随后铃原光希的打断被他未婚妻更多的喊叫声淹没了。
+
+"You made me—you made me—"  
+"你让我——你让我——"
+
+"Made you what?" "让你什么？"
+
+"Pregnant!" "怀孕了！"
+
+Shinji stared at the phone for a moment or two, confused. Pregnant? Oh, wasn't that supposed to be a joyous event, filled with smiling and laughter, with a deeper connection of love and passion, without shouting and screaming? Why did everything have to be painful? "Uh, congratulations?"  
+真嗣盯着手机愣了一会儿，感到困惑。怀孕？哦，那不应该是充满欢笑和喜悦，伴随着更深层次的爱与激情，而不是争吵和尖叫吗？为什么一切都如此痛苦？“呃，恭喜？”
+
+"Don't you 'congratulations' me, you jerk! You made me pregnant! You seducing little—"  
+"别跟我说'恭喜'，你这个混蛋！你让我怀孕了！你这个勾引人的小——"
+
+"Seducing? I didn't seduce you!"  
+"勾引？我可没勾引你！"
+
+"Well, what about a few weeks ago when you essentially raped me in your bed? Hmmm?"  
+"那几周前，你在床上几乎强奸了我，这又怎么说？嗯？"
+
+"Raped you? What the hell are you talking about? You went into the bed with no clothing on and we made love!"  
+"强奸你？你到底在说什么鬼话？你一丝不挂地上了床，我们明明是做爱了！"
+
+"Oh, don't use that old blame me routine of yours! You need to accept responsibility for your actions, you jerk!"  
+"哦，别再用你那老一套的怪罪我的伎俩了！你得为自己的行为负责，你这个混蛋！"
+
+"How about you accept responsibilities for once? You went into a bed wearing nothing!"  
+"你怎么不承担一次责任？你可是赤裸裸地上了床！"
+
+"I was too wearing something!"  
+"我确实穿了什么！"
+
+"You were wearing panties and a bra, and were using the same tactics you used when we were kids when you made me kiss you! What was I supposed to think!?"  
+"你只穿了内裤和胸罩，还用了我们小时候你让我亲你时的那套战术！我还能怎么想！？"
+
+"Oh, don't use that old excuse on me again!"  
+"哦，别再用那个老借口糊弄我了！"
+
+"When was the last time I ever made that excuse before, anyway?"  
+"话说回来，我上次用这个借口是什么时候了？"
+
+"Oh! Don't change the subject!"  
+"哦！别转移话题！"
+
+"I didn't!" "我没有！"
+
+"Oh, you stupid—Hey! Hikari! What're you—?"  
+"哦，你这个笨蛋——嘿！光！你在——？"
+
+The other end of the line began to ruffle and tremble. Shinji drew the phone closer to his ear, sure to hear Hikari's voice as opposed to Asuka's high pitched shrill. Thankfully, his expectations were fulfilled. "Hey, listen, don't mind her, she's just a little upset right now. She'll cool off once she adjusts to everything."  
+电话那头开始沙沙作响，颤抖起来。真嗣将手机贴近耳朵，希望能听到光的温柔声音，而不是明日香那尖锐的嗓音。幸运的是，他的期望得到了满足。“嘿，听着，别在意她，她只是现在有点不高兴。等她适应了一切，就会冷静下来的。”
+
+"Uh, okay." Cool off? He hoped that happened soon. If Asuka was upset with him, chances are he wouldn't even be let into the house, left outside of a barricaded door in the dark. The weatherman forecasted thunderstorms, too. "Listen, uh, how did you guys find out she was pregnant, exactly?"  
+"呃，好吧。"冷静下来？他希望这能尽快发生。如果明日香对他生气了，很可能他连家门都进不去，只能被关在门外，在黑暗中面对紧闭的大门。天气预报还说会有雷暴。“听着，呃，你们是怎么知道她怀孕的，确切地说？”
+
+"A pregnancy test." "一支验孕棒。"
+
+"Oh, uh, how accurate is it?"  
+"哦，呃，它的准确度如何？"
+
+"Pretty accurate." "相当准确。"
+
+"I see. Uh, thanks, Hikari."  
+"我明白了。呃，谢谢，光。"
+
+"Don't mention it." "不用谢。"
+
+"I'm going to hang up now—"  
+"我现在要挂电话了——"
+
+"Dummkopf! Don't you dare hang up on me you idiot!" Shinji pulled the phone away from his ear in shock, staring at it, his eyes wide with fear, as though the wires would come alive to strangle him.  
+"笨蛋！你敢挂我电话，你这个白痴！" 真嗣震惊地将电话从耳边拉开，盯着它，眼中满是恐惧，仿佛电线会活过来勒死他。
+
+"I'm at work! I can't keep talking on the phone! I have to hang up now!"  
+"我在上班！不能一直讲电话！我现在得挂了！"
+
+"I hope they fire you, you son of a—" Shinji slammed the receiver down, exhaling slowly as he leaned back in his chair, staring up at the ceiling once more.  
+"我希望他们炒了你，你个混蛋——" 真嗣猛地挂上听筒，缓缓呼气，靠回椅背，再次抬头望向天花板。
+
+Pregnant? 怀孕了？
+
+A child? 一个孩子？
+
+Asuka? 明日香？
+
+Father. 父亲。
+
+---
