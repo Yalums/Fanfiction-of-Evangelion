@@ -707,3 +707,154 @@ Shinji was inside a grocery store, buying food. He pulled through the candy aisl
 
 ---
 ### Chapter 6
+"Thank you again for taking me shopping for a bikini, Kaji." Asuka smiled as she looked through the swimsuits.  
+"再次感谢你带我来买比基尼，加持。" 明日香微笑着浏览着泳装。
+
+"No problem." Kaji smiled as he followed behind her. "See anything yet?"  
+"没事。" 加持微笑着跟在她后面。"看中什么了吗？"
+
+"Not yet." Asuka was currently looking through different swimsuits they had available. "Sorry, it's taking so long."  
+"还没。" 明日香正在浏览店里提供的不同泳装。"抱歉，花了这么长时间。"
+
+"It's no problem." Kaji laughed as he thought to himself. "_She's just like Misato when she would drag me to go shopping with her._"  
+"没事的。" 加持笑着心想。"她就像美里一样，总是拉我去逛街。"
+
+"Found it!" Asuka held up a red and white bikini. "What do you think!?"  
+"找到了！" 明日香举起一件红白相间的比基尼。"你觉得怎么样！？"
+
+"Well, red is your color." Kaji smiled as Asuka showed him the bikini. "I'm sure Shinji will like it as well."  
+"嗯，红色很适合你。" 加持微笑着看明日香展示比基尼。"我相信真嗣也会喜欢的。"
+
+"What!?" Asuka stomped her foot and turned her head. "Like I care about his opinion about what I'd wear!"  
+"什么！？" 明日香跺了跺脚，转过头去。"我才不在乎他对我穿什么有什么看法呢！"
+
+"Sure." Kaji giggled as he watched Asuka's reaction. After he bought the bikini for her, she took her to a cafe.  
+"当然。" 加持看着明日香的反应咯咯笑了起来。给她买了比基尼后，他带她去了一家咖啡馆。
+
+"I still can't believe you brought up Shinji like that." Asuka sighed as she took a drink.  
+"我还是不敢相信你那样提起真嗣。" 明日香叹了口气，喝了一口饮料。
+
+"Don't you mean, Third?" Kaji smiled as Asuka blushed and turned her head away. "It's surprising that you're no longer calling Shinji-Kun by that name. Especially since you kept using it before you met him."  
+"你不是想说，三号机吗？" 加持笑着，看着明日香脸红并把头转开。"真让人意外，你不再用那个名字称呼真嗣君了。尤其是你之前一直这么叫他的。"
+
+"He's a fellow pilot that I fight alongside." Asuka kept looking away. "I only want to be respectful to a fellow pilot, like how he's respectful to me."  
+"他是我并肩作战的战友。" 明日香依旧没有转头。"我只是想对一个战友表示尊重，就像他对我一样。"
+
+"So, are you and Rei getting along as well?"  
+"那么，你和丽相处得还好吗？"
+
+"Can't we talk about something else!?" Asuka turned her head to look at Kaji, now with wide eyes. "Like the trip, our class is going on?"  
+"我们就不能聊点别的吗？！" 明日香转过头，睁大眼睛看着加持。"比如我们班要去的旅行？"
+
+"Oh, I almost forgot about that." Kaji sighed. "Forgive me. When I was your age, I didn't get to go on a trip."  
+"哦，我差点忘了这事。" 加持叹了口气。"原谅我。我像你这么大的时候，没机会去旅行。"
+
+"How come?" Asuka raised an eyebrow.  
+"为什么呢？" 明日香挑了挑眉毛。
+
+"Oh, just a little something called the Second Impact."  
+"哦，就是那个所谓的第二次冲击。"
+
+Kaji and Asuka spent the rest of the time talking about how excited she was to go on the trip. While she loved being an Eva Pilot, she also loved the idea of a nice long vacation. However, she was now having the opposite reaction in Misato's apartment.  
+加治和明日香在剩下的时间里聊着她对这次旅行的兴奋之情。虽然她热爱成为 Eva 驾驶员，但她也喜欢长时间度假的想法。然而，现在她在美里公寓里却有了相反的反应。
+
+"What do you mean I'm not allowed to go on the trip!?" Asuka slammed her hands on the table.  
+"你什么意思，我不被允许去旅行！？" 明日香双手猛拍桌子。
+
+"Asuka, really think about this." Misato squeezed the bridge of her nose. "You are one of three pilots we have to fight the Angels. Even when you and Shinji fought together, you had some difficulties."  
+"明日香，真的要好好考虑一下。" 美里捏了捏鼻梁。"你是我们对抗使徒的三名驾驶员之一。即使你和真嗣一起战斗时，也遇到了一些困难。"
+
+"But that's unfair!" Asuka crossed her arms. "I'm only asking to have some fun on a vacation which I deserve for all the work I do!"  
+"但这不公平！" 明日香交叉双臂。"我只是要求在应得的假期里找点乐子，这都是我辛勤工作的回报！"
+
+"And I appreciate that, Asuka." Misato opened her eyes and crossed her arms. "However, we need all of you to be ready if we need you."  
+"我理解你的心情，明日香。" 美里睁开眼睛，也交叉起双臂。"然而，我们需要你们随时待命，以防万一。"
+
+"I can't believe this." Asuka sighed as she turned to look at Shinji. "And you're fine with this?"  
+"真不敢相信。" 明日香叹了口气，转向看着真嗣。"你对此没意见吗？"
+
+"Well," Shinji looked down for a second before looking back up at Asuka. "I think you deserve more than just a vacation for everything you do."  
+"嗯，" 真嗣低头片刻，然后重新抬头看向明日香。"我觉得你所做的一切，值得的不只是一个假期。"
+
+"And the reason you're not fighting for that right now?" Asuka raised an eyebrow.  
+"那你现在为什么不争取这个权利呢？" 明日香挑了挑眉。
+
+"Before I met you or Ayanami, I was the only pilot." Shinji looked down. "I wasn't exactly the best pilot, and I wouldn't say I'm anywhere near the best pilot right now. If you were gone, I'm not sure I'd be able to fight the Angels on my own anymore."  
+"在我遇见你或绫波之前，我是唯一的驾驶员。" 真嗣低头说道，"我并非最出色的驾驶员，现在也远非最优秀。如果你不在了，我不确定自己还能否独自对抗使徒。"
+
+"You killed a few Angels before I showed up, though." Asuka's uncrossed her arms and stared at Shinji. "Sure, Wondergirl helped you with one of them, but that's still three Angels you killed."  
+"尽管如此，在我出现之前你已经击败了几只使徒。" 明日香放下双臂，盯着真嗣，"没错，那个三无女确实帮你对付过一只，但那也意味着你独自消灭了三只使徒。"
+
+"I'm pretty sure I got lucky both of those times." Shinji frowned. "Fighting with you, though, makes me feel like I don't have to be as worried anymore."  
+“我相当确定那两次我都挺走运的。”真嗣皱了皱眉。“不过和你并肩作战，让我觉得不再那么需要担心了。”
+
+Asuka took a moment as she looked at Shinji and then looked at Misato. Shinji was still frowning, and Misato just looked at the both of them with a blank expression.  
+明日香看了一会儿真嗣，然后转向美里。真嗣依旧皱着眉头，而美里只是面无表情地看着他们俩。
+
+"Fine." Asuka sighed as she crossed her arms. "Since I am the best pilot NERV has, I'll stay so I can take care of any Angels that might show up."  
+“好吧。”明日香叹了口气，双臂交叉。“既然我是 NERV 最优秀的驾驶员，我会留下来以防有使徒出现。”
+
+"I'm happy to hear that." Shinji smiled. "Plus, I'm sure NERV will reward you for all you do for us."  
+“很高兴听到你这么说。”真嗣微笑道。“而且，我相信 NERV 会因为你为我们所做的一切而奖励你的。”
+
+"Also, a good point." Asuka smiled as she turned to go to her room. "You can start by making dinner like usual while I change."  
+"也是个好主意。" 明日香微笑着转身回自己的房间。"你可以像往常一样开始准备晚餐，我换件衣服。"
+
+"Of course." Shinji got up and began making dinner for the three of them like he usually did.  
+"当然。" 真嗣起身开始为他们三人准备晚餐，就像平时一样。"
+
+"Wait a minute." Misato got up, making both of them freeze to look at them. Asuka was standing there confused, while Shinji began to sweat. Misato sighed before smiling. "I just wanted to say I love that all of us are getting along like a family."  
+"等一下。" 美里站起身，让两人都愣住了，看着她。明日香站在那里一脸困惑，而真嗣开始冒汗。美里叹了口气，然后微笑道："我只是想说，我很高兴我们像一家人一样和睦相处。"
+
+"Oh." Asuka kept looking at her guardian, confused. "I like that too."  
+"哦。" 明日香继续看着她的监护人，感到困惑。"我也喜欢那个。"
+
+As Asuka walked back to her room, Misato caught Shinji blowing a sigh of relief. He went to the stove to cook while Misato took her seat at the table again. After they ate, they all went to their rooms. Asuka had called Hikari to let her know what was going on about the trip. Meanwhile, Shinji was in his room just listening to his cassette player. After a few more hours, both were trying to get some sleep.  
+当明日香走回她的房间时，美里看到真嗣松了一口气。他走到炉子旁开始做饭，而美里再次坐回到桌子旁。饭后，他们都回到了各自的房间。明日香打电话给光，告诉她关于旅行的进展。与此同时，真嗣在他的房间里只是听着他的磁带播放器。几个小时后，两人都试图入睡。
+
+*knock* *knock* *敲* *敲*
+
+"Shinji?" Shinji heard a female asking for him as he rubbed his eyes. He looked at his clock, and it was 1 in the morning. He slowly got up and opened the door to see who it was.  
+"真嗣？" 真嗣揉着眼睛，听到一个女声在叫他。他看了看时钟，已经是凌晨一点了。他慢慢起身，打开门看看是谁。
+
+"Misato-san?" Shinji rubbed his eyes again. "I was trying to get some sleep. What's wrong?"  
+"美里小姐？" 真嗣再次揉了揉眼睛。"我正试着睡觉呢。怎么了？"
+
+"Shinji, I want you to be honest with me." Misato stood there with her arms crossed. "What is going on between you and Asuka?"  
+"真嗣，我希望你能诚实地告诉我。" 美里双臂交叉站在那里。"你和明日香之间发生了什么？"
+
+"Wha... what do you mean?" Shinji was now wide awake at her question. He started to sweat like earlier when Misato got up to say something. "Didn't Kaji-san tell you..."  
+"什...什么意思？" 真嗣被她的问题惊醒，开始像之前美里起身说话时那样冒汗。"难道加治先生没有告诉你..."
+
+"I know there's more to it than that." Misato cut him off. "I've tried asking Kaji about it, but he keeps getting occupied with other things."  
+“我知道事情没那么简单。”美里打断了他，“我试过向加持打听，但他总是被其他事情缠身。”
+
+"_Oh, crap._" Shinji thought to himself.  
+“哦，糟了。”真嗣心想。
+
+"I'm sure he wants to tell me whatever it is, but I'm concerned about the both of you." Misato sighed as she placed a hand on Shinji's shoulder. "I know you're a nice person, Shinji, but this is overboard. Will you please tell me why you're acting like this?"  
+“我确信他想告诉我那是什么事，但我担心你们俩。”美里叹了口气，把手放在真嗣的肩膀上。“我知道你是个好人，真嗣，但这次太过分了。你能告诉我为什么这样表现吗？”
+
+"It's..." Shinji looked down, trying to find out what he should do. "I'm not sure if I should say anything or not. Especially for Asuka's sake."  
+“这……” 真嗣低下头，思索着自己该怎么做。“我不确定是否该说些什么。尤其是为了明日香。”
+
+"Asuka's sake?" Misato raised an eyebrow. "Is she blackmailing you or something?"  
+"明日香的事？" 美里挑了挑眉。"她是在敲诈你还是怎么的？"
+
+"No." Shinji immediately looked up at her. "Nothing like that."  
+"不是的。" 真嗣立刻抬头看向她。"不是那样的。"
+
+"Then why would you be concerned for..."  
+"那为什么你会担心..."
+
+*sniffle* "Momma..." *sniffle*  
+*抽泣* "妈妈..." *抽泣*
+
+Misato's eyes shot open as she turned towards Asuka's room and then looked back at Shinji.  
+美里睁大了眼睛，转向明日香的房间，然后又看向真嗣。
+
+"Is that Asuka crying?" Misato pointed at Asuka's room while Shinji silently nodded  
+"那是明日香在哭吗？" 美里指着明日香的房间，而真嗣默默地点头
+
+---
+### Chapter 7
