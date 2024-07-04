@@ -1174,3 +1174,4 @@ Shinji now noticed that Asuka dragged him to the mall. Shinji noticed several pe
 作者留言：哇，好久没更新这个故事了。先说声抱歉，拖了这么久。遗憾的是，我之前写作的网站关闭了，现在我转战成为了一名 YouTuber。制作视频占用了我大部分时间，再次表示歉意。另外，我正考虑将之前为该网站写的关于明日香的文章改编成视频，放在我的 YouTube 频道上，敬请期待。如果你对我的视频内容感兴趣，可以关注我的 Twitter 账号 talksmarco，我在那里经常分享视频和写作相关的内容。感谢所有还在关注我故事的朋友们，请在评论区告诉我你们的想法，我会认真阅读每一条评论。**
 
 ---
+### Chapter 9
