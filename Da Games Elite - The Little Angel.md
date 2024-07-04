@@ -2487,3 +2487,329 @@ Shinji glanced at her, and said, softly, "Okay, I'll never leave you, okay?"
 "Shinji, shut it!" "真嗣，闭嘴！"
 
 ---
+**Part 10 第十部分**
+
+The day that Mr. Langley returned home was surprisingly a rather simple and natural moment in Shinji's life. He had never met his fiancé's father before this moment, so when he just popped up outside the house, asking his wife for entrance, it seemed as though Shinji's concerns preceding his inevitable arrival had all been for naught. He had feared that Mr. Langley was a rather intimidating figure, like his own father. Asuka had never mentioned her father before, or at least explicitly, so he just naturally assumed he had been as much as a crappy father as his own.  
+兰格利先生回家的那天，对真嗣的生活来说是一个出乎意料简单自然的时刻。他之前从未见过未婚妻的父亲，所以当兰格利先生突然出现在屋外，向妻子请求进入时，真嗣之前对他到来的种种担忧似乎都变得多余了。他曾担心兰格利先生会是一个相当令人畏惧的人物，就像他自己的父亲一样。明日香从未提及过她的父亲，或者至少没有明确说过，所以他自然地认为，兰格利先生和他自己的父亲一样，是个糟糕的父亲。
+
+Upon arrival, Mr. Langley approached his wife, and kissed her directly on the lips. Asuka frowned slightly as at this, but as her father parted from his second wife, Asuka's step mother, he turned to his daughter, and approached her, an apparently warm expression on his face. "Hello there, totcher. It's been far too long since the last time you've graced us with a visit."  
+一抵达，兰利先生便走向他的妻子，直接吻在了她的唇上。明日香对此微微皱眉，但当她的父亲与第二任妻子分开后，转向他的女儿，脸上带着明显温暖的表情。“你好啊，小家伙。你已经很久没有赏光来看我们了。”
+
+"Hello, dad," Asuka replied. Shinji couldn't help but find it weird how she addressed this man as "dad." It almost sounded alien coming from her lips. It was, in fact, a little strange, and he had a hard time adjusting to the sound of her saying such words. It was even more startling when she pulled her father into a hug, resting her cheeks against his broad chest.  
+“你好，爸爸，”明日香回答道。真嗣不禁觉得她称呼这个人为“爸爸”有些奇怪。这个词从她嘴里说出来几乎显得陌生。事实上，这确实有点奇怪，他很难适应她这样说话的声音。更令人惊讶的是，她拥抱了她的父亲，将脸颊贴在他宽阔的胸膛上。
+
+Her father patted his daughter's shoulders, smiling slightly. "Listen, daughter, we have much to discuss while you're here."  
+她的父亲轻拍着女儿的肩膀，微微一笑。“听着，女儿，你在这里的时候我们有很多事情要讨论。”
+
+Asuka parted, slowly. She glanced over at Shinji, and, for an instant, Shinji could see the hints of infinite pain, infinite grief, infinite heartbreak, exposed for only a moment in her pupils. But, then again, maybe it had been a trick of the light, as, after blinking only once, this infinite abyss of emotion seemed to have vanished entirely, a curious glint emanating from her irises as she turned to her large, formidable father. "Oh? What exactly?" she asked, folding her hands behind her back, resting them just below her rear end.  
+明日香缓缓分开，她瞥向真嗣，有那么一瞬，真嗣能从她的瞳孔中窥见无尽的痛苦、无尽的悲伤、无尽的心碎，这些情感仅在片刻间暴露无遗。但或许这只是光线的把戏，因为仅仅眨眼一次后，这深不可测的情感深渊似乎完全消失了，取而代之的是她眼中闪烁着好奇的光芒，转向她高大威严的父亲。“哦？具体是什么事？”她问道，双手交叉在背后，正好放在臀部下方。
+
+"About your child, of course," Mr. Langley replied, smiling slightly.  
+“当然是关于你的孩子，”兰格利先生回答道，嘴角微微上扬。
+
+Shinji didn't like that smile he wore.  
+真嗣不喜欢他脸上挂着的那个微笑。
+
+He didn't know why; he just didn't.  
+他不知道为什么；他就是不知道。
+
+"And this must be the famous Third Child," Mr. Langley replied, turning toward Shinji, who had been watching the entire exchange from behind Asuka.  
+"这位一定就是著名的三公子了，" 兰利先生回答道，转向了真嗣，后者一直在明日香身后观察着整个对话。
+
+"His name's Shinji," Asuka mumbled.  
+"他叫真嗣，" 明日香咕哝道。
+
+"Right! I apologize. He deserves to be called by his first name if you chose him to be your husband," Mr. Langley responded as he extended his hand to Shinji, "You must excuse me; I've heard so much about you from NERV's Germany branch that I feel a certain degree of respect already and we haven't even met yet. I must say, my daughter made a fine choice of a husband."  
+"没错！我道歉。如果你选了他做你的丈夫，他理应被称呼为他的名字，" 兰格利先生回应道，同时向真嗣伸出手，"请原谅我；我从 NERV 德国分部听说了太多关于你的事，以至于我对你已经有了一定的敬意，尽管我们还未曾谋面。不得不说，我女儿选了一个出色的丈夫。"
+
+Shinji blushed slightly as he accepted Mr. Langley's hand, bashfully glancing at the ground, at his toes, away from this man's face. "Oh, really, I'm not that special—"  
+真嗣微微脸红，接受了兰格利先生的手，羞涩地低头看着地面，脚尖，避开这位先生的目光。"哦，真的，我没那么特别——"
+
+"You salvaged the world from Third Impact's annihilation. You know, some people regard you as a messiah! In Germany, we also remember your efforts to help salvage our nation in the early years of the reconstruction. We are, for all intents and purposes, indebted to you and Asuka's singular efforts. Without you, we wouldn't of returned from the horrors of—"  
+"你从第三次冲击的毁灭中拯救了世界。你知道，有些人视你为救世主！在德国，我们也记得你在重建初期对我们国家的帮助。实际上，我们欠你和明日香的努力太多。没有你们，我们无法从那些恐怖中恢复——"
+
+"Stop flattering him," Asuka replied, "It might go to his ego. He is a big idiot, you know. A dummkopf!"  
+"别再恭维他了，" 明日香回答，"这可能会助长他的自负。他是个大傻瓜，你知道的。一个笨蛋！"
+
+"Eh, he is going to be the father of my grandkid, so I suppose I could at least compliment him a little bit before I interfere with how he's raised."  
+"呃，他将成为我孙子的父亲，所以我想在我干预他的教育方式之前，至少可以稍微夸他几句。"
+
+"I suppose," Shinji replied, blushing still, but still feeling uneasy about looking the man in the eye. He didn't know why he didn't feel comfortable. He usually wasn't this awkward with new people, especially considering his role as a diplomat of sorts for NERV. Still, something about this guy rubbed him the wrong way. He wasn't sure what it was, but it was enough to make him feel a little anxious just by holding his hand. He slowly released it, resisting the urge to wipe his hand against his pants, as Mr. Langley turned toward his daughter Kate, and greeted her accordingly.  
+"我想也是，" 真嗣回答，脸依旧红着，但仍然感到不安，不敢直视那人的眼睛。他不知道为什么自己会感到不舒服。他通常不会对新人这么尴尬，尤其是考虑到他作为 NERV 某种外交官的角色。尽管如此，这个人让他感觉不对劲。他不确定是什么，但这足以让他仅仅握手就感到有些焦虑。他慢慢松开手，忍住了用手擦裤子的冲动，因为兰格先生转向他的女儿凯特，并适当地向她打招呼。
+
+As the young girl greeted her father with enthusiasm, perhaps with the intention of receiving admiration, Shinji made eye contact with Asuka. Silently, as though they were speaking with the spasms in their faces and the glints of their eyes, Shinji asked Asuka if there was a reason he felt so awkward around her father, as if there was an explanation for his skin crawling.  
+当年轻女孩热情地向父亲打招呼时，或许带着得到赞赏的意图，真嗣与明日香对视了一眼。无声地，仿佛他们通过面部抽搐和眼神闪烁在交流，真嗣询问明日香是否有什么原因让他觉得在她父亲身边如此尴尬，仿佛有一种解释能说明他为何感到皮肤发麻。
+
+She replied with a yes.  
+她回答说有。
+
+They once again ate lunch after Mr. Langley's arrival, a rather unappetizing fried dish. Shinji longed to taste rice and fish once more. He hated the taste of this German food. He actually felt he could prepare it better, and even asked at dinner if, for dinner, he could prepare the meal. Mr. Langley laughed. "A husband who does the housework. My daughter did get lucky."  
+在兰格利先生到来后，他们再次吃了午餐，是一道相当倒胃口的炸食。真嗣渴望再次品尝米饭和鱼。他讨厌这种德国食物的味道。实际上，他觉得自己能做得更好，甚至在晚餐时询问是否可以由他来准备饭菜。兰格利先生笑了。“做家务的丈夫。我女儿真是幸运。”
+
+"What? You really don't expect me to cook, do you?" Asuka laughed, forcibly. It was a laugh that Asuka usually made whenever she was trying to resist the urge to slam her knuckles into someone's throat. Needless to say, she never laughed that way around Shinji; if she wanted to hit him, she had no damn problem doing so.  
+"什么？你真的不指望我做饭吧？" 明日香强笑着说。这是明日香通常在试图抵抗将拳头砸向某人喉咙的冲动时发出的笑声。不用说，她从未在真嗣面前这样笑过；如果她想打他，她可不会有任何问题直接动手。
+
+"I suppose not," Mr. Langley replied with a shrug.  
+"我想也是，" 兰格利先生耸耸肩回答道。
+
+"You never were much for domestic chores, Asuka," Mrs. Langley replied.  
+"你从来就不擅长家务活，明日香，" 兰格利夫人回答说。
+
+"Remember how when she was little, and we asked her to do the dishes, she'd just refuse?" Mr. Langley replied, "When you wanted to, you could be a most disobedient child."  
+"记得她小时候，我们让她洗碗，她总是拒绝吗？" 兰利先生回答说，"当你想做的时候，你可是个非常不听话的孩子。"
+
+"Dad, mom!" Asuka grumbled under her breath, her eyes furious and wide.  
+"爸，妈！" 明日香低声抱怨，眼睛愤怒而睁大。
+
+"Then there was that time you shattered all the plates in the house," Mrs. Langley replied.  
+"还有那次你把家里所有的盘子都打碎了，" 兰利夫人回答道。
+
+"Oh, so that's who did it?" Kate asked, surprised.  
+"哦，原来是他干的？" 凯特惊讶地问。
+
+"Mother—!" "母亲——！"
+
+"What is it, dear?" Asuka's stepmother asked, curiously.  
+"怎么了，亲爱的？" 明日香的继母好奇地问。
+
+"Can we please talk about something else?" Asuka snarled through her teeth.  
+"我们能不能谈点别的？" 明日香咬牙切齿地说。
+
+"Oh, I see. You're embarrassed about that? Understandable," Mr. Langley said, nonchalantly, "I mean, you did go through a rough time back then."  
+"哦，我明白了。你是因为那件事感到尴尬吗？可以理解，" 兰利先生漫不经心地说，"我是说，你那时候确实经历了一段艰难的时期。"
+
+"Rough time?" Shinji asked, confused. What was Mr. Langley talking about? Her mother's separation from her husband? Her death, perhaps? Shinji knew, after all, her mother had been separated from her father and eventually died, but was the separation from the husband death? Asuka had never told him much, but, judging from Asuka's wide eyed, scandalous expression, the memories surging through her head were so painful and dark she didn't want to recall them.  
+"艰难的时期？" 真嗣困惑地问。兰利先生指的是什么？她母亲与丈夫的分离？还是她的去世？真嗣知道，毕竟，她母亲与父亲分开了，最终去世了，但分离与死亡是一回事吗？明日香从未向他透露太多，但，从明日香那瞪大眼睛、震惊的表情来看，涌入她脑海的记忆是如此痛苦和黑暗，以至于她不愿回想。
+
+"You mean Asuka had never told you about Kyoto?" Mrs. Langley asked, surprised.  
+"你是说，明日香从未跟你提起过京都？" 兰利太太惊讶地问道。
+
+"Kyoto?" Kate asked, curious, "You mean Asuka's real mom?"  
+"京都？" 凯特好奇地问，"你是说明日香的亲生母亲？"
+
+"Shut up. Shut up! SHUT UP!" The sound of the redhead's fist against the table silenced all four of them. They stared at her as she rose to her feet, trembling violently as she clenched her fists, her nails almost biting into her soft palms as she glared at her parents, her eyes wide, and yet maybe just a bit teary. "All of you, just shut up!"  
+"闭嘴。闭嘴！闭嘴！" 红发女孩的拳头砸在桌上的声音让四人都安静了下来。他们盯着她，只见她站起身来，浑身颤抖，紧握双拳，指甲几乎要嵌入她柔软的掌心，她瞪着父母，眼睛睁得大大的，或许还带着一丝泪光。"你们所有人，都给我闭嘴！"
+
+"Asuka, what's wrong?" Shinji rose from his seat, and reached out for the redhead. He placed a hand on her shoulder, and was thanked for his chivalry with a punch to the jaw! The jab knocked him backward, not drawing blood, but leaving a large red welt. Asuka stared down at him with a look of fury. For an instant, it looked as though the fiery redhead wanted to stomp on him, beat him, kill him, but then realization dawned in her eyes that she had just hit Shinji. Her eyes widened for a moment before she turned on her feet, and sprinted up to her room. The sound of her door slamming filled the entire house, and reverberated in every hall.  
+"明日香，怎么了？" 真嗣从座位上站起来，伸手去扶红发少女。他将手搭在她的肩上，却换来一记重拳打在颚部！这一击将他向后击倒，虽未流血，却留下了一片红肿。明日香怒视着他，那一刻，仿佛这火红的少女想要践踏他，殴打他，甚至杀了他，但随即她意识到自己刚刚打了真嗣。她的眼睛瞬间睁大，然后转身飞奔回自己的房间。她关门的声音响彻整个屋子，每个走廊都回荡着这声巨响。
+
+There was a moment of silence.  
+一阵沉默。
+
+"She's lost her mind, hasn't she?" Kate asked, simply.  
+"她疯了吧，不是吗？" 凯特简单地问道。
+
+Shinji turned to Asuka's family, stroking his chin. "Do you need some ice on that injury?" Mrs. Langley asked, rising from her seat, approaching the refrigerator hastily.  
+真嗣转向明日香的家庭，抚摸着下巴。“你需要冰敷一下那个伤口吗？”兰格利夫人问道，从座位上起身，急忙走向冰箱。
+
+"No, I'm fine." “不，我没事。”
+
+"I see. I suppose I'll leave you alone for now. Excuse me." Mrs. Langley left the room, leaving Shinji alone with Mr. Langley, and of course Kate, who hadn't seemed to realize that she was not welcomed in this conversation.  
+“我明白了。我想我现在还是不打扰你们了。失陪了。”兰格利夫人离开了房间，留下真嗣独自与兰格利先生，当然还有凯特，她似乎还没意识到自己在这个对话中并不受欢迎。
+
+"I apologize for my daughter's behavior," Mr. Langley replied, "I hope you understand that—"  
+"我为女儿的行为道歉，" 兰利先生回答道，"希望你能理解——"
+
+"What happened to her?" Shinji asked, simply.  
+"她怎么了？" 真嗣简单地问道。
+
+"Well, she got angry and hit you," Mr. Langley replied, flatly.  
+"嗯，她生气了，打了你，" 兰利先生平淡地回答。
+
+"That's not what I meant."  
+"那不是我的意思。"
+
+"I thought so," Mr. Langley replied with a sigh, "You mean Kyoto, right?"  
+"我也是这么想的，" 兰利先生叹了口气回答，"你是说京都，对吧？"
+
+"Yeah." "嗯。"
+
+"Alright. Kate, leave the room."  
+"好了，凯特，离开房间。"
+
+"What? But why?" the blonde pouted, her eyes wide and confused.  
+""什么？但为什么？"" 金发女孩噘嘴问道，眼中满是困惑。
+
+"Do as I say. Leave the room. This is a personal matter."  
+"照我说的做。离开房间。这是私事。"
+
+Fuming, the blonde rose from her seat, her arms folded over her chest, as she marched out of the room, up the stairs, only to slam the door to her own room shut. Loudly.  
+金发女子气愤地从座位上站起身，双臂交叉抱在胸前，大步走出房间，上楼，然后砰地一声用力关上了自己房间的门。声音很大。
+
+She was certainly Asuka's sister.  
+她无疑是明日香的姐姐。
+
+Mr. Langley ran his hand on the side of the table as he rose from his seat, walking toward the cabinets. He withdrew a bottle of imported vodka, and poured a small shot for himself. He offered some to Shinji, and he accepted a small puddle of the drink diluted with orange juice. As Mr. Langley took a strong sip from his glass, he said, slowly, "I feel awkward telling you this myself. I thought my daughter would've filled you in."  
+兰利先生从座位上站起来，手抚摸着桌边，走向橱柜。他取出一瓶进口伏特加，为自己倒了一小杯。他向真嗣递了一些，真嗣接过一小杯掺了橙汁的酒。兰利先生猛地喝了一口自己的酒，缓缓说道：“我亲自告诉你这件事，感觉很尴尬。我以为我女儿会告诉你的。”
+
+"Well, she didn't." "嗯，她没有。"
+
+"I can see. Well, you see, Kyoto, my first wife, she was part of the first synchronization test involving Evangelion Unit-02. What unfortunately happened was, like with your mother, Yui, there was an accident. The Evangelion happened to swallow a large chunk of her soul into itself, and left Kyoto, how should we say, incomplete. The remains of her that were left in her human form were deeply depressed, and a little, no, very unstable. She ended up developing these psychotic delusions that this doll she had, this tiny raggy little thing, was actually her daughter, Asuka. Every day, she'd call the doll Asuka, refer to it as though it were her own daughter. And every day, our daughter would see her behave in such an odd way. I suppose, in retrospect, I was disturbed by the whole ordeal. I escaped through means that I can't deny I'm not very proud of right now. My daughter saw the worst of me, let's say, and that, piled with the horrible condition her mother was in, left my girl a wreck. It wasn't long after that she was selected to be a pilot. I was told she was extremely happy, and that she ran to see her mother. However, that was also the day her mother hung herself, but not before hanging the doll she believed to be Asuka herself."  
+"我能理解。你看，京都，我的第一任妻子，她是参与初号机二号机同步测试的一员。不幸的是，就像你母亲唯一样，发生了一场事故。初号机吞噬了她灵魂的大部分，留下京都，该怎么形容呢，不完整。她留在人形中的残余部分深陷抑郁，而且，不，是非常不稳定。她最终发展出这些精神错乱的幻想，认为她拥有的那个小破布娃娃，实际上是她的女儿，明日香。每天，她都叫那个娃娃明日香，把它当作自己的女儿一样对待。而我们的女儿每天都能看到她这样奇怪的行为。回想起来，我想我当时也被整个事件困扰着。我通过一些现在我并不引以为傲的手段逃脱了。我的女儿看到了我最糟糕的一面，再加上她母亲那糟糕的状况，让我的女孩彻底崩溃了。没过多久，她就被选为驾驶员。我被告知她非常高兴，跑去看望她的母亲。" 然而，那也是她母亲上吊自杀的日子，但在那之前，她挂上了那个她认为是明日香自己的玩偶。"
+
+Shinji stared at Mr. Langley as he swallowed his shot of vodka, quickly. Shinji's hands, however, were trembling too violently for him to even bring the glass to his lips, to even sip on its contents without sloshing it all over his face. All he could see was his fiancé, then a little girl, staring up at the rocking feet of her dead mother, a shadow against the light, creaking back and forth on the boards of the ceiling. What thoughts were going through her mind at the time? What could one possibly think? How could one think? Shinji struggled not to imagine the image of her staring, of her mind breaking to pieces in one swell swoop, her heart not being raped by the pains of horror no child should ever face, of her innocence and safety of mind being demolished in a heartbeat.  
+真嗣盯着兰格利先生迅速吞下那杯伏特加。然而，真嗣的双手颤抖得如此剧烈，以至于他甚至无法将杯子举到唇边，无法在不洒满脸的情况下啜饮一口。他眼前浮现的是他的未婚妻，那时还是个小女孩，抬头望着她死去母亲摇晃的双脚，在光影中投下阴影，在天花板的木板上前后摆动。当时她的脑海中在想些什么？一个人可能会怎么想？怎么能思考？真嗣努力不去想象她凝视的画面，她的心智在一瞬间崩溃，她的心灵不被恐怖的痛苦所侵犯，那是任何孩子都不应面对的，她的纯真和心灵的安全在心跳之间被摧毁。
+
+Shinji ran his hands through his hair, his shaky fingers sending tremors through the field of brown. Finally, he found his words. "Now everything makes sense."  
+真嗣双手穿过头发，颤抖的手指在棕色发丝间引发一阵阵颤动。终于，他找到了自己的话语。“现在一切都明白了。”
+
+"Hmmm?" “嗯？”
+
+"The reason why she had been so afraid of coming back to Germany all these years. I thought all this time maybe it was because she didn't like you or maybe that she blamed you for her mother leaving her or dying or what have you, but now it all makes sense. She didn't come back for all this time because she didn't want to remember her mother. It all makes—and that's why she hated Rei, and when she called her a doll—oh God, it all makes sense! And when I suggested we called the baby Rei, she said twice that she wouldn't call it Rei because she was a doll. God, I was reminding her of—and then when—and—and—and—"  
+“她这么多年来一直害怕回到德国的原因。我一直以为可能是因为她不喜欢你，或者她怪你因为她母亲离开或去世之类的事情，但现在一切都明白了。她这么多年不回来是因为她不想记起她的母亲。这一切都——这就是为什么她讨厌丽，当她称她为玩偶时——哦天哪，一切都明白了！当我建议我们给婴儿取名丽时，她两次强调不会叫它丽，因为她是玩偶。天哪，我这是在提醒她——然后当——还有——还有——还有——”
+
+"Calm down, Shinji," Mr. Langley replied, putting a hand on Shinji's shoulder. All of a sudden, the man seemed to look a lot less intimidating. Shinji didn't mind looking this man in the eyes. He could see, in a second, that his eyes betrayed a hint of regret, a hint of self loathing, apparently hidden beneath the façade of relaxation. Shinji wondered, momentarily, what Mr. Langley had meant when he said that he had done some things he regretted. However, there wasn't enough time for that right now.  
+"冷静点，真嗣，" 兰利先生回答道，一只手放在真嗣的肩膀上。突然间，这个人看起来不再那么令人畏惧了。真嗣不介意直视这个人的眼睛。他一眼就能看出，他的眼神中流露出一丝悔意，一丝自我厌恶，显然隐藏在放松的外表之下。真嗣一时好奇，兰利先生说他做过一些后悔的事情，到底是什么意思。然而，现在没有足够的时间去深究。
+
+"I'd like to make some food for Asuka, but I'm going to need your help to get some of the supplies."  
+"我想给明日香做些吃的，但我需要你的帮助来准备一些食材。"
+
+"Of course." "当然可以。"
+
+"I can cook good German food, but I think what she needs right now is to be reminded of Japan a bit. I need you to get—"  
+"我能做一手好德国菜，但我觉得她现在需要的是稍微回味一下日本。我需要你去拿——"
+
+#
+
+Shinji wrapped his knuckles against the door to Asuka's room. It had taken several hours preparing everything, but now the scents had filled the air, smells of Germanic and Japanese foods filled every puff of air in the building, the estate. Surely some had drifted into Asuka's room and was tantalizing her nostrils with beautiful scents. However, she needed a personal touch to rouse her from her self-isolation.  
+真嗣用指节敲了敲明日香的房门。准备这一切花了好几个小时，但现在空气中弥漫着德式和日式食物的香气，整个建筑、庄园里的每一缕空气都充满了这些味道。肯定有些香气飘进了明日香的房间，用美妙的味道挑逗着她的鼻尖。然而，她需要一个亲身的触动来唤醒她，让她走出自我封闭的状态。
+
+"Uh, Asuka? It's me, Shinji. Dinner's ready."  
+"呃，明日香？是我，真嗣。晚饭准备好了。"
+
+"I'm not hungry." "我不饿。"
+
+Shinji sighed. "I made something really good."  
+真嗣叹了口气。"我做了些很好吃的东西。"
+
+"I said I'm not hungry. Are you deft?"  
+"我说了我现在不饿。你听不懂吗？"
+
+"Listen, if you don't open this door up now, I'm going to knock it down."  
+"听着，如果你现在不开门，我就要把它撞开了。"
+
+"You couldn't even if you tried."  
+"你就算试了也做不到。"
+
+"You know what? You're probably right."  
+"你知道吗？你可能是对的。"
+
+"Of course I am. I always am. Now shut up and leave me alone. I don't want you to see me like this."  
+"当然是我。一直都是。现在闭嘴，让我一个人待着。我不想让你看到我这样。"
+
+"Listen, I don't care what you're like right now. I just want you to know that you can come down to eat it whenever you want. We've spent the last few hours making this, and I really hope you'd—"  
+"听着，我不在乎你现在什么样。我只是想让你知道，你想什么时候下来吃饭都行。我们花了好几个小时做这个，我真的希望你能——"
+
+"Why'd you waste your time?"  
+"你为什么要浪费时间？"
+
+"Come again?" “再说一遍？”
+
+"I hit you. I hurt you. Why are you doing something nice for someone who doesn't deserve your sympathy?"  
+"我打了你，我伤害了你。为什么你要对一个不值得你同情的人做这些好事？"
+
+Shinji laughed under his breath. "Do I really need a reason? I'm doing this because I love you."  
+真嗣轻声笑了一下。"需要理由吗？我这么做是因为我爱你。"
+
+Slowly, the door opened. Shinji backed away a few paces as Asuka's face became visible. Though her head was hanging low, though her bangs and locks of scarlet covered most of her face, the smeared lines of tears running down her soft cheeks was impossible to overlook. She brushed aside the trails of tears from her face with the back of her hand, clearly praying she had brushed them aside before Shinji could see her momentary weakness. "Dummkopf," she grumbled, leaving her room behind, staring at the ground as she did so, unwilling to meet Shinji's eyes.  
+门缓缓地打开了。真嗣后退了几步，只见明日香的面部逐渐显露出来。尽管她的头低垂着，红色的刘海和发丝遮住了大部分脸庞，但那顺着她柔嫩脸颊滑落的泪痕却无法被忽视。她用手背擦去脸上的泪迹，显然是希望在真嗣看到她的脆弱之前将它们抹去。"笨蛋，"她咕哝着，离开了房间，目光始终盯着地面，不愿与真嗣对视。
+
+"Hey, listen, Asuka—" "嘿，听着，明日香——"
+
+"What did that old bastard tell you?" Asuka hissed.  
+"那个老混蛋跟你说了什么？" 明日香低声咆哮道。
+
+"What? You mean your father?"  
+"什么？你是说你父亲？"
+
+"What did he say?" Asuka repeated, her voice low and dangerous.  
+"他说了什么？" 明日香重复道，声音低沉而危险。
+
+There was no way of beating around the bush now. "He, uh, just told me about your—er—your mother and, well, what, uh, happened to, um, her."  
+现在没法绕弯子了。"他，呃，刚告诉我关于你——呃——你母亲和，嗯，她发生了，嗯，什么事。"
+
+Asuka leaned her weight against the framework of her bedroom door, her head slumped over. "Look, I don't want to talk about it right now, okay?"  
+明日香将身体靠在卧室门的框架上，头低垂着。"听着，我现在不想谈这个，好吗？"
+
+"That's fine," Shinji replied, "We'll talk about it when you're ready. Alone. Okay?"  
+“没关系，”真嗣回答，“等你准备好了，我们单独谈谈。好吗？”
+
+Asuka glanced up. Her eyes, despite having completed their sobbing long ago, were still filled with tears. They refused to fall, but rather stayed static in Asuka's eyes. "You stupid idiot! Dummkopf!"  
+明日香抬头望去，尽管早已停止哭泣，她的眼中仍盈满泪水。它们不愿落下，只是静静地停留在她的眼眶中。“你这个大笨蛋！傻瓜！”
+
+"I know, I know," Shinji replied, pulling the German woman into a hug, gently stroking her sides and back. He felt slender arms wrap around his middle, pulling him tightly against his fiancé's breasts, her slightly cushioned body, as she nestled her hair against the underside of his jaw, becoming limp in his arms, yet refusing to release her lover, refusing to leave his side for this one moment.  
+“我知道，我知道，”真嗣回应着，将这位德国女子拥入怀中，轻抚她的腰侧和背部。他感觉到纤细的手臂环抱住他的腰间，将他紧紧拉向未婚妻的胸前，她那略显柔软的身体，将头发靠在他的下巴下方，全身放松地依偎在他怀里，却仍不愿放开她的爱人，不愿在这一刻离开他的身边。
+
+The feeling would have lasted an eternity had the scents of delicious foods not wafted into Asuka's nostrils. "What's that?" she asked, perking up.  
+若非美味食物的香气飘入明日香的鼻中，这种感觉本会持续永恒。“那是什么？”她好奇地问道，精神为之一振。
+
+"I told you I cooked food for you. I thought you said you weren't hungry," Shinji replied, slyly.  
+“我告诉过你我为你做了饭。我记得你说你不饿，”真嗣狡黠地回答。
+
+"Oh, shut up! Dummkopf! I'm pregnant for God's sake! I'm not hungry, but she is." Asuka gestured toward her belly, which stuck out ever so slightly.  
+“哦，闭嘴！笨蛋！看在上帝的份上，我怀孕了！我不饿，但她饿了。”明日香指了指她微微凸起的腹部。
+
+"You mean he." "你是说他。"
+
+"I mean she!" "我是说她！"
+
+"He."
+
+"She!" "她！"
+
+"He!"
+
+"She!" "她！"
+
+"He!"
+
+"She!" "她！"
+
+"You're arguing like an old married couple," Mr. Langley shouted from the kitchen.  
+"你们吵得像对老夫老妻似的，" 兰利先生从厨房喊道。
+
+"Shut up!" the two of them shouted, mutually at the man who had helped make the meal Shinji prepared possible.  
+"闭嘴！" 两人同时对着那个帮助完成了真嗣准备饭菜的男人喊道。
+
+Mr. Langley laughed. "How long must I wait here, anyway?"  
+兰格利先生笑了。"反正我得在这里等多久？"
+
+"Oh, hang on a second!" Asuka snapped. She turned to Shinji, and smirked, slightly. "Guess we'll settle this debate another time."  
+"哦，稍等一下！" 明日香厉声说道。她转向真嗣，微微一笑。"看来我们得改天再解决这场争论了。"
+
+"Alright, sounds good to me."  
+“好的，听起来不错。”
+
+The two of them descended the stairway, and Shinji lead Asuka into the kitchen. For a moment, all she could do was stare at the feast presented before them, a series of dishes and plates of all sorts there before them. Hot, steamy rice was pilled up on a rather large, ornate bowl Shinji had found in the back of one of the cabinets (apparently, according to Mr. Langley, it had belonged to Asuka's mother, who was part Japanese herself), mounds of sausages that still sizzled in their serving plates, rows of teriyaki chicken and sushi, fish and miso soup, weinersnitzel and strudle, and other dishes that all looked delicious. The scents wafted through the air, like a cornucopia of deliciousness.  
+两人走下楼梯，真嗣领着明日香进了厨房。一时间，她只能盯着眼前丰盛的宴席，各式各样的菜肴和盘子摆在他们面前。热气腾腾的米饭堆在一个相当大且装饰精美的碗里，那是真嗣在橱柜后面找到的（据兰格利先生说，这曾是明日香母亲的，她自己也有日本血统），一堆堆仍在滋滋作响的香肠，一排排照烧鸡和寿司，鱼和味噌汤，维也纳炸肉排和果馅饼，以及其他看起来都十分美味的菜肴。香气在空气中飘荡，宛如美味佳肴的丰饶之角。
+
+Asuka stared at the spread, speechless for a few moments, before replying, with a slight frown, "This is it?"  
+明日香盯着这一桌菜，一时无言，随后略带皱眉地问道：“就这些吗？”
+
+"Yeah, sorry," Shinji replied.  
+“嗯，抱歉。” 真嗣回答道。
+
+"I thought you'd do better, Shinji," Asuka replied, raising her nose to the air in disapproval, "I mean, really? The food looks undercooked."  
+“我还以为你能做得更好呢，真嗣，” 明日香回答道，不满地扬起鼻子，“我是说，真的吗？这食物看起来还没熟透。”
+
+"Asuka," Mrs. Langley mumbled under her breath as the redhead took her seat. Asuka reached out for her eating utensils, only to find, to the left of her plate, a spoon, to the right a fork and knife, and behind the plate a pair of chopsticks.  
+“明日香，” 兰格利夫人低声咕哝着，当红发女孩坐下时。明日香伸手去拿餐具，却发现她盘子左边是一个勺子，右边是一副刀叉，而盘子后面则是一双筷子。
+
+"Oh great! Now what do I eat with?" stammered Asuka, eventually choosing the chopsticks, "Only stupid Shinji the dork could make eating even more complicated than it has to be. Thanks a lot!"  
+"哦，太好了！现在我用什么吃呢？" 阿斯卡结结巴巴地说，最终选择了筷子，"只有愚蠢的笨蛋真嗣才会让吃饭变得更加复杂。真是谢谢你了！"
+
+"My pleasure," Shinji replied, grinning to himself.  
+"乐意效劳，" 真嗣回答道，暗自窃笑。
+
+After helping herself to a massive quantity of food, Asuka sampled each of the foods. She chewed slowly for each bite, as though she were savoring every taste that filled her mouth, dissolved slowly over her taste buds, filling her with a warmth unlike any other. She turned to Shinji, and said, in a high, critical tone, "This stuff tastes like dog food! I'm disappointed, Shinji! Really. It's so disgusting, I can't take another bite!" she added, right before shoving another piece of sausage straight into her open, welcoming jaws. "Unbelievable!"  
+阿斯卡自顾自地盛了一大堆食物，逐一品尝。她每一口都细嚼慢咽，仿佛在细细品味每一口食物在口中慢慢溶解，通过味蕾传递给她的温暖感觉，这种感觉与众不同。她转向真嗣，用一种高亢而挑剔的语气说道："这些东西吃起来像狗粮！我真失望，真嗣！真的。太恶心了，我一口都吃不下去了！" 她补充道，紧接着又把一块香肠直接塞进了她张开的大嘴里。"难以置信！"
+
+"I suppose I've failed you, then," Shinji replied, with a sheepish grin.  
+"我想我是让你失望了，" 真嗣回答道，脸上带着尴尬的笑容。
+
+"You can bet that much, idiot!" Asuka said before sipping down a spoonful of luscious miso soup, "Really, you need to learn how to cook better."  
+"你肯定失败了，笨蛋！" 明日香说着，喝了一口美味的味噌汤，"说真的，你得学学怎么把菜做得更好。"
+
+"I'll try." "我会努力的。"
+
+---
