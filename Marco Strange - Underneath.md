@@ -1318,3 +1318,32 @@ She then turned to the monitor and waited for the song to start.
 ---
 ### Chapter 10
 The song started with a slow piano intro as Asuka closed her eyes and took a breath. Shinji was wondering why she wasn't looking at the screen, but Asuka answered his question as the first lyric hit.
+随着明日香闭上眼睛深吸一口气，一曲缓慢的钢琴前奏响起。真嗣很奇怪她为什么不看屏幕。但当第一句歌词响起时，明日香回答了他的问题。
+
+_"__Look into my eyes_
+
+_You will see_
+
+_What you mean to me_
+
+_Search your heart_
+
+_Search your soul_
+
+_And when you find me there_
+
+_You'll search no more."_
+
+As Shinji looked at Asuka, he blushed. He had never heard her sing before, and he couldn't help but love how her voice sounded. Despite saying she'd never done karaoke before, she knew everything, such as the rhythm, volume, and the right note to sing.
+真嗣看着明日香，脸红了。他以前从未听过明日香唱歌，但他情不自禁地喜欢上了她的歌声。尽管明日香说她以前从未唱过卡拉 OK，但她对节奏、音量和正确的音符等一切都了如指掌。
+
+_"Don't tell me it's not worth tryin' for_
+
+_You can't tell me it's not worth dyin' for_
+
+_You know it's true_
+
+_Everything I do_
+
+_I do it for you."_
+
