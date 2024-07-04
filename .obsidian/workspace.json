@@ -36,8 +36,21 @@
                 "source": false
               }
             }
+          },
+          {
+            "id": "3660f98da3bd7fae",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "未命名.md",
+                "mode": "source",
+                "source": false
+              }
+            }
           }
-        ]
+        ],
+        "currentTab": 1
       }
     ],
     "direction": "vertical"
@@ -104,7 +117,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "Marco Strange - Underneath.md",
+                "file": "未命名.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -121,7 +134,7 @@
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "Marco Strange - Underneath.md",
+                "file": "未命名.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               }
@@ -144,7 +157,7 @@
             "state": {
               "type": "outline",
               "state": {
-                "file": "Marco Strange - Underneath.md"
+                "file": "未命名.md"
               }
             }
           }
@@ -165,11 +178,12 @@
       "workspaces:管理工作区布局": false
     }
   },
-  "active": "2f4432c7012e8683",
+  "active": "3660f98da3bd7fae",
   "lastOpenFiles": [
+    "Marco Strange - Underneath.md",
+    "未命名.md",
     "DeadlyPole - 🍋Shinji and Asuka.md",
     "Da Games Elite - The Little Angel.md",
-    "Marco Strange - Underneath.md",
     "Marshall Banana - Asuka Strikes.md",
     "Shizumaru - In other words.md",
     "Shizumaru - I Mustn't Run Away.md",
@@ -191,7 +205,6 @@
     "Lexarius - Unasked Advice - ROE.md",
     "evil chick - The Dreadful Project.md",
     "The Silent One1 - Asuka, My Love.md",
-    "FreckledBitches - 🍋This Love.md",
-    "Bardic Jester - ❤️This Way.md"
+    "FreckledBitches - 🍋This Love.md"
   ]
 }
