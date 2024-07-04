@@ -1937,3 +1937,274 @@ Smiling slyly, Asuka replied, "Dummkopf! If I started telling you everything wro
 "基本上是这样。现在去睡觉吧。我们还有两周就要去地狱了。"
 
 ---
+**Part 8 第八部分**
+
+"Attention passengers, we will be landing in Germany in approximately 10 minutes. Thank you for flying—"  
+女士们先生们，我们将在大约 10 分钟后降落在德国。感谢您的飞行——
+
+"Thank God we're here! My butt is so damn sore!" Asuka groaned, pushing herself up as she massaged her rear end.  
+"谢天谢地我们到了！我的屁股疼死了！" 明日香呻吟着，一边按摩着自己的臀部一边挣扎着站起来。
+
+"I don't think you should be getting up right now," Shinji replied, glancing over at his fiancé with a mildly concerned expression.  
+"我觉得你现在不该站起来，" 真嗣回答道，瞥了一眼他的未婚妻，脸上带着些许关切的表情。
+
+"And why not, you id—" The airplane their were currently inside tossed slightly, knocking Asuka back onto her seat. After the momentary expression of shock faded away, she stammered, struggling to revive her self-importance, "Oh, if you didn't catch me off guard like that, I wouldn't have fallen like that! You idiot!"  
+"为什么不行，你这个笨——" 他们所在的飞机轻轻颠簸了一下，把明日香又摔回了座位上。短暂的震惊表情过后，她结结巴巴地试图恢复自己的尊严，"哦，如果不是你让我措手不及，我才不会摔倒呢！你这个笨蛋！"
+
+Frowning, Shinji glanced up at his redhead fiancé. There was a note of anxiety in her eyes, a note of terror that Shinji couldn't explain. Sure, the memories of their last visit to Germany was bad, but surely, SURELY, that couldn't be the only reason Asuka didn't want to go to Germany, to return to her parents. Surely there was something else, surely some other motivation holding her back, another memory, one that she refused to let him know.  
+皱着眉头，真嗣抬头看向他的红发未婚妻。她的眼中流露出一丝焦虑，一丝真嗣无法解释的恐惧。确实，他们上次去德国的经历很糟糕，但肯定，肯定不会仅仅因为这个原因，明日香就不想回德国，不想回到她的父母身边。肯定还有别的原因，肯定有其他动机让她犹豫不前，有另一个她拒绝让他知道的记忆。
+
+Why wasn't she letting him in? He let her in all the time, but now when something was personal for her, she refused to let him know anything. She had been acting agitated all day, shouting at him the entire way up to the airplane.  
+为什么她不让他了解？他总是让她进入自己的内心，但现在当事情对她来说变得私人化时，她却拒绝透露任何信息。她一整天都表现得焦躁不安，从出发到登上飞机一路上都在对他大喊大叫。
+
+#
+
+"What are you? Stupid!? You need to get your passport!" Asuka had snapped at him, in a frustrated tone.  
+“你到底怎么了？蠢吗？！快去拿你的护照！”明日香恼怒地对他吼道。
+
+"Hang on! I'm just getting it out," Shinji had replied as the workers at the airport waited patiently for him to withdraw the document from his pant's pocket.  
+"等等！我正把它拿出来，" 真嗣回答道，机场的工作人员耐心等待着他从裤袋里取出文件。
+
+"Oh sure! Take your time, why don't you?" Asuka had groaned, shaking her head and tapping her feet in frustration, "You're taking too long! We're going to miss the plane if you take this up!"  
+"哦，当然！慢慢来，为什么不呢？" 明日香叹了口气，摇头跺脚，显得很不耐烦，"你太慢了！再这样下去我们要赶不上飞机了！"
+
+"Miss, you have another hour before your plane starts according to your ticket, so I think you can rest assured you'll arrive on time," the worker had said in an attempt to pacify the German.  
+"小姐，根据您的机票，您的航班还有一个小时才开始，所以您可以放心，您会准时到达的，" 工作人员试图安抚这位德国女孩。
+
+"Oh, shut up! What do you know?!"  
+"哦，闭嘴！你知道什么？！"
+
+"I work here." "我在这里工作。"
+
+"I have the passport! Here you are," Shinji said, handing the pass to the workers.  
+"我有护照！给你，" 真嗣说着，将护照递给了工作人员。
+
+"Oh sure, took you long enough! Dummkopf! What were you doing that whole time? Playing with yourself?"  
+"哦当然，你可真慢！笨蛋！你那段时间都在干嘛？自娱自乐吗？"
+
+"Ma'am, that's uncalled for language," one of the coworkers had stammered, shocked by what she was saying.  
+""女士，这种话不合适，"" 一位同事结结巴巴地说，对她的话感到震惊。
+
+"Oh shut up! Let's go, you stupid—"  
+"哦闭嘴！我们走，你这个蠢——"
+
+"I'm sorry ma'am, but you forgot to show us any identification."  
+"对不起，女士，但您忘记向我们出示任何身份证明了。"
+
+"Scheiße! Bumsen Sie Sie und Ihren Paß!"  
+"该死！去你的和你的护照！"
+
+After flashing her passport hastily, Shinji had turned to the rest of the workers, and had mumbled, anxiously, "Uh, we're going to see her parents."  
+在匆忙展示她的护照后，真嗣转向其他工作人员，紧张地咕哝道：“呃，我们要去见她的父母。”
+
+#
+
+And so, as the plane landed on German turf, Shinji watched Asuka rise from her seat, stretching her back as she snapped, "God damn air planes! These rides are too damn long. Why can't we just get Supersonic jets to bring us here?"  
+"于是，当飞机降落在德国的土地上时，真嗣看着明日香从座位上站起来，伸了个懒腰，抱怨道：“该死的飞机！这些航程太他妈长了。为什么我们不能用超音速喷气机直接飞过来？””
+
+"It's probably unhealthy for the baby," Shinji replied.  
+“可能对宝宝不好，”真嗣回答。
+
+"Oh, of course, Shinji here is a real protégée when it comes to babies! I don't see you getting pregnant!" Asuka snapped, placing a hand gingerly on the small bump on her torso, a slight convex bubble of life that was currently visible to the human eye. It wasn't large, and, to some, it might just look that Asuka had just put on a little bit of weight. And indeed, she had put on weight aside from the baby. Her arms and thighs had grown slightly thicker, though not enough to look even remotely overweight. It was just a little bit of fat, which was of course expected to form when a woman was pregnant.  
+"“哦，当然了，真嗣在这方面可是个真正的天才！我可没见你怀孕！”明日香反唇相讥，小心翼翼地把手放在她腹部微微隆起的小包上，那是一个目前肉眼可见的生命迹象。它并不大，对某些人来说，可能只会觉得明日香稍微胖了点。确实，除了宝宝，她的手臂和大腿也略微变粗了，但还不至于显得肥胖。只是多了些脂肪，当然，这在怀孕的女性身上是预料之中的。”
+
+As the couple walked, Shinji noticed, from the corner of his eyes, his fiancé stumble over a rather obviously placed cart. As she swore on the top of her lungs in German, Shinji wondered just why she hadn't noticed that thing there before. It wasn't out of sight or anything; it was right there. It was almost like walking headlong into a table or a wall. "Damn it," Asuka snapped, "Stupid toes! I knew I shouldn't of warn sandals to this stupid crapshoot of a country!"  
+"当这对情侣走着时，真嗣从眼角注意到他的未婚妻绊到了一个相当显眼的推车上。她用德语大声咒骂，真嗣不禁疑惑她之前怎么没注意到那东西。它并不隐蔽，就在那里，几乎像是迎面撞上桌子或墙壁。“该死，”明日香怒道，“蠢脚趾！我就知道不该穿凉鞋来这个该死的国家！””
+
+"Uh, Asuka, you need to relax a little—"  
+“呃，明日香，你需要放松一点——”
+
+"You shut up!" “你闭嘴！”
+
+"Yes ma'am!" “是的，女士！”
+
+After reaching the lobby of the airport, they found several people chattering in German. The cacophony was so disorienting that Shinji that he couldn't spot out the man holding a sign with their names on it a mere twenty feet away. His fiancé, irate and frustrated, grabbed him by the wrist, and pulled him toward the man standing their with that sign, clearly longing to be somewhere else, far away.  
+到达机场大厅后，他们发现许多人在用德语交谈。嘈杂声如此令人迷失方向，以至于真嗣没有注意到那个拿着写有他们名字的牌子、仅在二十英尺外的人。他的未婚妻既生气又沮丧，抓住他的手腕，把他拉向那个拿着牌子、显然渴望远离此地的人。
+
+"Dummkopf! What are you, stupid? Can't even see the sign when it's right in front of your eyes. You idiot!"  
+“笨蛋！你是不是傻？连眼前的牌子都看不见。你这个白痴！”
+
+"I'm sor—hey!" "对不起——嘿！"
+
+"Stupid idiot! Moron! Ugh!"  
+"笨蛋！白痴！呸！"
+
+The couple arrived at the side of the German with the sign, who spoke rapidly in harsh, frustrated German. Shinji could pick up on what he was saying rather easily. "How long do you expect me to wait, anyway? Thank God you're here."  
+这对夫妇来到了举着牌子的人身边，他用急促而沮丧的德语快速说着。真嗣很容易就能听懂他在说什么。“你到底要我等多久？谢天谢地你们终于来了。”
+
+"I'm sorry," Shinji stammered, in broken German, only for Asuka to shoot him a dirty look. She was training him against saying "sorry" all the time.  
+"对不起，" 真嗣结结巴巴地用德语说道，结果只换来明日香一个嫌弃的眼神。她正在训练他不要总是说"对不起"。
+
+Turning to the man, Asuka said, in a snappy tone, "Look, it's your job to hold the sign, right?"  
+转向那人，明日香用干脆的语气说道，"听着，举牌子是你的工作，对吧？"
+
+"Right." "对。"
+
+"So why're you complaining? You'll be paid overtime for your services, be able to buy your girlfriend a nice dress, whatever she wants. If you don't have a girl, then you'll just buy one. Knowing someone like you, that's probably the only way you'd get one with you people skills." The man struggled not to yell back as his lips twitched painfully. Shinji gave him credit for strength of will. "Good, now take us to the Langley Estate. Now."  
+"那你为什么抱怨呢？你的加班费会有的，还能给你女朋友买件漂亮的裙子，她想要什么就买什么。如果你没有女朋友，那就去买一个。像你这样的人，估计也只有这个办法能找到女朋友了。" 那人努力不让自己吼回去，嘴唇痛苦地抽搐着。真嗣佩服他的意志力。"很好，现在带我们去兰利庄园。立刻。"
+
+"Estate?" Shinji asked, "Are you rich or something?"  
+"庄园？" 真嗣问道，"你很有钱吗？"
+
+"Not specifically." "并不是特别有钱。"
+
+"Then why call it an es—"  
+"那为什么还叫它‘es—’"
+
+"Right this way," the man groaned.  
+"这边请，" 那人呻吟道。
+
+The ride from the airport was relatively long. In fact, Shinji wondered why they couldn't have arrived in an airport at least slightly closer to their destination. The forty-five minute drive was insanely long, especially with Asuka grumpily complaining about everything they saw as they passed by the industrialized cities. "They've cut down all those trees? That's just stupid! I remember there being a forest here, with huge trees! I mean, I remember climbing them and hanging on the branches as a kid. Why did they cut them down? Probably to make way for some stupid freeway or city skyscraper! Those stupid idiots! It's the same in Japan, though, those crazy Japanese stupid—" Shinji sort of just found her complaining to be just white noise after awhile, especially with the driver's radio blasting in the background and planes soaring overhead, cars honking and trucks mowing along, animals crying and humans laughing on the outside.  
+从机场出发的路程相当漫长。事实上，真嗣疑惑为什么他们不能选择一个至少离目的地稍近一些的机场。四十五分钟的驾驶时间长得离谱，尤其是明日香一路上对所见的一切都抱怨连连，当他们穿过工业化城市时。“他们把那些树都砍了？真是愚蠢！我记得这里曾有一片森林，有着参天大树！我小时候还爬过它们，挂在树枝上。他们为什么要砍掉？大概是为了给某个愚蠢的高速公路或城市摩天大楼让路！那些蠢货！不过日本也一样，那些疯狂的日本人真是—”真嗣渐渐觉得她的抱怨变成了背景中的白噪音，尤其是司机的收音机在背后轰鸣，飞机在头顶飞过，汽车鸣笛，卡车轰隆驶过，动物哀鸣，外面的人们欢笑。
+
+After an eternity, the car pulled up to a massive driveway that lead up to what looked like a rather large estate, as Asuka had implied. Chances are the house was supplied to the Langley's from the government as a reward for raising a pilot who had fought hard to resist Instrumentality and the Angels. From what Shinji knew, Germany had held the pilots in high esteem. The NERV branch in Germany often received awards, as Fuyutsuki observed constantly. He seemed to envy their success.  
+经过漫长的等待，车子终于驶入了一条宽阔的车道，通向一座看起来相当宏伟的庄园，正如明日香所暗示的那样。很可能这栋房子是政府作为奖励提供给 Langley 家的，以表彰他们培养出一位奋力抵抗使徒化和使徒的驾驶员。据真嗣所知，德国对这些驾驶员极为尊敬。德国的 NERV 分部经常获得奖项，这一点经常被冬月观察到。他似乎对他们的成功感到羡慕。
+
+"Well, here we are," the driver said, a note of relief in his voice as he turned around to the couple. "I'll go get your backs."  
+“好了，我们到了，”司机说道，声音中带着一丝轻松，他转过身来面对这对情侣。“我去帮你们拿行李。”
+
+"Thank you very much," Shinji replied, waiting for Asuka to say something in response. However, by the time the man left the vehicle, she was still silent. Shinji turned toward his fiancé, and saw her staring out the window at the large building that was her home. It was a true mansion, with turrets and everything, beautiful brick walls constructing the elaborate building, gargoyles and other beautiful ornaments resting on the peeks of the several pointed roofs, decorating the stunning faces of the building. And yet the German didn't seem to notice this at all.  
+“非常感谢，”真嗣回答道，等待着明日香回应些什么。然而，直到那人离开车子，她依然沉默不语。真嗣转向他的未婚妻，看到她正凝视着窗外，望着那座作为她家的大宅。那是一座真正的豪宅，有着塔楼和一切，精美的砖墙构建了这座复杂的建筑，石像鬼和其他美丽的装饰品点缀在多个尖顶的顶端，装饰着这座建筑令人惊叹的外观。然而，这位德国女孩似乎完全没有注意到这一切。
+
+Why was Asuka white in the face?  
+为什么明日香脸色苍白？
+
+Why was she trembling? 为什么她在颤抖？
+
+Why was she so cold?  
+为什么她如此冰冷？
+
+Shinji extended his hand, and pulled the redhead's into his, a concerned expression on his face. It had been years since she had last returned here. The post-Third Impact genocides and wars that broke out here had to be the least of the reasons for her not returning. Something else, something horrible, had happened here, something that happened in the house they were currently parked in front of. The German turned to make eye contact for a moment, a desperate look of longing in her eyes, unable to hide the desire for the Japanese boy to hug her, to hold her close, to tell he everything was going to be better. However, that sense of longing was soon swallowed up in a frustrated scowl, yet her narrowed eyes were unable to hide that melancholy gaze, the longing to be told she didn't need to leave the sanctuary of the vehicle, that she could just remain here for an eternity, away from the unknown fears of the house.  
+真嗣伸出手，将红发女孩的手拉入自己的手中，脸上带着关切的表情。自从她上次回到这里已经过去多年。第三次冲击后的种族灭绝和战争爆发，这些都不是她不回来的主要原因。还有别的事情，可怕的事情，发生在这里，就在他们现在停在前面的房子里。德国女孩转过头来，眼神中流露出渴望，无法掩饰她希望日本男孩拥抱她、紧紧抱住她、告诉她一切都会好起来的愿望。然而，这种渴望很快被一个沮丧的皱眉所吞没，尽管她眯起的眼睛无法隐藏那忧郁的目光，那种渴望被告诉她不需要离开车辆的庇护，可以永远留在这里，远离房子未知的恐惧。
+
+"What're you doing?" she spat, in a venomous tone, "Dummkopf! Stop looking at me like that!"  
+“你在干什么？”她带着毒辣的语气说道，“笨蛋！别那样看着我！”
+
+"Are you alright?" “你还好吗？”
+
+"Alright? What's wrong with you? Why would it look like I'm not alright, anyway?"  
+"没事吧？你哪里不对劲？反正怎么会看起来我不行呢？"
+
+"Well—" "嗯——"
+
+"Are you two going to get out of the car yet?!"  
+"你们俩还不打算下车吗？！"
+
+Asuka scowled at the driver, who was currently holding Asuka's entire cornucopia of bags on his back, and holding onto Shinji's single suitcase in his hand. "Jesus! Can't you be a little patient?"  
+明日香对司机皱起了眉头，司机此刻正背着明日香那一整袋的行李，手里还提着真嗣的一个手提箱。"天哪！你就不能稍微耐心点吗？"
+
+"Patient? Lady, you're impossible!"  
+“有耐心？女士，你简直不可理喻！”
+
+Shinji exited the car, holding the door open for her fiancé to follow. Any ordinary human would probably just leave the hotheaded redhead to her own devices, not really caring if she left the car at all, maybe hoping she didn't. For better or worse, Shinji wasn't an ordinary human being. He could see the pain the German was struggling to conceal. He knew her long enough to know that she was at her bitchiest when she was stressed out. Clearly something was stressing her out to near the breaking point. He knew better than to get in her way, but he also knew that it was best to be as nice as possible to the redhead, to treat her like a Princess in order to remind her that someone did care for her.  
+真嗣下了车，为她未婚妻扶着车门。换作普通人，可能会任由那位脾气火爆的红发女子自行其是，并不真正在意她是否下车，甚至可能希望她别下车。但无论好坏，真嗣并非普通人。他能看出那位德国女孩正竭力掩饰的痛苦。他认识她够久了，知道她在压力山大时会变得格外刻薄。显然有什么事让她几乎到了崩溃的边缘。他知道最好不要挡她的路，但他也明白，对这位红发女子尽可能地温柔以待，像对待公主一样对待她，以提醒她有人在乎她，这是最好的办法。
+
+Usually that worked. 通常这招很管用。
+
+He hoped it would now.  
+他希望现在会是这样。
+
+Asuka hopped out of the vehicle, her gaze averted from all. She brushed a hand over her forehead, as though she were wiping sweat away. However, seeing as how it was reaching the month of December, and seeing as how Third Impact hard returned the Earth to its pre-Second Impact climate conditions, it was certainly rather chilly outside. However, only Shinji, standing beside the girl, could see the redhead's thumb brush against the corners of her eyes ever so slightly, so that the chauffeur behind them would be unable to see her brush aside the tears she cried.  
+明日香从车里跳了出来，目光避开所有人。她用手拂过额头，仿佛在擦汗。然而，既然已经接近十二月，而且第三次冲击已经将地球恢复到第二次冲击前的气候条件，外面的确相当寒冷。不过，只有站在女孩身边的真嗣能看到红发少女的拇指轻轻拂过眼角，这样司机就看不到她擦去泪水了。
+
+Shinji reached out for his fiancé, putting a hand on her shoulder, a reassuring hand that he hoped would relay the message to her, through her layers of pride and fuming frustration, that he was here for her. For a moment, all was still, much to the chauffeur's shock. However, after five seconds, the German girl brushed his hand aside, and mumbled, "I'm fine. Don't worry about me, you stupid idiot." With that, she took several steps closer to the house, her head lowered in resignation.  
+真嗣伸手去触碰他的未婚妻，将手放在她的肩上，一只充满安慰的手，他希望这能透过她的层层骄傲和愤怒传递给她，他在这里支持她。有那么一刻，一切都静止了，这让司机大吃一惊。然而，五秒钟后，德国女孩推开了他的手，低声说：“我没事。别担心我，你这个笨蛋。”说完，她向房子走近了几步，头低垂着，显得有些无奈。
+
+"She's your fiancé, right?" the chauffeur mumbled behind Shinji.  
+"她是你的未婚妻，对吧？" 司机在真嗣身后咕哝道。
+
+"Yeah, she is." "是的，她是。"
+
+"Uh-huh. If you don't mind me saying so, she's a complete bitch, but she has one sexy ass."  
+"嗯哼。恕我直言，她是个十足的婊子，但她有个火辣的屁股。"
+
+Shinji didn't need to defend his fiancé; she happened to turn around on the spot and throw a rock at him. It missed, but the man got the hint rather quickly, and shut his mouth.  
+真嗣不需要为他的未婚妻辩护；她恰好原地转身，朝他扔了一块石头。虽然没打中，但那男人很快就明白了意思，闭上了嘴。
+
+"Stupid idiots! I just hate stupid men!"  
+“愚蠢的白痴！我就是讨厌愚蠢的男人！”
+
+The trio, the chauffeur trailing behind with the added weight on his back, ascended a large stairway leading up to a pair of large oak doors. This was the threshold of the Langley estate, and now his fiancé was about to reunite with her parents for the first time in perhaps a decade; maybe more. Surely there was only one possible outcome for all this: a lot of problems.  
+三人组，司机背着额外的重量跟在后面，登上了一座通往一对巨大橡木门的大楼梯。这里是兰格利庄园的门槛，现在他的未婚妻即将与她的父母重逢，或许是十年来的第一次；甚至更久。毫无疑问，这一切只有一个可能的结果：很多问题。
+
+Asuka wrapped her knuckles against the door, and Shinji held his breath, waiting for the moment where all hell would break lose. Finally, however, the door opened, and, to Shinji's mild surprise, a 14 year old emerged from the depths of the house. The lithe child there before them had long strawberry blonde hair that trailed over her back in the form of two pigtails. Her sky blue eyes gazed up into Asuka's own eyes of the same color, and the two stared at one another for a few moments. Finally, the younger girl smiled. "Sis?"  
+明日香用指节敲了敲门，真嗣屏住呼吸，等待着即将爆发的混乱时刻。然而，门终于打开了，让真嗣略感惊讶的是，一个十四岁的女孩从屋子的深处走了出来。站在他们面前的这个纤细的孩子，有着一头长长的草莓金色头发，扎成两条辫子垂在背后。她那湛蓝的眼睛与明日香同样颜色的眼睛对视着，两人凝视彼此片刻。最终，小女孩笑了。“姐姐？”
+
+"Kate? That you?" Asuka asked, nonchalantly in a surprisingly comfortable tone, "You've grown."  
+“凯特？是你吗？”明日香以一种出乎意料轻松的语气问道，“你长高了。”
+
+"Uh-huh, and not just my height. My figure's spilled out as well, you know," Kate replied.  
+“嗯哼，不只是身高，我的身材也丰满了不少，你知道的。”凯特回答道。
+
+"Yup, that's her sister," Shinji mumbled, positive that Asuka had said something similar to that when he had first met her.  
+“嗯，那是她姐姐，”真嗣咕哝着，确信当初第一次见到明日香时，她说过类似的话。
+
+At the sound of Shinji's voice, Kat took a few steps forward, gazing at her future brother-in-law, examining him through narrowed eyes before mumbling, in a lackluster tone, "That's him? The Third Child? He's kinda plain lookin', don't ya think?"  
+听到真嗣的声音，凯特向前走了几步，盯着她未来的姐夫，眯起眼睛打量了一番，然后用无精打采的语气咕哝道：“就是他？第三适格者？看起来挺普通的，你不觉得吗？”
+
+"Kate, please, remember that appearances aren't everything when it comes to true romance." At once, Shinji noticed, from the corner of his eye, Asuka jump suddenly and sharply, as though ice had been applied to the back of her neck. She gazed at the woman standing in the doorway, and, as her eyes grew wide, Shinji followed their trail to the woman standing there before them. She was an icy looking blonde, her hair all wrapped up into an elaborate high bun. Her pale skin complemented her green eyes, which was in stark contrast to her daughter's eyes or her step-daughter's. She looked older, like in her late forties or early fifties, and yet was rather beautiful in her aged state. Shinji was sure she was quite a looker even ten years prior, maybe a rival to Asuka. That being said, there was a chill about the woman he just couldn't place, but he knew he didn't like it.  
+“凯特，请记住，真正的浪漫并不仅仅关乎外表。” 瞬间，真嗣注意到，从眼角余光中，明日香突然猛地一跳，仿佛脖颈后被冰块触碰一般。她凝视着站在门口的女人，随着她的眼睛睁大，真嗣顺着她的视线望向站在那里的女人。她是一位冷艳的金发女郎，头发高高盘成一个复杂的发髻。她苍白的肌肤与绿色的眼睛相得益彰，与她女儿或继女的眼睛形成鲜明对比。她看起来年长，大约四五十岁，但在她这个年纪依然相当美丽。真嗣确信她十年前也一定是个美人，或许能与明日香匹敌。尽管如此，这位女士身上有一种他无法言明的寒意，但他知道他并不喜欢这种感觉。
+
+Asuka, however, looked like she was beaming. "Hello, mother!"  
+然而，明日香看起来却像是容光焕发。“你好，妈妈！”
+
+"My dear step-daughter, I haven't seen you in ages." The mother approached her stepdaughter, and pulled her into a deep embrace. The German girl returned the favor, but only after a second passed after the gesture had been initiated. The hug, though, was surprisingly brief, and the two woman began laughing amongst themselves. "I see you've grown out your hair, and your body has grown into that of an eloquent young lady."  
+"亲爱的继女，好久不见了。" 母亲走向她的继女，将她紧紧拥入怀中。德国女孩稍作迟疑，片刻后才回应这个拥抱。然而，这个拥抱出乎意料地短暂，两人随即相视而笑。"看来你留长了头发，身体也长成了一个优雅的年轻女士。"
+
+"Lady? I don't know if I'm that great. I'd figure I'm still a girl physically."  
+"女士？我不确定自己是否配得上这个称呼。我觉得在身体上我还是个女孩。"
+
+"You look like a woman ready to be married. And this is my future son-in-law, correct?" Shinji hated when adults used the word "correct" when they could just use "right." "Correct" reminded him of his father.  
+"你看起来就像个准备好结婚的女人。这位就是我未来的女婿，对吧？" 真嗣讨厌大人们用"对吧"这个词，他们完全可以直接说"对"。"对吧"总让他想起他的父亲。
+
+"Yeah, that's right," Shinji said, putting a surprising emphasis on the "right."  
+"没错，" 真嗣说道，对"没错"这个词意外地加重了语气。
+
+"Well, I'm glad my daughter chose to marry such an important individual such as yourself," Asuka's stepmother said, a smile on her face, "I always knew she was destined for greatness, but to see her now to wed another one of this planet's saviors, I justfeel faint thinking of it. You must tell us everything over dinner tonight. Mr. Langley, as it were, is currently out on business, but should return tomorrow."  
+"我很高兴我的女儿选择了像您这样重要的人物结婚，" 明日香的后妈说道，脸上带着微笑，"我一直知道她注定会成就非凡，但看到她现在与另一位地球的救星结婚，我一想到这就感到头晕。今晚晚餐时，您一定要告诉我们所有的事情。拉格纳先生目前因公外出，但预计明天会回来。"
+
+"Oh, that's fine. Don't worry," Asuka replied, smiling, "Might be good for some catching up, right?"  
+"哦，那没关系。别担心，" 明日香笑着回答，"也许是个叙旧的好机会，对吧？"
+
+"Correct," Asuka's stepmother replied, "By the way, Shinji, was it?"  
+"没错，" 明日香的继母回答道，"顺便问一下，你是真嗣，对吧？"
+
+"That's right." "是的。"
+
+"Well, I would just like to know that if there is anything, and I mean anything, we can do to make your stay at our cozy little estate all the more enjoyable, please, do not hesitate to let us know."  
+"那么，我想知道，如果有任何事情——我是说任何事情——我们能做的，来让你的逗留在我们这温馨的小庄园更加愉快，请务必不要犹豫，告诉我们。"
+
+"Alright, I won't," Shinji replied, not trusting that woman for more than a second.  
+"好吧，我不会的，" 真嗣回答道，对那个女人连一秒钟的信任都没有。
+
+"Hey, lady, where do you want me to dump your crap?" the chauffeur mumbled under the weight of the bags.  
+"嘿，女士，你想让我把你的东西扔哪儿？" 司机在袋子的重压下咕哝着。
+
+Asuka glanced over at him, nonchalantly. "Oh, you? Dump them in wherever I'm staying. Uh, where is that again?"  
+明日香瞥了他一眼，漫不经心地说："哦，你？把它们扔到我住的地方。呃，那地方是哪儿来着？"
+
+"Third floor, first room on the right after you walk up the stairs," the stepmother replied, nonchalantly to the chauffeur.  
+"三楼，上楼梯后右手边第一间房，"继母漫不经心地对司机说道。
+
+"Thanks a lot," the man, clearly happy to drop the load off, darted toward the doorway.  
+"非常感谢，"那男人显然很高兴能卸下这负担，急忙朝门口走去。
+
+"Do you need any help?" Shinji asked the man, but his voice was drowned out by Asuka's voice.  
+"需要帮忙吗？"真嗣向那人问道，但他的声音被明日香的声音淹没了。
+
+"Hey guys, can we go get some water please? We're kinda parched," Asuka shouted, overwhelming Shinj's statement so the chauffeur couldn't hear him, couldn't hear his possible means from leaving he alone with her parents, Shinji assumed.  
+"嘿，伙计们，我们能去弄点水吗？我们都快渴死了，" 明日香大声喊道，盖过了真嗣的话，司机听不见他的可能的借口，无法听到他可能的借口，让他独自和她父母在一起，真嗣猜测。
+
+"Certainly. Kate will guide you there herself, won't you, Kate?"  
+"当然可以。凯特会亲自带你们去，对吧，凯特？"
+
+"Of course! Right this way."  
+"当然！这边请。"
+
+"Thanks a lot! Shinji, come with me!" Asuka grabbed Shinji by the wrist and, against his will, dragged him away from the spot, along with her, ensuring that, no matter where she went, he wasn't going anywhere more than five feet away from her in this house.  
+“真是太感谢了！真嗣，跟我来！”明日香抓住真嗣的手腕，不顾他的意愿，将他拖离了原地，带着他一起走，确保无论她走到哪里，他都不会在这房子里离她超过五英尺。
+
+This was going to be one long visit, wasn't it?  
+这趟拜访会很长，不是吗？
+
+---
