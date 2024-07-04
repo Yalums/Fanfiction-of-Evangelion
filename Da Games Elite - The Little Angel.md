@@ -257,3 +257,169 @@ The engagement ring around her finger was clear to see.
 
 So was that ring's partner on Shinji's finger.  
 那枚戒指在真嗣手指上的伴侣亦是如此。
+
+---
+**Part 2 第二部分**
+
+Leaving the bathroom, the young adult known as Shinji Ikari glanced down at the bed partially illuminated by the light filtering behind him. He watched the lovely German in his bed turn over, her scarlet hair twisting underneath her light weight, her flexed fingers pressed against her lips in her slumber, as though she were trying to pull herself into a loose fetal position. She moaned softly in the back of her throat as Shinji approached, sitting down gently beside her to avoid invoking her wrath. To think that, when they were young, Asuka wouldn't have even let him get THAT close.  
+离开浴室，被称为碇真嗣的年轻人瞥了一眼那张被身后光线部分照亮的床。他看着床上那位美丽的德国少女翻身，她那鲜红的头发在她轻盈的身躯下缠绕，弯曲的手指紧贴着嘴唇，仿佛在睡梦中试图将自己蜷缩成一个松散的胎儿姿势。随着真嗣的靠近，她喉咙深处发出轻微的呻吟声，真嗣轻轻地坐在她旁边，以免激起她的怒火。回想起来，在他们年幼时，明日香甚至不会让他靠得那么近。
+
+He would've been too terrified to even get NEAR her.  
+他本会害怕得连靠近她都不敢。
+
+Terrified? No, not really terrified, but just unwilling to hear her shout and scream like she used to do all the time. Sure, they were just teens in the years before Third Impact, but even so, he wondered if he had loved her even then. When all had gone to Hell as the clock was minutes to midnight, she was the one he went to, who he begged for help, for attention. It was always her, not Misato, not Rei, certainly not his father, her. Of course, then he had done that horrible thing to her, a thing that he felt disgusted by. His psychologists, as following the hell of Third Impact they were all given well-needed psychologists, told him that what he did was just an act after being forced to kill the one person who said he loved him after watching every one of those near and dear to Shinji either lose their minds, die, or emotionally abandon him. He was just desperate, and wasn't in a right state of mind to make proper decisions.  
+害怕？不，并非真的害怕，只是不愿再听到她像以前那样大喊大叫。没错，他们在第三次冲击前的那些年都还只是青少年，但即便如此，他不禁怀疑自己当时是否已经爱上了她。当一切陷入地狱，时钟即将敲响午夜的钟声时，他是去找她，向她求助，渴望她的关注。总是她，不是美里，不是丽，更不是他的父亲，是她。当然，后来他做了那件可怕的事，一件让他感到厌恶的事。在第三次冲击的炼狱之后，他们都得到了急需的心理医生，他们告诉他，他所做的一切只是在被迫杀死那个声称爱他的人之后的行为，眼看着身边亲近的人一个个精神崩溃、死去或情感上抛弃他。他只是绝望了，精神状态并不适合做出正确的决定。
+
+That being said, he still hated what he did.  
+尽管如此，他仍然憎恨自己所做的一切。
+
+He didn't have the right, no matter how the doctors rationalized, to masturbate over his comatose friends.  
+无论医生们如何合理化，他都没有权利对着昏迷的朋友自慰。
+
+He sat down next to the girl, only to tentatively reach out for her, but drew his hand away, despite the band around his finger that he had given to her one-month prior. He glanced at it, in a dazed sort of way, and remembered the preparation it took to actually gather enough courage to go and propose to the German. For someone like Shinji, that was easier said than done. It wasn't like he was completely pathetic, just somewhat pathetic. That's how Shinji saw it, anyway. The fact of the matter was that the German, the Second Child, Asuka, was, for all intents and purposes, a tough girl to understand. Even now, YEARS after they first met, he didn't know much about her. He knew that her mother had died, although he didn't know how, he knew she still didn't care for her stepmother, or to be honest any of her family, all that much, how she still prided herself on her abilities as an Eva Pilot despite not being in the cockpit of the Eva for at least a decade, but most of what he knew of her was from the period of time he had spent with her.  
+他坐在女孩旁边，小心翼翼地伸出手去触碰她，却又缩了回来，尽管手指上还戴着一个月前他送给她的戒指。他有些茫然地看了一眼戒指，想起了当初鼓起勇气向那位德国人求婚所做的准备。对于真嗣这样的人来说，说起来容易做起来难。他并不完全可悲，只是有点可悲。至少真嗣自己是这么看的。事实是，那位德国人，二号适格者明日香，从各方面来说都是一个难以理解的女孩。即使现在，在他们初次相遇多年之后，他对她的了解依然不多。他知道她的母亲去世了，虽然不知道原因，他知道她仍然不喜欢她的继母，或者说她对任何家人都不太在意，她仍然以自己作为 EVA 驾驶员的能力为傲，尽管至少十年没有驾驶过 EVA 了，但他对她的了解大多来自与她共度的那段时间。
+
+As he laid down beside her, his mind wandered away, off into a distant time, years ago, until he had returned to that blood-red sea and dead looking beach, with the massive pieces of Rei Ayanami's naked body, pieces that dwarfed skyscrapers, drifting eerily in the water, buoyant somehow despite their mass. The girl known as Asuka Langley Sohryu was currently sleeping on the sand. It had probably been a few weeks since she had returned, for, despite still being in that red plug suit of hers, stained with even darker crimson blood, Shinji had removed the bandages around her arm and the eye patch on her eye. Although surgery had rid the German of any trace of these injuries, back then, they were infected and flaming. Her arm, the arm that had been bisected in her final battle, had somehow healed up down the middle, but not without leaving a great big scar. Her eye, gouged out in that same battle, had partially healed when she returned from the sea of LCL. Although the eyeball itself occupied her eye socket, it was completely blind, and, occasionally, she cried crimson tears. However, what agonized the scarlet haired girl the most was her organs.  
+当他躺倒在她的身旁，思绪飘散，穿越时空，回到多年前，回到那片血红的海与死寂的沙滩，巨大的绫波零裸体残骸，其体积超越摩天大楼，诡异地漂浮在水中，尽管质量巨大却不知为何能浮起。被称为惣流·明日香·兰格雷的女孩此刻正躺在沙滩上沉睡。她归来可能已有数周，因为尽管仍穿着那件沾满更深暗红血迹的红色插入栓服，真嗣已将她手臂上的绷带和眼上的眼罩取下。虽然手术已让这位德国少女身上再无这些伤痕的痕迹，但那时，它们感染严重，如火焚身。她那在最终战斗中被斩断的手臂，不知怎的从中线愈合，却留下一道巨大的疤痕。那只在那场战斗中被挖出的眼睛，从 LCL 之海归来时已部分愈合。虽然眼球占据了眼窝，却完全失明，偶尔还会流出鲜红的泪水。然而，最令这位红发少女痛苦的是她的内脏。
+
+In the battle with the Mass Production Evas, Asuka's Evangelion had been disemboweled. Due to the great level of synchronization with her Eva, her organs too had been skewered inside of her body. At least that's how Asuka had explained it after she had recovered from the shock of dying and returning to life in this Hell. Shinji wasn't sure just how much damage Asuka had retained in her returning to life, and he was not knowledgeable when it came to the human anatomy.  
+在与量产型 EVA 的战斗中，明日香的 EVA 被开膛破肚。由于与她的 EVA 高度同步，她的内脏也被刺穿在体内。至少明日香在从死亡和重生于这个地狱的震惊中恢复后是这样解释的。真嗣不确定明日香重生后还保留了多少伤害，他对人体解剖学也不甚了解。
+
+All he knew was that, when she cried out in pain and began gagging on her own blood, he was afraid.  
+他所知道的是，当她痛苦地呼喊并开始咳血时，他感到害怕。
+
+Shinji had weaved a makeshift blanket together using reeds he had found on the side of the beach. It was sloppy, ill-made, but it was enough to keep one warm in the cold nights on that beach, waiting for someone else to return. Crabs and other sea animals had returned, so surely living humans were next. He had glanced over at Asuka, who was tossing and turning on the sandy beach. He had approached her, and, tentatively, laid the blanket over her, the stiff reeds splintering as he attempted to tuck the blanket around her, hoping it would keep her warm.  
+真嗣用他在海滩边找到的芦苇编织了一条临时毯子。虽然做得粗糙，但足以在海滩上寒冷的夜晚保暖，等待其他人归来。螃蟹和其他海洋生物已经回来了，所以活人应该也快了。他瞥了一眼在沙滩上辗转反侧的明日香。他走近她，试探性地把毯子盖在她身上，试图用僵硬的芦苇将毯子围在她周围，希望这能让她保持温暖。
+
+He needed her. 他需要她。
+
+He needed someone. 他需要某个人。
+
+Before he could finish covering her cold svelte body with the reeds, however, her eyes snapped open. She pushed herself up, ripping the reed blanket to pieces. Shinji had watched as all that hard work, all that time and effort putting together some sort of protection from the cold environment, turn out to be all for naught. Shinji didn't even see Asuka vomit a profuse amount of blood as she gasped for air, crying to herself as she squeezed her side. He only noticed her plight when she fell to the ground, twitching slightly on the floor.  
+然而，在他用芦苇覆盖她冰冷纤细的身体之前，她的眼睛突然睁开了。她猛地坐起身，将芦苇毯撕成碎片。真嗣眼睁睁看着自己辛苦编织的、为了抵御寒冷环境的保护措施化为乌有。他甚至没注意到明日香在喘息中吐出大量鲜血，一边哭泣一边紧按着侧腹。直到她倒在地上，微微抽搐时，他才注意到她的困境。
+
+"Asuka!" he had shouted, darting to her side, reaching out for her.  
+"明日香！" 他大喊着，疾步冲到她身边，伸出手想要触碰她。
+
+He slapped his hand away.  
+他猛地拍开了他的手。
+
+"Don't touch me," Asuka whispered in her weak voice, between gasps of air, "Don't get near me. Don't look at me. I don't want to see your disgusting face ever again."  
+"别碰我，" 明日香用微弱的声音低语，每说一句都伴随着急促的呼吸，"别靠近我。别看我。我再也不想看到你那张令人作呕的脸。
+
+Shinji could only stare in shock. All he wanted to do was help her. That was it. It couldn't be a sin to want to help the only other human being alive with him, right? Surely she didn't have to be this cruel, this harsh, to him. All he wanted to do was help. That was it. Just help out a little bit, and she was hurting him. "But I—"  
+"真嗣只能震惊地盯着她。他只想帮助她，仅此而已。想要帮助唯一与他共存的另一个人类，这怎么可能是罪呢？她肯定不必对他如此残忍，如此严厉。他只想帮忙，仅此而已。只是想帮一点忙，而她却在伤害他。“但我——””
+
+"Don't speak!" Asuka shrieked, only to vomit out blood once more.  
+“别说话！”明日香尖叫道，随即再次吐出鲜血。
+
+"You're—" Shinji was interrupted when Asuka slammed her backhand across his face. He fell against the sandy floor, his face red, his lip bleeding slightly.  
+“你——”真嗣话未说完，就被明日香一记反手扇在脸上。他跌倒在沙地上，脸颊通红，嘴唇微微出血。
+
+"This is all your fault," Asuka mumbled, barely able to speak as she quivered in pain, clutching herself as she tried to steady herself, "All your fault. You let them kill me. You let them kill mama. And all you did was just sit there on your ass and listen to them rip me to shreds! You didn't do anything! You could have helped, stopped them from eating me or disemboweling me or stabbing me, but oh no! You chose to come out once I was in shreds! You bastard! You let mama die!"  
+"这都是你的错，" 明日香喃喃自语，痛苦得几乎无法言语，她颤抖着，紧紧抱住自己试图稳定下来，"都是你的错。你让他们杀了我。你让他们杀了妈妈。而你只是坐在那里，听着他们把我撕成碎片！你什么都没做！你本可以帮忙，阻止他们吃掉我或开膛破肚或刺伤我，但是哦不！你选择等我被撕成碎片后才出现！你这个混蛋！你让妈妈死了！"
+
+"Mama?" To this day, Shinji had no idea what she was talking about. He assumed she was a little hysterical, maybe even a tad confused, following her death. He wouldn't know. Unlike her, he had never died.  
+"妈妈？" 直到今天，真嗣仍不明白她在说什么。他猜想她可能有点歇斯底里，甚至有些混乱，毕竟她刚经历过死亡。他无从得知。与她不同，他从未死过。
+
+Asuka fell to her knees, holding herself weakly as she whispered, softly, "Mama, I'm ready. Please, let's die together. Please. Just this once. Please? I'm ready now, mama."  
+明日香跪倒在地，虚弱地抱着自己，轻声细语，"妈妈，我准备好了。请，让我们一起死吧。请。就这一次。好吗？我现在准备好了，妈妈。"
+
+"What's wrong?" “怎么了？”
+
+Shinji woke up, sweating profusely, as he turned to see Asuka, a confused expression on her face, in his bed, not vomiting blood, not hitting him violently, not begging to die with her mother, but just there, staring at him, an eyebrow raised. "Huh? What do you mean by that?" Shinji finally managed to say, knowing full well he must have been tossing and turning in bed.  
+真嗣醒来，满头大汗，转身看到明日香在他床上，脸上带着困惑的表情，没有吐血，没有暴力地打他，没有哭喊着要和母亲一起死，只是在那里，盯着他，眉毛一挑。“嗯？你什么意思？”真嗣终于开口说道，他很清楚自己肯定在床上辗转反侧。
+
+"You were fidgeting around. You looked upset, like, really upset. I mean, were you having another flashback or something?"  
+“你在床上动来动去的。看起来很不安，真的非常不安。我是说，你是不是又在做噩梦了？”
+
+"Yeah, I guess," Shinji confessed.  
+"是啊，我想是吧，" 真嗣坦白道。
+
+"You guess, huh? That just figures. Getting all nostalgic on us once Hikari has a baby. Typical." She sighed, resting a hand on her breasts as she asked, calmly, "So what was it this time?"  
+"你只是猜猜，嗯？这很正常。一旦光有了孩子，就开始对我们怀旧。典型的。" 她叹了口气，一手放在胸前，平静地问道，"这次又是什么？"
+
+"I don't remember—" "我不记得了——"
+
+"C'mon! You know you're not going to feel any better unless you talk about it, and besides, what kind of an answer is you don't remember anyway!? That's like freaking telling someone that you heard a really big secret and you said, 'Oh! I can't tell you! It's a secret!' You don't just start talking about something only to stop talking about it five seconds later! It's a freakin' tease!"  
+"来吧！你知道不谈出来你不会感觉好些的，再说了，‘我不记得了’这种回答算什么嘛！这就像你听到了一个大秘密，然后说，‘哦！我不能告诉你！这是秘密！’你不能只开了个头，五秒钟后就闭嘴不谈了！这简直是耍人嘛！"
+
+Resigning, he said, simply, "The beach."  
+他无奈地叹了口气，简单地说：“海边。”
+
+"Oh, that." Her face deflated somewhat. "That was years ago, and you know it."  
+"哦，那个啊。" 她的表情有些泄气。"那是好几年前的事了，你也知道。"
+
+"I know, but still, you were so—"  
+"我知道，但还是，你当时那么——"
+
+"You know, these blankets sure are heavy," Asuka interrupted, pulling herself out of bed, "It's getting hot in there."  
+"你知道吗，这些毯子确实很重，" 明日香打断道，从床上爬起来，"里面越来越热了。"
+
+"What do you mean? The blankets are perfectly fine," Shinji replied, confused.  
+"你什么意思？毯子明明很好啊，" 真嗣回答，感到困惑。"
+
+"Oh, I guess I won't take them off, then," Asuka replied, simply, as she removed her shirt.  
+"哦，那我就不脱了。" 明日香简单地回答，同时脱下了她的衬衫。
+
+"What're you doing!?" Shinji stammered, staring at her incredulously.  
+"你在干什么！？" 真嗣结结巴巴地说，难以置信地盯着她。
+
+"I'm taking my clothes off, what does it look like?" she replied, simply.  
+"我在脱衣服，你看不出来吗？" 她简单地回答。
+
+"Yeah, I can see that, but why!?"  
+"是啊，我能理解，但为什么！？"
+
+"Well, if you won't let me take off the blanket, how else do you expect me to cool down?" she asked, simply.  
+""好吧，如果你不让我掀开毯子，那你还指望我怎么降温呢？"" 她简单地问道。
+
+"Well—" "嗯——"
+
+"What? Afraid to sleep with a woman without any clothing on?" she teased, in a mocking tone.  
+"什么？怕和一个没穿衣服的女人睡觉吗？" 她用嘲弄的语气逗弄道。
+
+Feeling a minor sensation of déjà vu, Shinji replied, indignantly, "No! I'm not afraid! Go ahead and strip! See what I care!"  
+感到一丝似曾相识的感觉，真嗣愤愤不平地回答："不！我不怕！尽管脱吧！看我会在乎吗！"
+
+"Okay," she replied, in a surprisingly pleased tone. She ripped the remainder of her clothing off, revealing her naked form, save for her bra and panties. Shinji noticed the long thin scar that ran up her torso. When doctors and hospitals began to return, they had operated on her. It wound up that numerous organs had been damaged. It was a miracle she had survived for weeks on the beach like that. They told her that she must have someone high up looking after her.  
+"好吧，" 她以出乎意料的愉快语气回答。她撕掉了剩下的衣服，除了胸罩和内裤外，全身赤裸。真嗣注意到她躯干上那条细长的疤痕。当医生和医院开始恢复运作时，他们为她做了手术。结果发现她的多个器官受损。她能在海滩上存活数周简直是个奇迹。他们告诉她，一定是有位高层在守护着她。
+
+She said it was her mama.  
+她说那是她妈妈。
+
+"Okay, now don't think anything dirty or I'll kill you," Asuka replied as she curled up next to Shinji, pressing her cheek to his bosom.  
+"好了，现在别想什么乱七八糟的，不然我杀了你，" 明日香一边回答，一边蜷缩在真嗣旁边，将脸颊贴在他的胸膛上。
+
+"Uh—" With that statement, Shinji's eyes focused on his fiancé's cleavage. He couldn't help it! You couldn't just say "Don't think dirty thoughts" and NOT attract a man's attention to those key locations. He hated himself for it, but he couldn't help it. She didn't help situations, either, when she began to glare at him through narrowed eyes, her nails digging into his chest, with a look that clearly expressed her utmost desire to strangle him.  
+"呃——" 听到这话，真嗣的目光不由自主地落在了未婚妻的胸前。他控制不住自己！你不能说“别想歪念头”却不引起男人对那些关键部位的注意。他为此感到厌恶自己，但他就是控制不住。她也没让情况好转，当她开始眯起眼睛瞪着他，指甲掐进他的胸口，那眼神明显表达了她最强烈的愿望——掐死他。
+
+"You're thinking something dirty, aren't you?"  
+"你在想什么不正经的事，对吧？"
+
+"Sorry?" Shinji replied, inching away slowly from Asuka. He watched as his fiancé's fist rose into the air, through the blankets, as he lightly punched his shoulder.  
+"什么？" 真嗣回答道，慢慢地从明日香身边挪开。他看着未婚妻的拳头穿过毯子，轻轻地打在他的肩膀上。
+
+"I'll kill you in the morning, okay?"  
+"我明天早上就杀了你，好吗？"
+
+"Alright?" "还好吗？"
+
+"Hey, Shinji?" "嘿，真嗣？"
+
+"Yeah?" "嗯？"
+
+"I'm freezing! Taking off my clothes was not a bright idea. Can I get a little closer?"  
+"我快冻僵了！脱掉衣服真不是个好主意。我能靠得近一点吗？"
+
+"Uh, okay." "呃，好吧。"
+
+"Thanks." The German moved closer, inching closer and closer until he could feel her breasts press against his chest, her soft torso pressed up against his, her firm legs wrapped around his, her arms curled around his chest. He always knew that Asuka was about as tall as he was, but to have her up against him like this just proved to him that either he was a small guy or she was a pretty tall woman. After a few moments, she murmured, "Your breath is tickling me."  
+"谢谢。" 德国人挪得更近了，一点点靠近，直到他能感觉到她的胸部紧贴着他的胸膛，柔软的身躯紧贴着他，结实的双腿环绕着他，双臂环抱着他的胸膛。他一直知道明日香和他差不多高，但像这样紧贴着他，只是证明了他要么是个小个子，要么她是个相当高的女人。过了一会儿，她低声说："你的呼吸在逗弄我。"
+
+Shinji knew he had experienced this once before. This sounded so oddly familiar, but he just couldn't place the—wait a second! Asuka had said all of this sort of stuff before their first kiss together! She had used some sort of excuse to find themselves into a situation to reach her designated goal, in that case kissing him, goaded him into going her way by calling him afraid, and had even said how Shinji's breath tickled her. The only question is why would do something like that right now? What did she have to gain by stripping almost completely naked in bed with Shinji almost immediately after Hikari had a baby, which could only be created by having—  
+真嗣知道他以前经历过这种情况。这听起来如此熟悉，但他就是想不起来——等等！明日香在他们第一次接吻之前说过类似的话！她用某种借口让自己陷入一种情境，以达到她的预定目标，在那次是吻他，用他害怕来激他，甚至还说过真嗣的呼吸逗弄她。唯一的问题是，她现在为什么要这么做？在光莉刚生完孩子之后，她几乎全裸地和真嗣躺在床上，这只能是通过——
+
+Oh.
+
+---
