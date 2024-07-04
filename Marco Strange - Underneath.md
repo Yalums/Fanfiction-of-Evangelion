@@ -412,3 +412,138 @@ Shinji's eyes shot open, surprised. Normally, Asuka would only call him by his d
 “看到一切如常，真好。”Misato 微笑着跟在他们身后。
 
 ---
+### Chapter 4
+It had been a week since defeating the Angel, and Shinji and Asuka were back at school. For the most part, everything was the same as usual. Currently, it was lunchtime, and everyone was getting ready to eat.  
+自从击败使徒已经过去了一周，真嗣和明日香回到了学校。大部分时间里，一切如常。现在是午餐时间，大家都准备用餐。
+
+"You made a lunch for me, right?" Asuka walked up next to Shinji's desk.  
+“你给我做了便当，对吧？”明日香走到真嗣的桌旁。
+
+"Of course." Shinji pulled out a bento for her.  
+“当然。”真嗣拿出一个便当盒递给她。
+
+"What did you pack this time?" Asuka took it from him and looked at it.  
+"这次你带了什么？" 明日香从他手中接过，看了看。
+
+"Well, I tried a couple of new things I thought you'd like." Shinji smiled.  
+"嗯，我尝试了几样新东西，觉得你会喜欢。" 真嗣微笑道。
+
+"Like what?" Asuka began to open the bento. As Shinji was talking to Asuka, Touji and Kensuke were looking at them.  
+"比如什么？" 明日香开始打开便当。与此同时，真嗣在与明日香交谈时，东治和健介正看着他们。
+
+"Is it just me, or is Shinji acting off?" Toji watched him with his arms crossed.  
+"是我多心了吗，还是真嗣的行为有点不对劲？" 阿薰双臂交叉，注视着他。
+
+"Maybe Shinji really has a crush on her." Kensuke shrugged. "I can't say I blame him."  
+"也许真嗣真的对她有意思。" 健介耸了耸肩。"我倒不觉得奇怪。"
+
+"I swear, there's something wrong with the both of you if that is the case." Toji facepalmed. "I don't know what you and Shinji see in that she-devil."  
+"我发誓，如果真是那样，你们俩肯定都有问题。" 阿薰捂脸。"我不知道你们和真嗣在那女魔头身上看到了什么。"
+
+"Hey, be nice." Hikari sat next to them. "Asuka is a friend, and she's actually nice when you get to know her."  
+"嘿，友好点。" 光坐在他们旁边。"明日香是朋友，其实你了解她后会发现她很友善。"
+
+"That's what I don't get, though. Look at them." Toji pointed at Shinji and Asuka, and the others turned towards them.  
+"可我就是不明白，看他们。" 冬二指着真嗣和明日香，其他人也转向他们。"
+
+"How did you forget to pack me a chocolate bar!?" Asuka stomped her foot and grabbed Shinji's shirt. "I told you I love a snack with my meal, and you forgot it!"  
+"你怎么忘了给我带巧克力棒！？" 明日香跺着脚抓住真嗣的衬衫。"我告诉过你我喜欢在餐点时吃点零食，你却忘了！"
+
+"I'm sorry. I thought we had some at home." Shinji looked down as Asuka kept starring at him. "I promise I'll buy some after school today."  
+"对不起，我以为家里还有。" 真嗣低头看着明日香，她一直盯着他。"我保证放学后会去买一些。"
+
+"Well, at least you're not just saying sorry as a reflex." Asuka sighed as she sat down and started eating. "You're lucky you're such a good cook."  
+"好吧，至少你不是条件反射地说对不起。" 明日香叹了口气，坐下来开始吃饭。"你真幸运，厨艺这么好。"
+
+"Thank you." Shinji smiled as he sat down and started eating.  
+"谢谢。" 真嗣微笑着坐下，开始吃饭。
+
+"Okay, I see Toji's point now." Kensuke adjusted his glasses. "When Asuka first came to our school, they would argue. Now he seems to take it whenever she's like that."  
+“好吧，我现在明白 Toji 的观点了。” Kensuke 调整了一下眼镜。“当 Asuka 刚来我们学校时，他们会争吵。现在他似乎每次都能忍受她那样。”
+
+"Maybe I should talk to her." Hikari looked at her friend. "I hope she's not taking advantage of Shinji being kind to her."  
+“也许我应该和她谈谈。” Hikari 看着她的朋友。“我希望她没有利用 Shinji 对她的善意。”
+
+"I'm going to talk to Shinji too." Toji crossed his arms. "Something's going on, and I want to know what it is."  
+“我也打算和 Shinji 谈谈。” Toji 交叉双臂。“有些事情正在发生，我想知道是什么。”
+
+School had ended for the day, and everyone was getting ready to head home. It was another sunny day in Tokyo-3, and everyone was getting ready for whatever they had planned for the rest of the day.  
+学校的一天结束了，大家都准备回家。东京-3 又是一个阳光明媚的日子，每个人都准备好了他们计划好的余下活动。
+
+"This time, I'll make sure you don't forget." Asuka was putting her shoes on. "It's not a complete meal unless you have a snack."  
+“这次，我会确保你不会忘记。”明日香正在穿鞋。“没有点心，就不算一顿完整的饭。”
+
+"I know." Shinji got his shoes on and was ready to head out. As both exited the school, they heard a familiar voice.  
+“我知道。”真嗣穿好鞋，准备出发。两人走出学校时，听到了一个熟悉的声音。
+
+"Hey, Asuka." Hikari walked up as Asuka turned to face her. "Want to hang out? I have a lot of free time today and thought we could do something."  
+"嘿，明日香。" 光莉走过来，明日香转身面对她。"想一起玩吗？我今天有很多空闲时间，想着我们可以做点什么。"
+
+"Oh, sure, Hikari." Asuka walked to her and then turned to face Shinji one last time. "As I said, don't forget to buy some chocolate on your way home."  
+"哦，当然，光莉。" 明日香走向她，然后最后一次转身面对真嗣。"就像我说的，别忘了回家路上买些巧克力。"
+
+"I'll remember." Shinji smiled as he waved. Asuka just turned away and walked with Hikari. Shinji made his way to the store while Toji was following behind him.  
+"我会记住的。" 真嗣微笑着挥手。明日香只是转过身，和光莉一起走开。真嗣朝商店走去，而东治跟在他后面。
+
+"So, how are things with you, Asuka?" Hikari turned to look at her as they walked side by side. "I take it, piloting the Eva is going well."  
+"那么，最近怎么样，明日香？" 光转身看着她，两人并肩走着。"我想，驾驶 Eva 一定很顺利吧。"
+
+"Of course it is." Asuka smiled. "With an ace pilot like me, no one has to worry about the Angels."  
+"当然顺利。" 明日香微笑道。"有我这样的王牌飞行员在，没人需要担心使徒。"
+
+"That's good." Hikari giggled. "It's nice having another protector and friend."  
+"那就好。" 光咯咯笑道。"有另一个守护者和朋友在身边，感觉真好。"
+
+Asuka smiled back at her comment as both of them walked into a clothing store. Both of them were looking through different outfits to try on. Both took a few different ones and walked to the changing room area. Both got into stalls that were side by side.  
+明日香对她的话报以微笑，两人一同走进一家服装店。她们各自浏览着不同的服装准备试穿。各自挑选了几件后，走向更衣区。两人分别进入了相邻的试衣间。
+
+"Hey, Asuka, can I ask you something?" Hikari held up a dress she had picked out. It was a light blue sundress.  
+"嘿，明日香，我能问你件事吗？" 光手里拿着一件她挑选的裙子，那是一条淡蓝色的太阳裙。
+
+"Sure, what's on your mind?" Asuka started taking off her uniform.  
+"当然，你有什么心事吗？" 明日香开始脱下她的制服。
+
+"Ikari has been acting a little different around you. Is everything okay?" Hikari was looking herself over in the dress.  
+"碇君在你身边表现得有点不同。一切都还好吗？" 光子在镜子前打量着自己。
+
+"Shinji says he wanted to be nicer because he heard from my sweet Kaji-san that he was worried about me fitting in here." Asuka put on a pair of denim shorts she found. She was also looking herself over in the mirror.  
+"真嗣说他想对我好一点，因为他从我亲爱的加持先生那里听说，他担心我在这里适应得怎么样。" 明日香穿上了一条她找到的牛仔短裤。她还在镜子前打量着自己。
+
+"That's why Ikari has been nicer to you?" Hikari raised an eyebrow and looked at the wall where Asuka was changing.  
+"这就是为什么碇君对你更好了吗？" 光抬起眉毛，看着明日香正在换衣服的那面墙。
+
+"Yeah, and he's so much better now too." Asuka smiled as she put on a red tank top to go with the denim shorts. "He doesn't just say sorry as an automatic response and is going out of his way to make me happy."  
+"是啊，他现在也好多了。" 明日香微笑着穿上一件红色的背心，搭配牛仔短裤。"他不再只是机械地道歉，而是努力让我开心。"
+
+"Like what?" Hikari lifted a dark green dress to try on next.  
+"像什么？" 光拿起一件深绿色的裙子，准备试穿。
+
+"Like the first day he started this, he woke up early and made me waffles for breakfast." Asuka smiled as she was trying to pick her next outfit. "Then, the next day, he made us that cake to celebrate me coming here."  
+"就像他第一天开始这样做时，他早早起床给我做了华夫饼当早餐。" 明日香微笑着挑选下一套衣服，"然后，第二天，他为我们做了那个蛋糕来庆祝我来到这里。"
+
+"He made that cake?" Hikari raised an eyebrow as she looked at herself in the new dress. "I'll have to ask for his recipe. That cake was delicious."  
+"他做的那块蛋糕？" 光看着自己身上的新裙子，挑了挑眉。"我得找他要食谱。那蛋糕真是美味极了。"
+
+"I know, and he also fixed my favorite yellow dress when I ripped it trying to unpack my things." Asuka smiled as she went to look in the mirror with her next outfit. "I didn't even have to ask. He heard me complain and fixed it the next day. It's like he..."  
+"我知道，而且我最喜欢的那条黄色裙子被我撕破了，他帮我修好了。" 明日香笑着换上下一套衣服，走到镜子前。"我甚至都没开口。他听到我抱怨，第二天就修好了。就好像他..."
+
+"Like he what?" Hikari turned to look back at the wall. "Asuka? Are you okay?"  
+“像他什么？”光转身看向墙壁。“明日香？你还好吗？”
+
+Unknown to Hikari, Asuka froze as she saw herself blushing in the mirror. Asuka felt her face with her hand and felt how warm her cheek felt. Asuka couldn't remember a time talking about someone made her blush. Not even talking about Kaji caused her to be like this.  
+光并不知情，当明日香从镜中看到自己脸红的样子时，她愣住了。明日香用手摸了摸脸颊，感受到了那股温热。她记不起有哪次谈论某人会让自己脸红，就连提到加持时也不曾如此。
+
+"Asuka!?" Hikari knocked on the wall. "Please talk to me!"  
+"明日香！？" 光敲了敲墙壁。"请跟我谈谈吧！"
+
+"I'm sorry." Asuka shook her head as she put the clothes down. "Hey, let me finish trying these things on, and we'll go get ice cream."  
+“对不起。”明日香摇了摇头，放下衣服。“嘿，让我把这些试完，然后我们去吃冰淇淋吧。”
+
+"Okay." Hikari backed away from the wall. "I'm almost done, so I'll only be a minute."  
+“好的。”光从墙边退开。“我快完成了，所以只需要一分钟。”
+
+"Got it." Asuka starting changing into a red dress she picked out. She stayed turned away from the mirror as she felt that her face was still warm.  
+“明白了。”明日香开始换上她挑选的红色连衣裙。她背对着镜子，感觉自己的脸颊依旧发烫。
+
+---
+### Chapter 5
