@@ -1,6 +1,4 @@
 [kira862](https://m.fanfiction.net/u/2230351/)
-### Chapter 1: Prologue: New Beginnings  
-第 1 章：序幕：新的开始  
 
 **Rated M** **for**: Strong Language, Adult Themes, Violence, And LEMOM!  
 评级为 M：强烈的语言、成人主题、暴力和 LEMOM！
@@ -24,6 +22,8 @@ I Don't Own Evangelion...though owning Evangelion 3.0 when it comes out would be
 对于那些等待这一切的人，我感谢你们的耐心等待。**
 
 ---
+### Chapter 1: Prologue: New Beginnings  
+第 1 章：序幕：新的开始  
 
 _Shinji- 真嗣-_
 
