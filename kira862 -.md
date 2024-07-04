@@ -1,4 +1,27 @@
+[kira862](https://m.fanfiction.net/u/2230351/)
+### Chapter 1: Prologue: New Beginnings  
+第 1 章：序幕：新的开始  
+
+**Rated M** **for**: Strong Language, Adult Themes, Violence, And LEMOM!  
+评级为 M：强烈的语言、成人主题、暴力和 LEMOM！
+
+I Don't Own Evangelion...though owning Evangelion 3.0 when it comes out would be pretty awesome!  
+我没有新世纪福音战士......虽然拥有新世纪福音战士 3.0 出来时会非常棒！
+
 ---
+
+**Sometimes I really hate the way fanfiction formats stuff. Okay, enough with that.  
+有时我真的很讨厌同人小说格式化的方式。好了，就够了。  
+**
+
+**Right so, I know that pretty much all of you were disappointed with the ending of Spawn of Adam, and I don't really blame you. It does heavily suck, but as I said, I had been planning that ending almost right from the get go, and was very pleased to see that it ended as such.  
+是的，我知道你们几乎所有人都对《亚当的诞生》的结局感到失望，我真的不怪你们。它确实很糟糕，但正如我所说，我几乎从一开始就计划好了这个结局，并且很高兴看到它以这样的方式结束。**
+
+**Two of Us is a direct sequel to Spawn of Adam, with an After Impact scenario involved. There will be a very interesting plot later down the road, as everybody awakens from Instrumentality, but before that to happen, Shinji and Asuka must grow to love each other again.  
+《我们俩》是《亚当的重生》的直接续集，涉及一个撞击后的场景。稍后会有一个非常有趣的情节，因为每个人都从工具性中醒来，但在此之前，真嗣和明日香必须再次相爱。**
+
+**For those of you that have waited for this, I thank you for your patience.  
+对于那些等待这一切的人，我感谢你们的耐心等待。**
 
 ---
 
