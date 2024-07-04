@@ -547,3 +547,162 @@ Unknown to Hikari, Asuka froze as she saw herself blushing in the mirror. Asuka 
 
 ---
 ### Chapter 5
+Shinji was inside a grocery store, buying food. He pulled through the candy aisle, trying to find the right chocolate to get for Asuka. Asuka wasn't picky about which chocolate to get, but he also wanted to make sure it would be one she would like.  
+真嗣在一家杂货店里买食物。他穿过糖果货架，试图找到适合给明日香买的巧克力。明日香对巧克力的选择并不挑剔，但他也希望确保她会喜欢。
+
+"Would she like this one?" Shinji picked up one of the many bars available.  
+“她会喜欢这个吗？”真嗣拿起众多巧克力中的一款。
+
+"Hey, Shinji!" A familiar voice came from his side. Shinji turned, knowing who it was.  
+“嘿，真嗣！”一个熟悉的声音从他身边传来。真嗣转身，知道是谁。
+
+"Oh, hey, Toji." Shinji smiled as he stood there. "Are you doing some shopping as well?"  
+"哦，嘿，冬二。" 真嗣站在那里微笑着。"你也在购物吗？"
+
+"Why else would I be here?" Toji laughed as he walked over to him. "I always stop by to get chocolate for my little sister."  
+"不然我为什么会在这里？" 冬二笑着向他走来。"我总是顺便给妹妹买巧克力。"
+
+"Oh, that's nice of you." Shinji jumped as he forgot about his little sister. "How is she doing?"  
+"哦，你真贴心。" 真嗣突然想起自己的妹妹，跳了起来。"她最近怎么样？"
+
+"She's doing well." Toji faced the chocolate bars and began scanning through them. "They said she'll still be in the hospital for a while, but the important thing is she's doing better."  
+"她恢复得不错。" 冬二面对着巧克力棒，开始逐一查看。"他们说她还得在医院待一段时间，但重要的是她正在好转。"
+
+"That's good." Shinji looked down as he thought back to why she was in the hospital.  
+"那很好。" 真嗣低头沉思，回想她为何会住院。
+
+"Here's it is." Shinji looked up and saw Toji holding up a bar. "These are Sakura's favorite."  
+"找到了。" 真嗣抬头，看到冬二手中拿着一根巧克力棒。"这是樱最喜欢的。"
+
+"Oh, what a coincidence." Shinji took a look at the bar. "That's the one Asuka likes the most."  
+"哦，真巧啊。" 真嗣看了一眼酒吧。"那是明日香最喜欢的。"
+
+"I hope that's not a sign of my little sister turning into her in the future." Toji sighed as he put the chocolate in his basket.  
+"希望这不是我妹妹将来变成她的预兆。" 阿斯叹了口气，把巧克力放进篮子里。"
+
+"I'm sure she'll grow up to be nice." Shinji giggled as he grabbed the same chocolate too. They both started walking to the register and checked out. They were now walking outside together.  
+"我相信她会长成一个好孩子。" 真嗣笑着也拿了同样的巧克力。两人一起走向收银台结账，然后一同走出店外。"
+
+"So, you and Asuka seem to be getting along better." Toji looked over at Shinji.  
+"这么说，你和明日香的关系似乎有所改善了。" 真嗣看向了真治。
+
+"I guess you could say that." Shinji kept looking forward and smiling.  
+"我想可以这么说吧。" 真治继续向前看，脸上带着微笑。
+
+"I mean, she still yells a lot, but you mostly brush it off now."  
+"我是说，她还是经常大喊大叫，但你现在大多能一笑置之了。"
+
+"Seems to have a positive effect, don't you think?" Shinji turned to look at him and smiled.  
+"似乎产生了积极的效果，你不觉得吗？" 真嗣转头看向他，微笑着。
+
+"What do you mean?" Toji stopped and raised an eyebrow. "She's still yelling all the time and acting like the queen of everything."  
+"你什么意思？" 冬二停下脚步，挑了挑眉毛。"她还是一如既往地大喊大叫，像个万事通女王一样。"
+
+"True, but today was the first time she ever complimented my cooking." Shinji closed his eyes. "Asuka never compliments me."  
+"确实如此，但今天她第一次夸赞了我的厨艺。" 真嗣闭上眼睛。"明日香从不夸我。"
+
+"That..." Toji's eyes grew wide as he heard what Shinji told them. "Holy crap, she did compliment you. I didn't even realize she did that earlier."  
+"那..." 听到真嗣告诉他们的话，冬二瞪大了眼睛。"天哪，她真的夸你了。我之前都没注意到她这么做了。"
+
+"Yep. So I would say things seem to be positive now." Shinji opened his eyes and kept smiling.  
+"没错。所以我觉得现在情况看起来是积极的。" 真嗣睁开眼睛，继续微笑着。
+
+"And you just decided one day to start being positive to her because you thought it would do this?" Toji raised an eyebrow.  
+"你就这么突然决定开始对她积极起来，因为你觉得这样会有好结果？" 冬二挑了挑眉。
+
+"Yep." "嗯。"
+
+"You sure nothing else is going on?" Toji got face to face with Shinji.  
+"你确定没有其他事情发生吗？" 真嗣和真希面对面。
+
+"What's with all the sudden interest now?" Shinji held his arms up as he took a step back. Toji relaxed and smiled as he saw Shinji back up.  
+"怎么突然这么感兴趣了？" 真嗣举起双臂，后退一步。看到真嗣后退，真希放松下来，微笑着。
+
+"Oh, Ken was just guessing that you had a crush on Asuka and was just doing this to get with her."  
+"哦，剑只是猜测你暗恋明日香，所以才这么做来接近她。"
+
+"Oh." Shinji froze as he began blushing.  
+"哦。" 真嗣愣住了，脸开始泛红。
+
+"It's true, isn't it?" Touji pointed at him and started laughing.  
+"这是真的，对吧？" 冬二指着他，开始大笑。
+
+"I... I mean..." Shinji scratched the back of his head as he looked down.  
+“我... 我是说...” 真嗣挠了挠后脑勺，低头看着地面。
+
+"I swear, I don't know what you and Ken see in that girl." Toji sighed as he turned away and started walking. "I'm off to see my sister. Later."  
+"我发誓，我不知道你和 Ken 怎么就看上那女孩了。" Toji 叹了口气，转身开始走开。"我要去看我妹妹了。回见。"
+
+"Oh, bye." Shinji waved as Toji was walking away. As he said, Toji went to the hospital and sat with his sister for a while. He told her how things were going in school and that there was a new Eva pilot. Sakura asked if she could meet her, but Toji said he wasn't sure if that was possible. As they were talking, Hikari came into the room.  
+"哦，再见。" Shinji 挥手告别正走开的 Toji。正如他所说，Toji 去了医院，陪妹妹坐了一会儿。他告诉她学校里的事情，还有一位新的 Eva 驾驶员。Sakura 问她能否见见她，但 Toji 说他不确定是否有可能。正当他们交谈时，Hikari 走进了房间。
+
+"Hi, Hikari!" Sakura smiled as she waved. "Toji told me there's a new pilot, and you're friends with her!"  
+"嗨，光！" 樱笑着挥手。"东治告诉我有个新驾驶员，而且你和她还是朋友！"
+
+"Yep." Hikari smiled. "We get along well and just got done hanging out."  
+"是啊。" 光微笑道。"我们相处得很好，刚刚才一起玩过。"
+
+"Can I meet her?" Sakura put her hands together. "She sounds so cool, and I like her red Eva."  
+"我能见见她吗？" 樱双手合十。"她听起来很酷，而且我喜欢她的红色 EVA。"
+
+"I'll bring it up to her and see what she says." Hikari giggled. "Sakura, would you mind if I talk to your brother for a minute outside?"  
+“我会跟她提一下，看看她怎么说。”光笑着说，“樱，介意我跟你哥哥在外面聊一会儿吗？”
+
+"No. That's fine." She smiled as Toji got up from his seat.  
+“不，没关系。”她微笑着，看着真嗣从座位上站起来。
+
+"I'll be right back." Toji smiled as he followed Hikari outside in the hall. They walked over to an empty waiting room and sat next to each other. "So, how did things go with you and Asuka?"  
+“我马上回来。”真嗣微笑着跟着光走出大厅。他们走到一间空着的等候室，并肩坐下。“那么，你和明日香怎么样了？”
+
+"Well, I don't think Asuka is taking advantage of Ikari." Hikari held her chin. "But, there's something off about both of them. I don't know what it is, but Asuka acted off earlier."  
+“嗯，我觉得明日香并没有利用真嗣。”光托着下巴说，“但他们俩都有点不对劲。我不知道是什么，但明日香之前表现得有些奇怪。”
+
+"Tell me about it." Toji sighed. "Did you even realize Asuka complimented Shinji in front of us earlier?"  
+"说来话长。" 冬二叹了口气。"你注意到吗，之前明日香在我们面前夸了真嗣？"
+
+"What do you mean?" Hikari raised an eyebrow.  
+"你什么意思？" 光抬起眉毛问道。
+
+"Remember when she was yelling about Shinji forgetting the snack for her lunch and then complimented his cooking?" Toji looked at Hikari and saw her eyes go wide.  
+"记得她之前大喊大叫说真嗣忘了给她带午饭的小吃，然后又夸他做饭好吃的事吗？" 冬二看着光，发现她的眼睛瞪大了。
+
+"I didn't even notice that." Hikari placed her hand on her head.  
+“我都没注意到。”光把手放在头上。
+
+"Wait, if you didn't notice that, then what were you referring to about Asuka acting off earlier?" Toji raised an eyebrow. Hikari sighed and turned to look at Toji.  
+“等等，如果你没注意到那个，那你之前说惣流行为怪异是指什么？” 真嗣挑起眉毛。美里叹了口气，转头看向真嗣。
+
+"She was talking about how Shinji made her breakfast and the cake for when we celebrated Asuka being here. Then she said he fixed a dress she accidentally ripped, and she didn't even ask her to do that."  
+她谈到了真嗣为她做早餐，还有我们庆祝明日香到来时准备的蛋糕。接着她说他修补了一件她不小心撕破的裙子，她甚至没要求他这么做。
+
+"Okay, that's weird for Shinji to go that far," Toji raised an eyebrow. "But what's that have to do with Asuka being weird?"  
+"好吧，真嗣做到这种程度有点奇怪，" 冬二挑了挑眉。"但这和明日香有什么关系呢？"
+
+"She sounded happy talking about it. Like she loved Shinji doing all those things." Hikari closed her eyes and sighed. "There's also another thing, but promise you won't tell anyone else about this."  
+"她谈起这些时听起来很开心。好像她很喜欢真嗣做这些事。" 光闭上眼睛叹了口气。"还有一件事，但你要答应我不要告诉别人。"
+
+"Sure." Toji leaned closer to her. Hikari leaned towards his ear to whisper to him.  
+“当然。” 冬二向她靠近了些。光靠向他的耳朵，低声对他说。
+
+"She tried to hide it, but Asuka was blushing after saying all that about Shinji."  
+“她试图掩饰，但说起真嗣时，明日香的脸还是红了。”
+
+"Come again?" Toji leaned away to look at Hikari. "You can't be serious."  
+"再说一遍？" 冬二向后靠了靠，看着光。"你不是认真的吧。"
+
+"It's the truth." Hikari sighed.  
+"这是真的。" 光叹了口气。
+
+"I was not ready to find all this out." Toji sighed as he facepalmed. "Why couldn't it just be Shinji having a crush on her?"  
+“我还没准备好知道这一切。” 真嗣叹了口气，捂住了脸。“为什么不能只是真嗣对她有好感呢？”
+
+"Sounds like you regret being curious about all this." Hikari giggled.  
+听起来你好像后悔对这一切感到好奇了。光笑了起来。
+
+"A little." Toji sighed as he got up. "Come on, let's go back to check on Sakura."  
+"一点点。" 冬二叹了口气，站起身来。"走吧，我们回去看看樱。"
+
+"Okay." Hikari nodded as she got up and followed him back to Sakura's room.  
+"好的。" 光点点头，站起身跟着他回到樱的房间。
+
+---
