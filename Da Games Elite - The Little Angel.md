@@ -2813,3 +2813,355 @@ After helping herself to a massive quantity of food, Asuka sampled each of the f
 "I'll try." "我会努力的。"
 
 ---
+**Part 11 第十一部分**
+
+"Shinji! Can you get me some chocolate?"  
+“真嗣！你能帮我拿些巧克力吗？”
+
+"Chocolate?" The Japanese boy poked his head over from the kitchen to glance at his wife, who was flipping through channels in their familiar little apartment, nonchalantly. Her soft hands rested on her gentle belly, a convex curve now visible, her hands resting on where her now expanded uterus gurgled peacefully, where there was life inside his dear German wife.  
+"巧克力？"日本男孩从厨房探出头来，瞥了一眼正在他们熟悉的小公寓里随意切换频道的妻子。她柔软的手轻轻搭在温柔的腹部，如今已可见微微隆起的曲线，她的手放在那正平静咕噜作响的扩张子宫上，那里孕育着生命，属于他亲爱的德国妻子的生命。
+
+Well, "dear" was a bit of an overstatement, and she had yet to truly become his wife.  
+嗯，"亲爱的"或许有些夸张，她尚未真正成为他的妻子。
+
+"Yeah, chocolate, I really need some right now, so get it," Asuka mumbled, nonchalantly changing the channel from a mushy romantic movie to what looked like a morbid horror film involving blood soaring in all directions. This seemed to attract her interest, which mildly disturbed Shinji.  
+"对，巧克力，我现在真的很需要，快去拿，"明日香咕哝着，随意地将频道从一部缠绵的爱情电影切换到看似血腥恐怖的电影，血花四溅的场景似乎引起了她的兴趣，这让真嗣略感不安。
+
+"You know, you won't be able to watch that once the baby's born," Shinji said, anxiously.  
+“你知道吗，宝宝出生后你就不能看那个了，”真嗣焦虑地说。
+
+"Why not? And weren't you supposed to get me chocolate?"  
+“为什么不行？而且你不是应该给我买巧克力的吗？”
+
+"Do you really want him watching stuff where someone's eyeball is used as a projectile?" Shinji asked, disapprovingly.  
+“你真的想让他看那种用眼珠当投射物的内容吗？”真嗣不赞同地问。
+
+"Chocolate?" Asuka reminded him, her voice dragged out for effect.  
+"巧克力？" 明日香提醒他，声音拖长以增加效果。
+
+"Fine, I'll get it," Shinji resigned, glancing over at his wife as she glanced back down at her belly, prodding it gently with her fingers, rolling her shirt up to observe it. It was strange: Asuka was always such a slender, almost overly thin girl, but now with that belly of hers filled with their future child, she looked a little more radiant, perhaps complete. She had always been beautiful, but with that child inside of her, something seemed to invigorate her more.  
+"好吧，我去拿，" 真嗣无奈地说，瞥了一眼他的妻子，她正低头看着自己的肚子，用手指轻轻戳着，卷起衬衫观察。这很奇怪：明日香一直是个苗条，几乎过于瘦弱的女孩，但现在她的肚子装着他们未来的孩子，她看起来更加容光焕发，或许更加完整。她一直都很美丽，但有了那个孩子在她体内，似乎有什么东西让她更加充满活力。
+
+Or perhaps what was giving her such energy was the end result of their trip in Germany.  
+或许给她带来如此活力的，是他们德国之旅的最终结果。
+
+The trip had ended rather anti-climactically considering the huge episode where Shinji learned of Kyoko's, Asuka's mother, fate. Things seemed to improve. It soon became apparent that the icy vibes Shinji felt coming from Mrs. Langley originated from a terrible first impression. She wasn't a saint, and she certainly was overly proper, but she wasn't an ice queen or a truly wicked stepmother of any sort. If anything, she was fairly friendly. The same was true for Mr. Langley, who seemed, in a subtle way, desperate to reconnect with his daughter, or at least that's what Shinji felt.  
+考虑到真嗣得知明日香母亲——绫子命运的那场巨大风波，这次旅行结束得颇为虎头蛇尾。情况似乎有所好转。不久便显而易见，真嗣从绫子夫人身上感受到的冰冷氛围源自于一个糟糕的第一印象。她并非圣人，也确实过于拘谨，但她既非冰山女王，也不是那种真正的恶毒继母。若要说的话，她其实相当友善。绫子先生亦是如此，他似乎在微妙地努力与女儿重建联系，至少真嗣有这样的感觉。
+
+This vibe first came about with that whole dinner thing Shinji cooked up after Asuka snapped. Mr. Langley seemed so determined to help Shinji, so eager to cheer Asuka up, even though she had embarrassed him with her behavior. From that point on, for the rest of the visit, Shinji noticed Mr. Langley treating Asuka with more respect than usual. He would occasionally cook meals, which, Shinji learned from eavesdropping on Kate and Mrs. Langley, was an uncommon event. His food was good, though, if Shinji were to be so proud, not near the caliber of his own cooking. Additionally, Mr. Langley seemed to have a tendency to never say a bad word about his daughter, as though Asuka did nothing wrong, which Shinji could assure the public was not true.  
+这种氛围始于真嗣在明日香爆发后策划的那次晚餐。兰格利先生似乎非常决心帮助真嗣，急切地想让明日香开心起来，尽管她的行为让他感到尴尬。从那时起，在剩下的拜访时间里，真嗣注意到兰格利先生对明日香比平时更加尊重。他会偶尔做饭，真嗣从偷听凯特和兰格利夫人的对话中得知，这是不常见的事情。不过，如果真嗣要自豪地说，他的食物很好，虽然远不及他自己的烹饪水平。此外，兰格利先生似乎有一个习惯，从不说他女儿的坏话，好像明日香没有做错任何事，真嗣可以向公众保证这不是真的。
+
+Most important of all, he never mentioned Kyoko again.  
+最重要的是，他再也没有提起过 Kyoko。
+
+Ever.
+
+"Here's your chocolate," Shinji replied, handing Asuka a bar.  
+“这是你的巧克力，”真嗣回答，递给明日香一条。
+
+Asuka began to unwrap the bar, hastily, a ravenous hunger in her eyes. She shoved the chocolate into her welcoming mouth, and chomped on it, bit down and gnawed as every last crumb disappeared into her grinding jaws in a matter of seconds. Her cheeks were pregnant with the food, unbirthing it as it flowed down her throat, into her body, as opposed to the baby who she would eventually need to expel. Seeing how she ate that bar, it was no wonder she was starting to put on a bit of weight. Rationally, she needed to in order to give birth to a healthy baby boy—uh, baby—and she hadn't gained anything excessive yet, but judging by how her arms and thighs had grown plumper, and how her breasts had swelled slightly, to the point where her bra imprisoned the pillows of flesh within the tight bindings of fabric, to the point where her breasts had taken to rolling around the fabric, she certainly was at a healthy rate, on track. Still, it was impossible to deny she did look different.  
+明日香开始匆忙地拆开巧克力棒，眼中闪烁着饥饿的光芒。她将巧克力塞进欢迎的嘴里，大口咀嚼，咬碎并啃食，每一粒碎屑在几秒钟内就被她磨牙吞噬殆尽。她的脸颊因食物而鼓起，随着食物流下喉咙进入身体，这与她最终需要分娩的婴儿形成对比。看她吃那根巧克力棒的样子，难怪她开始有点发胖了。从理性上讲，她需要增重以生下一个健康的宝宝——呃，宝宝——而且她还没有过度增重，但看她手臂和大腿变得更丰满，乳房也略微膨胀，以至于胸罩紧紧束缚着这些肉垫，甚至乳房开始在布料中滚动，她的确处于一个健康的增重速度，一切都在正轨上。尽管如此，她确实看起来不一样了，这是无法否认的。
+
+But God knew if she didn't look like a Goddess now.  
+但上帝知道，她现在看起来是否像一位女神。
+
+The phone rang. 电话响了。
+
+"Hello?" Shinji asked, answering the phone, nonchalantly glancing at his fiancé as she longingly gazed at the wrapping, as though a second bar would magically replace the one she had just devoured.  
+“喂？” 真嗣接起电话，不经意地瞥了一眼他的未婚妻，她正渴望地盯着包装纸，仿佛第二块巧克力会奇迹般地取代她刚吃掉的那块。
+
+"Hey, Shinji? It's me, Hikari."  
+“嘿，真嗣？是我，光。”
+
+"Oh, uh, do you want to speak to—"  
+“哦，呃，你想和——”
+
+"Who is it?" Asuka asked, glancing over, "Is it Hikari?"  
+“是谁？”明日香问道，目光扫了过来，“是光吗？”
+
+Shinji was about to reply to his fiancé when Hikari hissed in his ear, anxiously, "No! Don't tell her it's me!"  
+真嗣正要回答他的未婚妻，光却在耳边急切地低语：“不！别告诉她是我！”
+
+Confused by the request, Shinji, rolling with the punches, replied, tactfully, "It's Fuyutsuki."  
+对这一请求感到困惑，真嗣随机应变，巧妙地回答：“是冬月。”
+
+"Really?" Asuka asked, mildly surprised, "Why's he calling you?"  
+"真的吗？" 明日香略感惊讶地问，"他为什么给你打电话？"
+
+"Paper work," Shinji replied after a moment's thought.  
+"文件工作，" 真嗣沉思片刻后回答道。
+
+"Sounds boring," Asuka mumbled as she returned to her violent show, deciding it might be better to play a few games. Once his fiancé became fully engrossed in whatever it was she was doing, Shinji let out a sigh of relief.  
+"听起来很无聊，" 明日香嘟囔着，继续看她的暴力节目，心想或许玩几局游戏会更好。当他的未婚妻完全沉浸在她正在做的事情中时，真嗣松了一口气。
+
+"Smooth recovery," Hikari said into his ear.  
+"平稳过渡，" 光在他耳边说道。
+
+Shinji migrated to his own room, closing the door behind him as to block out some of the noise from unwanted ears. He whispered hastily into the phone, "So what's the matter? Is something wrong?"  
+真嗣回到自己的房间，关上门以隔绝一些不必要的噪音。他急忙对着电话低声说："那么，有什么事吗？出什么问题了吗？"
+
+"You know what tomorrow is, Shinji?"  
+"你知道明天是什么日子吧，真嗣？"
+
+"I'm not—" "我不是——"
+
+"It's Asuka's birthday." "今天是明日香的生日。"
+
+With getting engaged, having a baby, learning about Asuka's mother, and returning home from Germany, Shinji had all but forgotten his wife's date of birth. It was tomorrow, wasn't it? He felt awfully foolish for forgetting. Feeling himself scratch the back of his scalp, he nervously chuckled to Hikari. "You're right. Thank you for reminding me."  
+订婚、生子、了解明日香的母亲以及从德国归来，这些事情让真嗣几乎忘记了妻子的生日。不就是明天吗？他为自己的遗忘感到非常愚蠢。他挠了挠后脑勺，紧张地对光笑道：“你说得对。谢谢你提醒我。”
+
+"Listen, I was planning on having a party for her, seeing as how this upcoming year is going to be big and all that, what with the baby and the marriage. Well, the point is I just want you to know if you could distract her for a little bit so we could all get to your apartment, and hide. In your apartment."  
+"听着，我本来打算为她办个派对，毕竟接下来这一年意义重大，有宝宝和婚礼什么的。重点是，我只是希望你能帮忙分散她的注意力，这样我们大家就能偷偷溜到你公寓，然后藏起来。在你公寓里。"
+
+"Why my apartment? Isn't your place—"  
+"为什么是我公寓？你的地方不是——"
+
+"Would be too suspicious. If Asuka asked you to come here out of the blue, wouldn't you suspect something was up?"  
+"那样太可疑了。如果明日香突然叫你来这里，你不会觉得有什么不对劲吗？"
+
+Shinji had to admit Hikari's logic was sound. Awfully sound. "Okay, so what do you suggest I do?"  
+真嗣不得不承认，光子的逻辑是合理的。非常合理。“好吧，那你建议我怎么做？”
+
+"Take her on a date, get her a present, do something she'd like, but make sure you leave the door unlocked, or tell me where you'll hide the keys."  
+“带她去约会，给她买个礼物，做些她喜欢的事情，但一定要确保门没锁，或者告诉我你会把钥匙藏在哪里。”
+
+"I'll drop off a pair in your mailbox tonight. I'll tell her Fuyutsuki told me to pick something up or something. Or maybe I'll go buy her chocolate."  
+“我今晚就把钥匙放在你邮箱里。我会告诉她，副校长让我去取点东西之类的。或者也许我会去买巧克力给她。”
+
+"Chocolate as a birthday present? You know, Shinji, no offense, but that's kinda not enough—"  
+"巧克力作为生日礼物？你知道，真嗣，无意冒犯，但这有点不够——"
+
+"No, that's not it: she's been craving chocolate."  
+"不，不是那样的：她最近特别想吃巧克力。"
+
+"Oh, so she's getting closer to the Second Trimester, huh?" Those words sounded like Second Impact, or something of equal terror. "Look, don't forget to give us the keys. Also, buy some lotions to reduce stretch marks. It'll help her self-esteem afterwards. Helped me out a lot."  
+"哦，这么说她快进入孕中期了，是吧？" 这些话听起来像是第二次冲击，或是同等级别的恐怖事件。"听着，别忘了把钥匙给我们。还有，买点能减少妊娠纹的乳液。这会帮助她之后的自信心。对我帮助很大。"
+
+"What's a good brand?" “什么品牌比较好？”
+
+After Hikari informed her of the proper lotion brands to look for, Shinji hung up the line, frowning slightly. He glanced over at the other room, wondering if the red haired German girl had been eavesdropping or not. Slowly, he reentered the room, only to find his fiancé, to his relieve, ripping out the spinal column of her digitized opponent in her video game. As her avatar on the screen ripped her nemesis to shreds with a violent tearing motion, the German woman punched the air in triumph, cheering her own victory.  
+在光告诉她应该寻找哪些合适的乳液品牌后，真嗣挂断了电话，微微皱眉。他瞥了一眼另一个房间，想知道那位红发的德国女孩是否在偷听。他缓缓地重新进入房间，却看到他的未婚妻，让他松了一口气，正在她的电子游戏中撕裂对手的脊椎。当屏幕上的她的角色以一种暴力的撕扯动作将她的敌人撕成碎片时，这位德国女子挥拳庆祝，为自己的胜利欢呼。
+
+It was then that Shinji knew he had nothing to worry about.  
+那时，真嗣知道他没有什么可担心的了。
+
+The next day came, and Shinji rose from bed, his fiancé at his side, her hands wrapped around her pregnant belly protectively, as though her body was moving on autopilot even in sleep to protect her young. She really was a beautiful girl. He reached out tentatively with his hand, stroking her soft jawline, running his finger up her smooth skin into her locks of crimson, twirling the straight hair around his finger. She moaned slightly, only to turn over in her sleep, toward Shinji. Slowly, Shinji saw her beautiful sky blue eyes open, groggily glancing over at her fiancé, only to widen with shock.  
+次日清晨来临，真嗣从床上起身，他的未婚妻依偎在旁，双手环绕着她怀孕的腹部，保护性地紧抱着，仿佛即使在睡梦中，她的身体也在自动巡航，守护着腹中的孩子。她确实是个美丽的女孩。他小心翼翼地伸出手，轻抚她柔软的下颌线，手指顺着她光滑的肌肤滑入她那如火的红发中，将直发缠绕在指间。她轻声呻吟，随即在睡梦中转身面向真嗣。渐渐地，真嗣看到她那美丽的湛蓝色眼睛缓缓睁开，朦胧地瞥向未婚夫，随即震惊地瞪大了双眼。
+
+"What the hell are you doing, staring at me like that?!" she snapped, rising up sharply to her feet, grabbing her pillow only to bash him on the head with it, "Dummkopf! Pervert! I just be you were feeling me up when I was asleep, huh? Huh!?" His response was muffled under the pillow that she had taken to smother him with. "Well, you know what? I guess I really can't blame your pervvy little mind to admire my beauty. After all, I am the most radiant, amazingly beautiful woman on the face of the—"  
+“你到底在干什么，那样盯着我看？！”她厉声喝道，猛地起身，抓起枕头就朝他头上砸去，“笨蛋！变态！我刚才还以为你在趁我睡着时摸我呢，嗯？嗯？！”她的枕头压在他的头上，他的回应被闷在下面。“好吧，你知道吗？我想我确实不能怪你那变态的小脑袋欣赏我的美貌。毕竟，我是这世上最耀眼、最美丽的女人——”
+
+"I can't breathe." “我喘不过气了。”
+
+"Oh, right," Asuka raised the pillow off of his head, allowing his fiancé a few seconds to catch his breath before pushing him off the bed. He tumbled to the ground, which wasn't too far of a fall, but regardless hurt when he slammed against the ground. "Hey, when you get up from there, can you get me some chocolate? I really need some right now."  
+"哦，对了，"明日香从他头上举起枕头，让他的未婚夫有几秒钟喘口气，然后把他推下床。他滚落到地上，虽然不算太高，但摔在地上还是有点疼。"嘿，你从那儿起来后，能帮我拿点巧克力吗？我现在真的很需要。"
+
+Shinji was about to retort with some sort of argumentative response along the lines of "You just shoved me off your bed and expect me to be your servant!?" but then he remembered the date, the special occasion it was for this girl at this moment. With a small, resigning grin, he replied, softly, "Alright, guess the Birthday Girl deserves a treat."  
+真嗣本想反驳些什么，比如"你刚把我从床上推下来，还指望我当你的仆人吗！？"但随后他记起了今天的日期，对这个女孩来说此刻是多么特别的时刻。他微微一笑，无奈地轻声回答："好吧，看来生日女孩值得一份礼物。"
+
+"Wait, it's my birthday today?" Asuka replied, pausing for a moment.  
+"等等，今天是我生日吗？"明日香回答道，停顿了一下。
+
+"You mean you didn't even remember!?" stammered Shinji.  
+"你是说你根本不记得了！？" 真嗣结巴着说。
+
+"Well, I guess with all that's been going on, I sorta didn't think about that."  
+"嗯，我想是因为最近发生了很多事，我有点没顾上想这个。"
+
+After Shinji gave Asuka a box of chocolates he had picked up the night before, along with some lotion for her belly, (when he had given Toji and Hikari keys to their apartment), he watched in amusement, as a child tossing aside clothing Christmas morning in favor of toys, Asuka tossed aside her rubbing lotion, after acknowledging its uses with a rather disinterested expression, as she dove into the chocolate. With her cheeks full of chocolate, she turned to Shinji, a rather troubled expression on her face. "Hey, do you think I'm starting to look fat?"  
+在真嗣送给明日香一盒前一晚挑选的巧克力，以及一些腹部按摩乳液（当时他把公寓钥匙给了剑介和光）之后，他饶有兴致地看着，就像孩子圣诞早晨扔掉衣服去玩玩具一样，明日香在用相当冷漠的表情确认了按摩乳液的用途后，便将其抛诸脑后，一头扎进了巧克力堆里。她嘴里塞满了巧克力，转向真嗣，脸上带着些许困扰的表情。"嘿，你觉得我是不是开始变胖了？"
+
+"Fat?" Shinji glanced down at the redhead, who was resting her hands on her now bulging belly, a belly bulging with life, not with flab. She poked it, gently, feeling the soft flesh coating a protective sphere of life. "I don't think so. I wouldn't worry about it."  
+"胖吗？" 真嗣瞥了一眼红发女孩，她正双手放在如今隆起的肚子上，那肚子因生命而隆起，而非赘肉。她轻轻地戳了戳，感受着柔软的肌肤覆盖着保护生命的圆球。"我不这么认为。你不必担心。"
+
+"You're such an idiot sometimes, you know that?" Asuka mumbled, glancing down at her chocolate as she inhaled the rest of it, "I mean, I'm gonna need to gain about 25 lbs from what I read in order to make the child healthy, right? I hear breast feeding kills a lot of calories, right?"  
+"你有时候真是傻得可以，知道吗？" 明日香咕哝着，低头看着她的巧克力，一口气把它吃完，"我是说，根据我读到的，为了让孩子健康，我得增重约 25 磅，对吧？我听说母乳喂养会消耗很多热量，对吧？"
+
+"I don't kn—" "我不知—"
+
+"Ah well, at least the lotion will stop those stretch marks, right?"  
+"唉，至少那乳液能防止妊娠纹，对吧？"
+
+"I suppose so." She looked miserable. Why was she so sad looking? Was it because of the bulge in her belly where their future son—er, child—was forming? Was it that she felt that bulge made her look ugly, made her look inferior? He sat down beside his wife, tentatively reaching out for her, only for the redhead to rise to her feet, staring down at him with disdain.  
+"我想是的。" 她看起来很痛苦。为什么她看起来这么悲伤？是因为她肚子里的隆起，他们未来的儿子——呃，孩子——正在形成吗？还是因为她觉得那个隆起让她看起来丑陋，让她感到自卑？他坐在妻子旁边，试探性地伸出手，却见红发女子站起身来，带着轻蔑的目光俯视着他。
+
+"What're you doing?" she asked, an amused yet sneering grin on her lips.  
+"你在干什么？" 她问道，嘴角挂着一丝既好笑又嘲讽的笑容。
+
+"Oh, uh—" "哦，呃——"
+
+"You're trying to play the guy and make me feel all better, tell me eveyrthing's alright, that I look like some sort of angel or something with my fat belly—no, you wouldn't say that—pregnant belly and all that good stuff, right? Well, let me tell you something, Third—wow, haven't called you that in awhile—that's not going to work."  
+"你这是在扮演好人，想让我感觉好些，告诉我一切都没事，说我看起来像个天使什么的，挺着个大肚子——不，你不会这么说——怀着孕的肚子和那些好听的话，对吧？好吧，让我告诉你，Third——哇，好久没这么叫你了——这招可不管用。"
+
+#
+
+She stared at herself in the mirror. She looked mostly the same. Her arms were slightly fluffier, yes, filled with gentle fat, but it was nothing drastic. You really had to look to tell the differences, but, since the German was looking, every subtle change was obvious. Her knuckles and wrists were less noticeable than before, and now, when she stroked her arm, she felt her flesh give under the weight of each fingertip. She stared at herself, naked, as she stroked the moist water droplets off of her skin, the shower behind her now dripping drop after drop, each one rippling on the puddles slowly spiraling down the drain. She cupped her breasts in each hand, which were slightly larger than before, but still were dwarfed by the growth of her uterus, which her stomach had expanded in order to compensate with its growth. Of course, all that chocolate was having an effect too, wasn't it? She ran her hands over her belly, feeling soft flesh that gave under her fingers, just like her arms.  
+她凝视镜中的自己。大体上看起来依旧如故。双臂略显丰腴，是的，多了些柔润的脂肪，但变化并不剧烈。必须仔细观察才能察觉差异，然而，既然她在审视，每一处细微的改变都变得显而易见。她的指节和手腕比以前更不显眼了，如今抚摸手臂时，能感受到肌肤在指尖压力下柔软地凹陷。她赤裸着身体，凝视着自己，轻抚去皮肤上的湿润水珠，身后的淋浴间水滴不断，每一滴都在缓缓旋转下陷的水洼中泛起涟漪。她双手托住乳房，它们比以前稍大了一些，但与日益膨胀的子宫相比，仍显得微不足道，她的腹部为了适应这种增长而扩张。当然，那些巧克力也在发挥作用，不是吗？她双手抚过腹部，感受到指下柔软的肌肤，正如她的手臂一样。
+
+She shuddered to herself, aware of how her body was turning against her. Her face was mostly unchanged, but she knew that wouldn't last either. She cringed and trembled as she imagined what she would inevitably look like days before she expelled her daughter—er, child—or worse the days afterwards, where she was still bloated and chunky without the excuse of having a baby within her.  
+她不由自主地颤抖，意识到自己的身体正在背叛她。她的脸庞大体未变，但她知道这也不会持续太久。她皱眉发抖，想象着自己不可避免地在分娩前几天的模样——呃，孩子——或者更糟的是，分娩后的那些日子，她依然肿胀笨重，却没有了体内有婴儿的借口。
+
+She clenched her jaw shut in frustration. Why the hell did she get pregnant in the first place? It was an accident, right? A complete mistake of circumstance. She hated the way she looked right now, hated everything about it. Why was she doing this, anyway? She didn't know anything about being a mother. She had, after all, lost hers at a young age. She tried remembering a time before her mother had lost her mind, before she had started babying a stuffed toy in the place of her.  
+她紧咬牙关，满心懊恼。她到底为什么会怀孕？这是个意外，对吧？完全是个环境造成的错误。她讨厌自己现在的样子，讨厌这一切。她到底为什么要这么做？她对当母亲一无所知。毕竟，她在年幼时就失去了母亲。她试图回忆母亲失去理智之前的日子，那时母亲还没有开始把一个毛绒玩具当作孩子来溺爱。
+
+One memory sprang to mind, albeit faded like a photograph retrieved from a fire.  
+一段记忆浮现脑海，尽管如同从火中抢救出的照片般模糊。
+
+She was a little girl, probably about four or three even, and she was huddling up with her mother, a small smile on her lips, a happy grin as she clung to her hand, her scarlet hair in stark contrast with her mother's flowing locks. Was it just her, or was her mother wearing her hair in a style similar to the style she wore hers now? Perhaps it was just imagination or embellishment. And she was smiling, smiling broadly, but her face was blocked out because of the sun radiating behind her, or perhaps that was an angelic halo? She wasn't sure. They were just walking, not doing anything, but she was there, with her.  
+她是个小女孩，大概三四岁左右，正依偎在母亲怀里，唇边挂着浅浅的微笑，幸福地紧握着母亲的手，她那鲜红的头发与母亲飘逸的发丝形成鲜明对比。是她的错觉吗，还是母亲的发型与她现在所梳的相似？或许这只是想象或美化。她笑得灿烂，但脸庞被背后的阳光遮挡，又或许那是天使般的光环？她不确定。她们只是漫步，什么也没做，但她就在那里，与她同在。
+
+Why was that the only good memory she had of her mother?  
+为什么这是她唯一美好的母亲记忆？
+
+Why did it bring tears to her eyes?  
+为什么这会让她泪流满面？
+
+Why was she crying? 她为何哭泣？
+
+#
+
+Shinji was cradling a bag of clothing on his back, regretting the decision to take his fiancé to the mall in order to get her out of the house long enough for the others to infiltrate it and hide. He had received a message from Toji telling him that everyone was there, although how many people who were in on it remained to be seen. In fact, he didn't know anything about this ordeal other than what Hikari had told him over the phone. For all he knew, there could be a mob waiting in his house, waiting to overwhelm and kill him, take all his stuff, and force them to watch Barney.  
+真嗣背着一袋衣物，后悔带未婚妻去商场以让她离开家足够长时间，好让其他人潜入并藏匿。他收到了飞鸟发来的消息，告知所有人已就位，但具体有多少人参与尚不得而知。实际上，除了电话里光告诉他的那些，他对这次事件一无所知。他甚至不知道家里是否有一群人等着围攻并杀了他，夺走所有财物，逼他们看《巴尼》。
+
+It wasn't likely, but it was possible!  
+虽然不太可能，但确实有可能！
+
+"It's only a little more until we get to the car," laughed Asuka, amused by Shinji's trembling knees under the weight of her fifteen bags of stuff, "Don't you love high paying jobs at a government facility? I guess that's a good use of the taxpayer's dollars: giving me clothing."  
+"再走一小段路就到车那儿了，" 明日香笑着说，看着真嗣在她的十五袋东西的重压下颤抖的双膝，"你不喜欢在政府机构里拿高薪的工作吗？我想这是纳税人钱的好用途：给我买衣服。"
+
+"We're living in an apartment. How high paying can these jobs possibly be?"  
+"我们住的是公寓。这些工作能有多高薪？"
+
+"Oh, stop pointing out the holes in my statement! Well then, shall we head home so I can try wearing all these sexy, beautiful, and oh so expensive birthday presents?"  
+"哦，别再挑我话里的毛病了！那么，我们回家吧，这样我就可以试穿所有这些性感、美丽又昂贵的生日礼物了？"
+
+To be fair, the majority of what they had bought was maternity clothing, and Shinji did admit the majority of them were rather beautiful. Still, Shinji imagined his fiancé changing in front of the massive quantity of people now lurking in their apartment, and a smile spread across his lips in amusement.  
+平心而论，他们买的大部分是孕妇装，而且真嗣也承认其中大多数确实相当漂亮。不过，真嗣想象着他的未婚妻在众多潜伏在他们公寓里的人面前换衣服，不禁露出了会心的微笑。
+
+"What're you grinning about?" Asuka asked, frowning.  
+“你在笑什么？”明日香皱着眉头问道。
+
+"Huh? Oh, nothing at all."  
+“嗯？哦，没什么。”
+
+"Weird," Asuka mumbled as she unlocked the car, and hopped into the driver's seat.  
+“真奇怪，”明日香一边嘟囔着，一边解锁了车门，跳上了驾驶座。
+
+"Hey, can you unlock the doors?" In response to Shinji's pleas, the trunk popped open, his amused fiancé gesturing toward the back. He hastily dumped all the loads into the back of the car, before waiting for the driver's seat to open up for him.  
+“嘿，你能开一下门吗？”面对真嗣的恳求，后备箱突然弹开，他那忍俊不禁的未婚妻示意他往后面看。他急忙将所有东西都塞进车后座，然后等着驾驶座为他腾出位置。
+
+It didn't. 但并没有。
+
+"Hey, can you let me in?" Shinji asked, his voice weary.  
+"嘿，能让我进去吗？" 真嗣问道，声音疲惫。
+
+"Hop through the trunk," his fiancé said, clearly amused.  
+"从后备箱跳进来，" 他的未婚妻说，显然觉得有趣。
+
+"What!?" "什么！？"
+
+"Can't be too hard with your skinny body. I mean, you don't have a baby or something you need to protect. What if, by opening up your door, I somehow damage the baby?"  
+"对你这瘦弱的身体来说，应该不会太难吧。我是说，你又没有宝宝或者什么需要保护的东西。万一我开门的时候不小心伤到宝宝怎么办？"
+
+"C'mon! It's getting cold out here!"  
+"快点吧！外面越来越冷了！"
+
+"I'm sorry, it's not like it's my fault or anything. I just don't want to hurt the baby. I'm sure a strong man like yourself can just hop through the trunk to the front seat, after all," Asuka laughed, smiling that semi-cruel semi amused grin of hers.  
+"对不起，这又不是我的错。我只是不想伤到宝宝。我相信像你这样强壮的男人，完全可以从后备箱跳到前座，毕竟嘛，" 明日香笑着，露出了她那半是残忍半是戏谑的笑容。"
+
+"Fine," Shinji resigned, hurtling his body into the trunk, his fall cushioned by bags of clothing, before he managed to crawl into the back seat, pulling the trunk door closed with his foot. He rolled on the floor as he tumbled forward.  
+“好吧，”真嗣无奈地应道，将自己的身体抛入后备箱，下落时被一堆衣物缓冲，随后他设法爬到后座，用脚拉上后备箱门。他在地板上翻滚着向前摔去。
+
+"You buckled up?" “你系好安全带了吗？”
+
+"Does it look like I'm buckled up?"  
+“看起来我像是系了安全带吗？”
+
+After pulling himself into the front seat of his car, or the front passenger seat, and drawing the seatbelt across his chest, the car hurtled forward, back toward their familiar apartment. As they drove, the lights of the night spiraling past them like streaks of wind soaring beside them, Shinji turned toward his fiancé. Although she didn't look any less attractive than usual, there seemed to be something missing, a hollowness, perhaps, that detracted from her glory. He remembered that Hikari was practically glowing during her pregnancy, but Asuka seemed to be more like a black hole, absorbing the glow so that none of it shone from her cheeks.  
+他挣扎着爬进车子的前座，或者说前乘客座，系好安全带后，车子猛地向前冲去，返回他们熟悉的公寓。行驶中，夜灯如旋风般掠过，仿佛疾风划过身旁，真嗣转向他的未婚妻。尽管她看起来一如既往地迷人，却似乎少了些什么，一种空洞感，或许，这削弱了她的光彩。他记得光子在怀孕期间几乎容光焕发，但明日香却更像一个黑洞，吸收了所有的光芒，以至于她的脸颊上没有一丝光彩。
+
+"Hey, are you okay?" Shinji asked, glancing over at his bride-to-be.  
+“嘿，你还好吗？”真嗣问道，瞥了一眼他的准新娘。
+
+"Huh? Yeah, I'm fine. Why?"  
+“嗯？是的，我没事。怎么了？”
+
+"I don't know, you just look a bit off is all."  
+"我不知道，你看起来就是有点不对劲。"
+
+"Off? How so?" "不对劲？怎么个不对劲法？"
+
+"I mean, just off. Like you're going to cry."  
+"我是说，就是不对劲。好像你要哭了一样。"
+
+She laughed at that comment. "Me? Cry?"  
+她对这个评论笑了。“我？哭？”
+
+"You've cried before," Shinji said, defensively.  
+“你以前哭过，”真嗣辩解道。
+
+"Yeah, but not that oft—I don't cry, alright?" she snapped, aggressively.  
+“是啊，但没那么频繁——我不哭，行了吧？”她咄咄逼人地反驳道。
+
+"Fine, okay, I'm just saying—"  
+"好吧，行，我只是说——"
+
+"Just what?" “什么意思？”
+
+"Nothing." "没什么。"
+
+Asuka frowned, slightly. "No, go ahead. What were you going to say?"  
+明日香微微皱眉。“不，继续。你刚才想说什么？”
+
+"I was going to say that you just looked really sad lately, you know? You looked as though you had something on your mind lately, and it's just kind of bothering you."  
+"我正想说你最近看起来真的很悲伤，你知道吗？你最近看起来心事重重的样子，这让你有点困扰。"
+
+"Well, I have something in my uterus, does that count?"  
+"嗯，我子宫里有点东西，这算不算？"
+
+"Is that's what's bothering you? The baby?"  
+"这就是困扰你的原因吗？是宝宝吗？"
+
+"Well, yeah, I just think I look like a fatso is all. It's just normal girl stuff, so I wouldn't expect a guy like you to really be too concerned."  
+"嗯，是的，我只是觉得自己看起来像个胖子。就是普通女孩子的烦恼，我没想到像你这样的男生会真的在意。"
+
+"But you're pregnant. You shouldn't be worried."  
+"但你怀孕了。你不应该担心这些。"
+
+"Oh, it's not a big deal, like I said. Nothing I can't handle on my—"  
+"哦，没什么大不了的，就像我说的。这些我自己都能应付——"
+
+"You're beautiful right now."  
+"你现在美极了。"
+
+The red haired German stopped midsentence, and glanced over at her husband to be. Her cheeks were flushed with scarlet, and, had it not been for Shinji shouting at her to look back at the road as she almost drove straight into an oncoming bus, Asuka would've remained staring in awe at her husband for hours, her eyes trembling at that unsolicited, unnecessary, and yet welcomed comment. After a few seconds of returning to her senses, the redhead laughed, "That's what they all say."  
+红发的德国女孩话说到一半突然停住，转头看向她的未婚夫。她的脸颊因羞涩而泛起绯红，若不是真嗣大声提醒她注意前方道路，差点就迎面撞上一辆公交车，明日香可能会一直凝视着她的丈夫，久久不能自拔，她的眼睛因那突如其来、无关紧要却又令人心动的赞美而颤抖。几秒钟后回过神来，红发女孩笑道：“大家都这么说。”
+
+Finally, they pulled up to their apartment complex. Shinji noticed, with a sinking expression, that, despite the fact that the guests had hidden in their room, they had made no effort to hide the multitude of cars now parked along the street. "Wow, someone must be having a party," Asuka murmured in acknowledgement as they parked in their ordinary spot.  
+最终，他们驶入了公寓楼。真嗣注意到，尽管客人们已经躲进了房间，但他们并未设法隐藏沿街停放的众多车辆，这让他表情沉重。“哇，肯定有人在开派对，”明日香轻声附和，当他们停在自己的常规车位时。
+
+"Yeah, someone must be having fun, right?" Shinji laughed, nervously.  
+“是啊，肯定有人在享受乐趣，对吧？”真嗣紧张地笑了笑。
+
+The two exited the car, and, as Shinji withdrew the heaping piles of clothing from the trunk, Asuka glanced around, her eyes landing on one car only a few spots away from hers. Her eyebrow raised as she took a few steps closer, her puckered forehead sending a trembling shock up Shinji's spine. "Yeah, hey, wait, isn't that Hikari's—"  
+两人下了车，当真嗣从后备箱里取出堆积如山的衣物时，明日香环顾四周，目光落在了离她的车位仅几步之遥的一辆车上。她眉头一挑，走近几步，紧皱的额头让真嗣的脊背一阵发麻。“嘿，等等，那不是光的车吗——”
+
+"Hey, Asuka, help me carry some of these bags, alright?" Shinji dumped some of the fifteen bags into Asuka's arms, knocking her off balance for a moment. She caught herself, but her view of the car was obscured.  
+“嘿，明日香，帮我拿几个包，好吗？”真嗣将十五个包中的几个塞进明日香怀里，让她一时失去了平衡。她稳住了自己，但视线却被遮挡住了。
+
+"Hey! I asked you to carry them for me!"  
+"嘿！我让你帮我拿的！"
+
+"I know, but my arms are getting tired."  
+"我知道，但我的胳膊快累断了。"
+
+"You don't have the privilege of getting tired!" Asuka shouted back as Shinji darted up the stairs. The redhead followed the Japanese adult, albeit at a slower speed due to the mass in her belly. She seemed to have all but forgotten the car as they made their way, almost playfully, to their room. Shinji placed his keys in the lock, slowly unlocking the door as to give the guests inside warning that they had arrived. As Asuka reached the landing before the door, she mumbled, aggressively, "How long you gonna unlock the door?"  
+"你可没资格喊累！"" 明日香回喊道，真嗣则快步上楼。红发女孩跟在后面，尽管因为肚子里的重量速度慢了些。她似乎完全忘记了车子，两人几乎是嬉闹着走向房间。真嗣把钥匙插进锁孔，慢慢转动，以此给屋内的客人一个他们到来的信号。当明日香走到门前时，她不满地嘟囔道：""你还要开多久门啊？"
+
+"Oh, just a minute," Shinji replied, shoving against the door as it hurtled open, the room dark and empty.  
+"哦，稍等一下，" 真嗣回答道，用力推开疾速敞开的门，房间内一片漆黑，空无一人。
+
+"Did we forget to turn on the lights when we left?" Asuka asked, surprised, "I thought I kept a lamp on or something." Asuka walked into the room, only for the lights to suddenly turn on, and they were greeted to a rather festive sight.  
+"我们离开时忘记开灯了吗？" 明日香惊讶地问，"我记得我留了一盏灯或者什么的。" 明日香走进房间，突然间灯光亮起，映入眼帘的是一片相当喜庆的景象。
+
+___
