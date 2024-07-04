@@ -264,3 +264,151 @@ Shinji just looked down and frowned. He hadn't known Kaji that long, but he star
 “我想是吧。” 真嗣叹了口气，在附近的长椅上坐下。“我行为怪异是因为昨晚发生了一些事。”
 
 ---
+### Chapter 3
+"Last night?" Kaji raised an eyebrow. "What happened?"  
+"昨晚？" 加持挑了挑眉。"发生了什么？"
+
+"Well, it started when Asuka decided to sleep in another room from me and said it was like the Walls of Jericho." Shinji was looking down on the ground. "After that, I tried going to sleep."  
+"嗯，事情起因是明日香决定不和我睡同一个房间，还说这就像耶利哥的城墙。" 真嗣低头看着地面。"之后，我就尝试入睡。"
+
+"Of course." Kaji facepalmed as he started to mumble. "Why in the world did Asuka think he'd get that reference?"  
+"当然。" 加持捂脸，开始喃喃自语。"明日香怎么会以为他能理解那个典故？"
+
+"Did you say something?" Shinji now looked up at him.  
+"你刚才说什么了吗？" 真嗣现在抬头看着他。
+
+"It's nothing. Just continue." Kaji waved his hand.  
+"没什么。继续吧。" 加持挥了挥手。
+
+"Well, as I said, I tried to go to sleep and had trouble doing that. Then all of a sudden, Asuka was right in front of me."  
+"嗯，就像我说的，我试着去睡觉，但很难入睡。然后突然间，明日香就出现在我面前。"
+
+"Wait, she came back out after saying she wanted to be alone?" Kaji took a seat next to him.  
+"等等，她说想一个人待着，结果又出来了？" 加持在他旁边坐下。
+
+"No, she was still asleep." Shinji paused for a few moments and took a deep breath. "Then, while she was laying in front of me, she started calling for her mom."  
+"不，她还在睡。" 真嗣停顿了一会儿，深吸了一口气。"然后，她躺在我面前，开始喊妈妈。"
+
+"I see." Kaji kept looking at him. "Did anything else happen?"  
+"原来如此。" 加持继续看着他。"还有其他事发生吗？"
+
+"She..." Shinji looked back at the ground. "She started crying and saying she didn't want to be alone."  
+"她..." 真嗣回头看向地面。"她开始哭泣，说她不想一个人。"
+
+"And what did you do after this?" Shinji was now facing Kaji again, a little shocked at his question.  
+"那你之后做了什么？" 真嗣再次面对加持，对他的问题感到有些惊讶。"
+
+"I don't know why, but I put my arm around her and whispered that she wasn't alone."  
+"我不知道为什么，但我搂住了她，轻声告诉她并不孤单。"
+
+"I see." Kaji smiled as he put his arm around Shinji. "I know you don't realize it, but you did the right thing for Asuka that night. You're also doing the right thing telling me all of this."  
+"我明白了。" 加持笑着将手臂搭在真嗣肩上。"我知道你没意识到，但那晚你为明日香做了正确的事。现在你把这些都告诉我，也是在做正确的事。"
+
+"Really?" Shinji stared at him.  
+"真的吗？" 真嗣盯着他。
+
+"Asuka has done this multiple times in the past." Kaji sighed as he crossed his arms. "She doesn't realize it, but the reason I'm close to her is that I would do the same thing you did for her."  
+"明日香过去也多次这样。" 加持叹了口气，双臂交叉。"她没意识到，我之所以与她亲近，正是因为我会像你那样为她挺身而出。"
+
+"So Asuka has always had this problem?"  
+"这么说，明日香一直有这个问题？"
+
+"Yes, but she doesn't know about it." Kaji frowned. "It's not exactly something she'd remember since it's only in her sleep. It also doesn't happen that often."  
+"是的，但她自己并不知情。" 加持皱眉道，"这不是她会记得的事情，因为它只发生在她睡觉时。而且这种情况也不常发生。"
+
+"Does Misato know?" "美里知道吗？"
+
+"Not sure on that one." Kaji blew smoke from his cigarette. "You let me worry about telling Katsuragi."  
+"对那个不太确定。" 加持从香烟中吹出一缕烟雾。"你让我来担心怎么告诉葛城。"
+
+"So, what do I do then?" Shinji raised an eyebrow. "They're going to keep asking me when you take me home, and I don't know what to say to them. Even if you tell Misato, Asuka would still want an answer."  
+"那么，我该怎么办呢？" 真嗣挑了挑眉。"你带我回家后，他们还会继续问我，我不知道该怎么回答他们。就算你告诉美里，明日香还是会想要一个答案。"
+
+"I have an idea for that." Kaji smiled. While Kaji was talking to Shinji about everything, Asuka and Misato were back at the apartment. At first, Misato thought Asuka was joking around, but seeing the waffle iron out made her think there was some truth to this.  
+"我有个主意。" 加持微笑道。当加持和真嗣谈论这一切时，明日香和美里回到了公寓。起初，美里以为明日香在开玩笑，但看到华夫饼机摆出来，她开始觉得这事儿有点真实了。
+
+"I mean, Shinji has always been helpful with the apartment, but he never goes this far." Misato sat at the dining room table with her arms crossed. "Did anything happen last night?"  
+"我的意思是，真嗣一直都很帮忙打理公寓，但他从没这么过分。" 美里双臂交叉坐在餐桌旁。"昨晚发生了什么事吗？"
+
+"Nothing I can think of." Asuka crossed her arms and closed her eyes. "Unless that pervert did something in my sleep and feels guilty about it."  
+"我想不出有什么。" 明日香也交叉双臂，闭上了眼睛。"除非那个变态趁我睡着做了什么，然后感到内疚。"
+
+"I doubt that's the reason." Misato sighed. "Shinji knows better than to try something like that."  
+"我怀疑不是因为这个。" 美里叹了口气。"真嗣知道不该那样做的。"
+
+"Well, whatever the reason is, I want answers." Asuka paced back and forth. "Ehh! Why did he need to be taken away, right when he was about to tell us!?"  
+"好吧，不管是什么原因，我需要答案。" 明日香来回踱步。"诶！为什么他非得在我们即将知道真相的时候被带走！？"
+
+"That does seem strangely convenient..." Misato frowned as she held her chin. "_If this was a trick by Kaji, I'm going to kill him._"  
+"这确实显得有些蹊跷..." 美里皱着眉头，托着下巴。"如果这是加持的把戏，我非杀了他不可。"
+
+Just as Misato was thinking about that, the door opened to her apartment. Both Asuka and Misato looked to see who it was.  
+就在美里这么想的时候，她公寓的门打开了。明日香和美里都转头看向门口，想知道是谁来了。
+
+"Kaji-san!" Asuka smiled as she put her hands together. "You came over to see me!"  
+"加持先生！"明日香笑着双手合十，"你来看我了！"
+
+"There you are!" Misato started stomping towards him. "You better have a good explanation for why you thought you could..."  
+"你在这儿啊！" 美里开始朝他大步走来。"你最好有个好理由，解释为什么你以为你可以……"
+
+"Hey, Misato." Shinji appeared beside Kaji.  
+"嘿，美里。" 真嗣出现在加持旁边。
+
+"There you are!" Asuka mimicked Misato. "Don't think you'll get out of this! I want answers now!"  
+"你在这儿啊！" 明日香模仿着美里。"别以为你能逃掉！我现在就要答案！"
+
+"Actually, it's me that needs to explain." Kaji raised his hand and smiled. "Shinji-kun has been acting weird because of something I told him."  
+"实际上，需要解释的是我。" 加持举起手，微笑着说。"真嗣君行为古怪是因为我告诉了他一些事情。"
+
+"What do you mean, Kaji?" Misato stopped and crossed her arms.  
+"你什么意思，加持？" 美里停下脚步，交叉双臂。
+
+"Oh, I told Shinji I was worried about Asuka not adapting to life in Japan, and he's been worried if that was the case." Kaji smiled as he scratched the back of his head. "That's why he's been trying to be nicer to Asuka and going out of his way to make her happy."  
+"哦，我跟真嗣说我对明日香适应日本生活感到担忧，他就开始担心这是否属实。" 加持笑着挠了挠后脑勺。"这就是为什么他一直在努力对明日香更好，并尽力让她开心。"
+
+"Oh, Kaji-san!" Asuka ran up and hugged him. He instantly hugged her back. "You were really worried about how I was feeling while living here!?"  
+"哦，加持先生！" 明日香跑上前去拥抱他。他立刻回抱了她。"你真的很担心我在这里的生活感受吗！？"
+
+"_Of course, she bought that._" Misato stared at him and then looked at Shinji. "_I'll just let it go for now until I can get a real answer._"  
+"当然，她信以为真了。" 美里盯着他，然后看向真嗣。"我现在先不追究，等能得到真正答案再说。"
+
+"Well, I should be going now." Kaji broke the hug. "Long day tomorrow, so I want to get some rest early."  
+"嗯，我该走了。" 加持松开了拥抱。"明天又是漫长的一天，我想早点休息。"
+
+"Do you really have to go so soon?" Asuka frowned.  
+"你真的非得这么快就走吗？" 明日香皱起了眉头。"
+
+"I'm afraid so, but you should thank Shinji for going out of his way for you." Kaji pointed at Shinji, causing Asuka to look at him. "He's the one that asked if there was something he could make for you to make you happy."  
+恐怕是的，但你得感谢真嗣特意为你费心。”加持指着真嗣，让明日香看向他。“是他问有没有什么能为你做的，好让你开心。”
+
+"Wait, you asked Kaji-san that so you could do that for me?" Asuka raised her eyebrows. Shinji nodded as he stayed quiet. Asuka sighed. "Well, thank you thi... I mean, Shinji."  
+“等等，你问加持先生那些是为了帮我做这个？”明日香挑起眉毛。真嗣点点头，保持沉默。明日香叹了口气。“好吧，谢谢你... 我是说，真嗣。”
+
+Shinji's eyes shot open, surprised. Normally, Asuka would only call him by his designation, but she used his name this time.  
+真嗣的眼睛猛地睁开，感到惊讶。通常情况下，明日香只会用他的代号称呼他，但这次她用了他的名字。
+
+"You're welcome." Shinji smiled.  
+“不客气。”真嗣微笑着。
+
+"Don't think this will mean I'll start falling for you or anything." Asuka grinned with her eyes closed. "I appreciate the effort. However, my heart belongs to Kaji-san."  
+“别以为这会让我开始对你动心什么的。”明日香闭着眼睛咧嘴笑道，“我很感激你的努力。不过，我的心属于加持先生。”
+
+"Later." Kaji turned around and started walking off. "See you tomorrow, Katsuragi."  
+"待会儿见。" 加持转过身，开始走开。"明天见，葛城。"
+
+"Yeah, yeah." Misato watched him walking away. She didn't know what he was hiding but figured he'd tell her tomorrow. She sighed and looked at Asuka and Shinji. She smiled as she saw both looked happier than usual. "How bout I take you both out for pizza tonight to celebrate?"  
+“是啊，是啊。”美里看着他走开。她不知道他在隐瞒什么，但猜想他明天会告诉她。她叹了口气，看向明日香和真嗣。看到两人看起来比平时更开心，她微笑着提议：“今晚我带你们俩出去吃披萨庆祝一下怎么样？”
+
+"I'd love that." Asuka smiled as she walked to Misato's car. "I get to pick the place, though."  
+“我很乐意。”明日香微笑着走向美里小姐的车。“不过，选地方得听我的。”
+
+"Don't I get a say?" Shinji followed her. "You haven't been here that long to know which ones are the best."  
+“难道我没有发言权吗？” 真嗣跟着她。“你在这儿待的时间不长，还不知道哪些是最好的。”
+
+"Ehh, Fine! Just pick someplace good or else!"  
+“哎，好吧！选个好地方，不然有你好看！”
+
+"Good to see things are still the same as usual." Misato smiled as she walked behind them.  
+“看到一切如常，真好。”Misato 微笑着跟在他们身后。
+
+---
