@@ -139,3 +139,147 @@ Looking once more at her pale skin and her sleeping face, Shinji turned away fro
 
 ___
 ### Chapter 2
+Chapter 2: New Beginnings  
+第二章：新的开始  
+
+**ANNNNNNNND I'M BACK. Wow Jesus how long has it been...four months I think? Anyway yeah sorry guys about that long bout of nothing. I just had so much stuff going on during that last term of school that this was put on the back burner for a long time. But I'm back to updating this (for a while at least, things might get slow again in September). So again, thanks to everybody that waited patiently for this and I apologize for the wait.  
+我回来了。哇，天哪，这都过去多久了……四个月吧？总之，很抱歉让大家等了这么久。上个学期我实在太忙了，以至于这件事一直被搁置。但现在我又回来更新了（至少暂时是这样，九月可能又会慢下来）。再次感谢所有耐心等待的朋友，对于等待我深表歉意。**
+
+---
+
+Shinji opened his eyes slowly.  
+真嗣缓缓睁开了眼睛。
+
+For several seconds, as he looked around, he didn't know where he was.  
+有几秒钟，他环顾四周，不知道自己在哪里。
+
+Then he looked down at the girl next to him with strawberry colored hair and he remembered. Or at least, he remembered some things...  
+然后他低头看着身边那个草莓色头发的女孩，他想起来了。或者说，至少他想起了一些事情……
+
+The sun was setting over on the horizon, turning the blood colored water a sickly red hue. The capsized battleships floating meaninglessly out in the Bay of Tokyo-3, their purposes long served. Above the beaches where Shinji sat on, the city of Tokyo-3 lay quietly, almost as though it was sleeping peacefully. Such a calm sound had not been heard in this part of the world for a long forgotten time.  
+太阳正缓缓沉入地平线，将血色的水面染成病态的红色。倾覆的战舰无意义地漂浮在东京-3 湾，它们早已完成了使命。在真嗣坐着的沙滩上方，东京-3 市静静地躺着，仿佛在安详地沉睡。这片世界的一隅，已经很久没有听到过如此平静的声音了。
+
+Amidst all of this, Shinji and the girl next to him where the only two people that stood out among the destruction of Tokyo-3 and the world.  
+在这片混乱之中，唯有真嗣和他身旁的女孩在东京-3 及世界的废墟中显得格外突出。
+
+Shinji continued gazing at the sun, watching it slowly continue setting, seemingly sinking into the ocean. Now that he was awake, he had to admit that he was a little afraid.  
+真嗣继续凝视着太阳，看着它缓缓西沉，仿佛沉入了大海。醒来后，他不得不承认自己有些害怕。
+
+During his brief nap, he had hoped that more humans would show up, someone that could help him, or even explain what had happened to everything. But now, with night starting, he was having to face reality that he may be the only person in the city.  
+在短暂的打盹期间，他曾希望会有更多的人出现，能有人帮助他，或是解释这一切是如何发生的。但如今夜幕降临，他不得不面对现实，自己可能是这座城市里唯一的幸存者。
+
+'Or at least one of the only people,' he thought as he eyes trailed down towards the girl next to him. Her chest was still slowly moving up and down, indicating that she was breathing, but Shinji had hoped that she would have woken up while he had been asleep. He would at least have someone to talk to and maybe she even knew what had happened. Her attire would certainly suggest that she wasn't a normal fifteen year old girl.  
+“或者说至少是其中之一，”他心想，目光顺着身旁女孩的方向滑落。她的胸膛仍在缓缓起伏，表明她还活着，但真嗣本希望她能在他熟睡时醒来。那样至少有人可以交谈，或许她甚至知道发生了什么。她的装束无疑表明她不是普通的十五岁少女。
+
+Shinji looked at her for a few seconds longer, letting his eyes travel over her face before he shook his head and stood up. He didn't know what he was gonna do, but simply sitting wasn't helping. He needed to think.  
+真嗣又多看了她几秒钟，目光在她脸上游移，随后摇了摇头站起身来。他不知道自己该做什么，但只是坐着无济于事。他需要思考。
+
+Standing up he directed his gaze farther down the beach and then up the sandy slope behind him to the wreckage that was Tokyo-3. He supposed that he would have to go into the city eventually, but he didn't feel like he was ready for that. Things still hadn't...quite sunk in yet.  
+站起身来，他将视线投向更远的沙滩，然后转向身后沙坡上的废墟——东京-3。他想自己迟早得进城，但感觉还没准备好面对这一切。事情仍未完全……沉入心底。
+
+Digging his hands into his pockets, he started walking along the beach, just as the sun disappeared across the water.  
+他将双手插进口袋，沿着海滩开始漫步，就在太阳消失在水面之际。
+
+'Okay...what had happened?' was Shinji's first thought.  
+'好吧……发生了什么？'这是真嗣的第一个念头。
+
+The end of the world was the most apparent answer, but Shinji couldn't just take that laying down.  
+世界末日是最显而易见的答案，但真嗣不能就这样躺平接受。
+
+He been living in Tokyo-3 for what...half a year or so? His father had sent him here at the beginning of the year and made him live at an apartment with some guy. His father had brought him here for an unknown reason, but Shinji had wondered if it hadn't had something to do with Nerv. He could remember waking up this morning and going to class and everything as if it was a normal day...and then nothing. Several hours seemed to have just been taken out of his memory it seemed like. He was supposed to be living with a new roommate tomorrow also, but that didn't seem like it would be happening anytime soon.  
+他在第三新东京市住了多久来着...大概半年左右吧？年初时，他的父亲把他送到这里，让他和一个家伙住在公寓里。父亲带他来这里的原因不明，但真嗣怀疑这与 NERV 有关。他记得今早醒来去上课，一切都像平常一样...然后就什么都没有了。几个小时似乎从他的记忆中消失了。他原本明天要和一个新室友一起住，但那似乎不会很快发生。
+
+Kicking his feet as he walked along the sand, he looked towards a large building that seemed to have been a hotel of some sorts. It looked like the building had been in disrepair for several years. Was it somehow possible that Shinji had been sent into the future somehow?  
+他一边沿着沙滩走，一边踢着脚下的沙子，目光投向一座看似曾是酒店的大型建筑。那栋楼看起来已经破败多年。难道真嗣不知怎么地被送到了未来？
+
+'Thats fucking stupid,' thought Shinji. 'No...something more plausible than that.'  
+'这他妈的太蠢了，'真嗣心想。'不...比那更合理的事情。'
+
+Though he honestly couldn't think of anything.  
+虽然他真的想不出任何事情。
+
+Stopping suddenly he looked up towards the sky and was surprised that he could see the stars. He couldn't remember ever seeing the stars his entire time living in Tokyo-3.  
+他突然停下脚步，抬头望向天空，惊讶地发现自己能看到星星。他不记得自己在东京-3 生活的整个时间里曾见过星星。
+
+"Are there really no other humans?" mumbled Shinji.  
+“真的没有其他人类了吗？”真嗣喃喃自语。
+
+He had never really enjoyed associating with people, but to just have everyone disappear all at once was just too strange.  
+他从未真正喜欢与人交往，但所有人突然间全部消失，这未免太过诡异。
+
+"It doesn't make any sense," sighed Shinji.  
+“这毫无道理，”真嗣叹息道。
+
+Running a hand through his hair he looked back towards the way he had come. He could still see the body of the girl in the distance, and was glad that he could still see her. Though the darkness was certainly starting to get heavier, and without the light from Tokyo-3-  
+他用手梳理着头发，回头望向他来时的路。他仍能看到远处那女孩的遗体，庆幸自己还能看见她。尽管黑暗确实开始变得浓重，若没有第三新东京市的光亮——
+
+'This might be a problem,' thought Shinji.  
+“这可能是个问题，”真嗣心想。
+
+He didn't know what had happened, or why it seemed only himself and the strange girl were alive in the city, but right now he had to focus on other things.  
+他不知道发生了什么，或者为什么这座城市里似乎只有他和那个陌生女孩还活着，但此刻他必须专注于其他事情。
+
+Walking to the edge of the water, he ran his hand in it, but only felt the odd substance of the fluid, almost like sand. It was like he was on a different world, a separate earth. Nothing made sense.  
+走到水边，他伸手进去，却只感觉到那种奇怪的液体，几乎像沙子一样。这感觉就像他身处另一个世界，一个截然不同的地球。一切都说不通。
+
+'I'm alive though, so I suppose I should be thankful for that.'  
+'我还活着，所以我想我应该为此感到庆幸。'
+
+Though was he really being honest? With the world as it was, living would be-  
+尽管他真的诚实吗？在这个世界上，活着会是——
+
+Shinji stopped himself here; it was pointless to think about anything other than the next hour of his life.  
+真嗣在这里打断了自己的思绪；除了接下来的一个小时，思考其他任何事情都是没有意义的。
+
+Turning towards the ruins of Tokyo-3, a frown passed over his face. He knew that he would have to explore them tonight, even if he didn't really want to. And though he didn't want to admit it, the fact that the girl hadn't woken up yet was starting to trouble him.  
+转身望向东京-3 的废墟，他眉头紧锁。他知道今晚必须去探查一番，尽管内心并不情愿。而且，尽管他不愿承认，女孩至今未醒的事实开始让他感到困扰。
+
+Moving away from the water, he decided on his course, though whether it was the correct or wrong decision, he didn't know.  
+离开水边，他决定了自己的路线，尽管这决定是对是错，他无从知晓。
+
+Walking back to where the girl lay didn't take long and he was soon caught in a problem; he didn't want to let her out of his sight. It was worry more than anything. He didn't want to run the risk of him not being there when she woke up, or if something more serious happened-  
+走回女孩躺着的地方并不需要太久，很快他就遇到了一个问题；他不想让她离开自己的视线。更多的是出于担忧。他不想冒着她醒来时或发生更严重情况时自己不在的风险——
+
+Shinji shook his head. 真嗣摇了摇头。
+
+'Best not to think about that,' he thought.  
+'最好别去想那件事，'他心想。
+
+On the other hand though, he couldn't very well carry her. It would have been...awkward.  
+不过另一方面，他也不太可能把她抱起来。那样会显得...很尴尬。
+
+'What to do,' thought Shinji. 'I don't want to leave her, but at the same time I don't have much of a choice.'  
+“该怎么办呢，”真嗣心想，“我不想离开她，但同时我也没有太多选择。”
+
+Shinji then noticed a piece of driftwood not too far off in the distance. Looking around him, he noticed that there was a strange amount of wood laying around the beach, most of which seemed to have been splintered off from buildings.  
+随后，真嗣注意到不远处有一块浮木。环顾四周，他发现海滩上散落着大量木头，其中大部分似乎是从建筑物上碎裂下来的。
+
+"Right...a fire would work," mumbled Shinji as he started counting the pieces of wood. The fire would help not only to relieve his worries of the girl, but also if there were any more survivors, they may see the flames and be drawn to it.  
+"“对……生火应该有用，”真嗣喃喃自语，开始数起木柴的数量。火不仅能缓解他对女孩的担忧，如果有其他幸存者，他们也可能看到火光而被吸引过来。”
+
+'But making it is another problem,' frowned Shinji. He had never tried lighting a flame without anything other than a match.  
+"“但生火又是另一个问题，”真嗣皱眉道。他从未尝试过不用火柴以外的任何东西点燃火焰。”
+
+'One step at a time,' he told himself as he stood up. He was rather glad to be moving and having a set goal to work towards. It certainly kept his mind off of other things.  
+“一步一个脚印，”他自言自语道，站起身来。能够行动并有一个明确的目标去努力，他感到相当欣慰。这无疑让他的思绪从其他事情上转移开来。
+
+Gathering up as much dry wood as he could, he then scaled the sandy slope behind him to the top where there was some dry brush and picked several handfuls and brought it back down to the beach. He didn't have any sort of way to chop the wood so he dug a hole in the sand using one of the pieces of wood and dug himself a sand pit. Placing the larger pieces of wood at the bottom, he stacked it higher with the smaller pieces, hoping that it would burn longer like this. He kept a pile of wood next to this pit as extra kindling incase the flames started to die down.  
+他尽可能多地收集干木柴，然后爬上身后沙质的斜坡，到达顶部有一些干枯灌木的地方，抓了几大把带回海滩。他没有工具来劈开木头，于是用一根木头在沙地上挖了一个洞，为自己挖了一个沙坑。他将较大的木块放在底部，用较小的木块堆叠得更高，希望这样能让火燃烧得更久。他在沙坑旁留了一堆木柴作为额外的引火物，以防火焰开始减弱。
+
+Now though, the problem was exactly how he was going to make those flames.  
+不过现在，问题在于他究竟要如何制造出那些火焰。
+
+Climbing back up the slope he stood up at the top and looked towards the destruction of Tokyo-3. Everything was much more apparent up here.  
+他爬回坡顶，站起身来，望向被摧毁的第三新东京市。站在这里，一切景象都更加清晰可见。
+
+The shops and stores that littered the edge of the beach looked as though they had been bombed from the inside. Empty holes filled the window frames and twisting pieces of metal lined the sides of them, indicating that they were once chairs and tables. Most likely a coffee shop of some kind. Thankfully though, a road also ran along this stretch of the beach and Shinji didn't think he would have to search far before he found a lighter.  
+散布在海滩边缘的商店和店铺看起来就像是从内部被轰炸过一样。窗框里填满了空洞，扭曲的金属片沿着两侧排列，表明它们曾经是椅子和桌子。很可能是某种咖啡店。不过幸运的是，海滩这一段也有一条路，真嗣认为他不用费多大力气就能找到一个打火机。
+
+Any thought that what he was doing was wrong must have been long since abandoned, because Shinji had no problems going through the cars, purses, glove compartments, and other peoples belongings as he searched for a lighter. Maybe it was because of his disassociation with people in general, or maybe he just buried that part of his mind which told him it was wrong. Certainly if there had been bodies in the cars like he had initially been worried about, or the peoples clothes he would have had second thoughts. But without any of this, he was able to pick through things without thinking about it.  
+任何认为他所做的事情是错误的念头肯定早已被抛诸脑后，因为真嗣在寻找打火机时，毫不犹豫地翻遍了汽车、钱包、手套箱和其他人的物品。也许是因为他与人们普遍的疏离感，或者他只是埋葬了那部分告诉他这是错误的思想。当然，如果车里有像他最初担心的尸体，或者人们的衣物，他可能会有所犹豫。但没有这些，他就能毫不犹豫地翻找东西。
+
+Finally after about the seventh car he had been through, he found a lighter on the ground of the drive side door. Flicking it on, a golden flame lit in front of him and seemed to wave back and forth at him. Flicking it off, Shinji leaned out of the car and stood up.  
+终于，在检查了大约第七辆车后，他在驾驶座车门的地板上发现了一个打火机。轻轻一按，一簇金色的火焰在他面前燃起，似乎在向他摇摆。关掉打火机，真嗣探出车外，站了起来。
+
+Sliding back down the slope to the beach below, he jogged to the fire pit and kneeled down next to it. Setting the brush on top of the wood, he placed the lighter in the brush and lit it. Grabbing some of the smaller logs, he placed them gently on top of the brush, letting the logs catch fire. Shifting the logs that were now lit around, he proceeded to gently stroke the fire, catching the sparks on the other pieces of wood. Tokyo-3's nights could be particularly brutal at times, and Shinji wanted not only himself, but the girl to be warm.  
+他滑下斜坡回到海滩，小跑向篝火坑，跪在旁边。将树枝放在木头上，他把打火机放在树枝中点燃。抓起一些小木柴，轻轻放在树枝上，让木柴着火。移动已经点燃的木柴，他开始温柔地拨弄火焰，让火花点燃其他木块。第三新东京市的夜晚有时特别严酷，真嗣不仅希望自己，也希望那个女孩能感到温暖。
