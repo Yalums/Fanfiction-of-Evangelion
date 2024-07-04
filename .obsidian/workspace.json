@@ -31,7 +31,7 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Marco Strange - Underneath.md",
+                "file": "Da Games Elite - The Little Angel.md",
                 "mode": "source",
                 "source": false
               }
@@ -74,16 +74,17 @@
             "state": {
               "type": "search",
               "state": {
-                "query": "",
+                "query": "file:the little angel",
                 "matchingCase": false,
-                "explainSearch": false,
-                "collapseAll": false,
-                "extraContext": false,
+                "explainSearch": true,
+                "collapseAll": true,
+                "extraContext": true,
                 "sortOrder": "alphabetical"
               }
             }
           }
-        ]
+        ],
+        "currentTab": 2
       }
     ],
     "direction": "horizontal",
@@ -164,7 +165,7 @@
       "workspaces:管理工作区布局": false
     }
   },
-  "active": "5fe9135b3bf41c77",
+  "active": "2f4432c7012e8683",
   "lastOpenFiles": [
     "DeadlyPole - 🍋Shinji and Asuka.md",
     "Da Games Elite - The Little Angel.md",
