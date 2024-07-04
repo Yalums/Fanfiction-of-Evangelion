@@ -3165,3 +3165,347 @@ The two exited the car, and, as Shinji withdrew the heaping piles of clothing fr
 "我们离开时忘记开灯了吗？" 明日香惊讶地问，"我记得我留了一盏灯或者什么的。" 明日香走进房间，突然间灯光亮起，映入眼帘的是一片相当喜庆的景象。
 
 ___
+**Part 12 第十二部分**
+
+"Mr. Shinji Ikari! Will Mr. Shinji Ikari please come to Commander Kozu Fuyutsuki's office?"  
+碇真嗣先生！碇真嗣先生请到葛城美里指挥官的办公室来一下好吗？
+
+That familiar female voice rang through the loudspeaker of the building. He probably had called his office to no response a dozen times earlier to get this desperate to contact Shinji. However, it was rather difficult to answer the phone when one was ejecting explosive levels of diarrhea from one's anus. Shinji recalled last night with a rather irate expression as he felt helpless frustration at being unable to respond to Fuyutsuki's call.  
+那熟悉的女性声音通过大楼的扬声器回荡开来。他之前可能已经给办公室打了十几次电话却无人应答，以至于现在如此迫切地想要联系真嗣。然而，当一个人正从肛门喷射出爆炸性的腹泻时，接电话确实相当困难。真嗣回想起昨晚，脸上带着相当恼怒的表情，感到无助的沮丧，因为他无法回应冬月老师的电话。
+
+Last night, Misato had dumped both of her kids on both him and his darling wife-to-be, Asuka. To say this was unexpected would be akin to claiming that Stalingrad was only a minor battle. Once again, thankfully, Ryouji had become a boy possessed by the urge to dominate and destroy Asuka in a fighting game of some sort, Shinji figured the newest Mortal Kombat seeing as how that was what his wife had spent the majority of the time playing recently. Unfortunately, however, Yumi wasn't so easily preoccupied with the game.  
+昨晚，美里把她的两个孩子都丢给了他和他的未婚妻——亲爱的明日香。说这是意料之外的事，简直就像声称斯大林格勒只是一场小规模战斗一样。幸运的是，再一次地，绫志被某种想要在某种格斗游戏中支配并摧毁明日香的冲动所驱使，真嗣猜测是最近的《真人快打》，因为那是他妻子最近大部分时间都在玩的游戏。然而，不幸的是，由美并没有那么容易被游戏吸引。
+
+Rather, she was drawing. 相反，她在画画。
+
+While in and of itself this was an act of no real importance, and certainly one that wouldn't cause Shinji to release toxic brown sludge out of his ass, it was the content of the drawings that lead to both final situations. It was a certain blue haired girl: Rei Ayanami.  
+虽然这件事本身并不重要，也绝不会让真嗣因此放出有毒的棕色泥浆，但正是这些画的内容导致了最终的局面。那是一个蓝发女孩：绫波零。
+
+Just how the hell did this girl know about Rei Ayanami remained a mystery to Shinji to this very instant. How did Yumi know about a girl who had fallen to pieces years before she had even drawn her first breath? Out of all the individuals who had never returned from Instrumentality, Rei Ayanami was the one no one had ever spoken of in public, or had built a memorial of. Ryouji Kaji and Ritsuko had both memorials and portraits of all sorts positioned all around the NERV facilities, and Gendo Ikari's horrible form had been erected as a statue in front of the entranceway Shinji took every day to work, but Rei Ayanami's sole monument, the sole evidence she had even been alive at all, save for simple pictures and documentation, was her Earthly remains that had been contained several miles below the Earth.  
+这个女孩究竟是如何知道绫波零的，至今对真嗣来说仍是个谜。优美是如何知道一个在他出生前几年就已支离破碎的女孩的？在所有未从人类补完计划中归来的人中，绫波零是唯一一个从未有人在公开场合提及，也未曾为她建立纪念碑的。加持良治和律子都有各种形式的纪念碑和肖像遍布 NERV 设施各处，而碇源堂那可怕的形象则被塑成雕像，矗立在真嗣每天上班必经的入口处，但绫波零唯一的纪念，唯一证明她曾活过的证据，除了简单的照片和文件外，就是她被深埋地下的遗骸。
+
+Rei Ayanami was in pieces below the Earth.  
+绫波零的遗骸深埋于地底。
+
+How did Yumi know what she looked like?  
+优米是怎么知道她长什么样的？
+
+Why was she drawing he so frequently?  
+为什么她这么频繁地画他？
+
+"So, Yumi, drawing again?" Shinji asked, softly so he wouldn't draw his fiance's attention to the subject that disturbed her so terribly.  
+“那么，优米，又在画画吗？”真嗣轻声问道，以免引起他未婚妻对那个令她如此困扰的话题的注意。
+
+Yumi nodded at this, her eyes still focused behind her glasses in nigh-obsessive attention. "It's that girl I told you about last time, R—" Shinji clamped a hand on Yumi's soft mouth, strangling the words before they could be given life. Thankfully, Asuka was too busy dampening her character's fists in Ryouji's avatar's blood to even briefly notice the first letter of her hated rival's name.  
+优点头回应，她的目光依旧透过眼镜专注地凝视着，近乎痴迷。“就是我上次跟你说的那个女孩，R——”真嗣一手捂住优柔软的嘴唇，将那些话扼杀在萌芽之中。幸运的是，明日香正忙着在她角色的拳头上沾满 Ryouji 化身的鲜血，根本无暇注意到她憎恨的对手名字的首字母。
+
+"I know who you mean, yeah. So, uh, Yumi, did you see this girl again?"  
+“我知道你说的是谁，嗯。那么，优，你又见到那个女孩了吗？”
+
+"Yeah," Yumi replied, "Outside my house."  
+“嗯，”优回答，“在我家外面。”
+
+"Outside your—what was that!" Outside Misato Katsuragi—er—Hyuuga's house? How could a dead woman Misato had known for years possibly find herself in front of the house of one of the people this supposedly dead or alive girl knew growing up and dying in front of? Wasn't there security around the Hyuuga residence that would pick up the presence of a living dead girl like Rei Ayanami? Wasn't there some sort of scanner or tracker that would determine if an Angelic creature like Rei emerged nearby?  
+"你在外面——那是什么！" 在葛城美里——呃——日向的家外面？一个死了的女人，美里认识多年的人，怎么可能突然出现在她所认识并成长的地方，甚至死在门前？日向家周围难道没有安保系统能察觉到像绫波丽这样的活死人的存在吗？难道没有某种扫描仪或追踪器能检测到像绫波丽这样的天使生物出现在附近吗？
+
+"Yeah, on the front step," Yumi replied, "Just standing there. Mommy didn't see her, though, 'cause she left before she came outside."  
+"是的，就在前台阶上，" 由美回答道，"就站在那里。妈妈没看到她，因为她出去之前那女孩已经在外面了。"
+
+Misato didn't see? Surely security cameras caught something. Shinji knew that someone like Rei Ayanami couldn't just walk up, say hi, and leave without someone noticing her. Actually, that statement wasn't entirely true, now that he thought of it, considering just how spectral Rei was in life. But Yumi couldn't notice that Shinji was this anxious, oh no. "Oh, did she say anything to you?"  
+美里没看到？安全摄像头肯定捕捉到了什么。真嗣知道像绫波丽这样的人不可能就这样走过来，打个招呼，然后离开而不被人注意到。实际上，考虑到绫波丽生前那种幽灵般的特质，这句话并不完全正确。但由美不会注意到真嗣的这种焦虑，哦不。 "哦，她对你说了什么吗？"
+
+"She asked about someone named Pilot Sohryu. Do you know someone like that?"  
+"她问起一个叫 Sohryu Pilot 的人。你认识这样的人吗？"
+
+THAT caught his fiancé's attention.  
+这引起了他的未婚妻的注意。
+
+At that moment, the redhaired German rose to her feet, and turned around, curiously. It was as though, even after over a decade of disuse, that name still summoned feelings of the past from his wife-to-be, bringing the former ace pilot to her feet, just like that. "What're you two talking about, exactly?"  
+就在那一刻，那位红发的德国女子站起身来，好奇地转过身。仿佛即使过了十几年未曾使用，那个名字依然能从他的未婚妻心中唤起往昔的情感，让她这位前王牌飞行员就这样站了起来。“你们俩到底在谈些什么？”
+
+"Oh, uh, nothing at all!" Shinji replied, waving Yumi off before she could speak something that would compromise his cover-up. After all, he was doing this for Asuka's sake. He didn't want Asuka responding like last time by going all nuts searching for info on Rei Ayanami again. Surely his wife could forgive him for so clearly lying to her like this.  
+"哦，呃，没什么！" 真嗣回答道，赶在由美说出可能揭穿他掩饰的话之前挥手让她别说了。毕竟，他这么做是为了明日香。他不想明日香像上次那样，又发疯似的去搜寻绫波零的信息。毫无疑问，他的妻子会原谅他如此明显地对她撒谎。
+
+"No, really, I heard my name. I'm not stupid, like you, idiot."  
+"不，真的，我听到我的名字了。我可不像你那么蠢，白痴。"
+
+Yumi jumped up at this, her eyes wide like balls. "You were a pilot? Of what, a plane?"  
+由美听到这话跳了起来，眼睛瞪得像球一样大。"你曾经是飞行员？什么飞机？"
+
+"Well, no, not really. Actually, I was the pilot of—"  
+"嗯，不，其实不算。实际上，我是——"
+
+"So who wants some German food?" It was the first thing Shinji could think of that would deviate the topic away from piloting, from Yumi's questions, from Rei Ayanami. As he hastily grabbed random ingredients together, along with a fryer, he noticed that Asuka was STILL explaining to Yumi the exact nature of who "Pilot Sohryu" was.  
+"那么谁想来点德国菜？" 这是真嗣能想到的第一个能将话题从驾驶、从优美的提问、从绫波零身上引开的东西。他匆忙地抓起一些随机的食材，连同炸锅一起，注意到明日香仍在向优美详细解释“惣流驾驶员”究竟是谁。
+
+"Oh, yeah, I'll have some of whatever you make, just get me chocolate too. Anyway, back when I was younger, I—"  
+"哦，好的，你做什么我都吃，再给我来点巧克力。话说回来，我小时候——"
+
+At that moment, the pots and pans Shinji had retrieved "slipped" from his fingers, slamming loudly onto the oven, sending a clatter through the air that obliterated the sounds that emerged from the redhead's mouth. The girl cringed, the soft flesh on her shoulders bunching up over her bra-straps, but Shinji didn't care. Anything to interrupt Asuka before Rei's story came to the forefront of the conversation.  
+就在那一刻，真嗣拿的锅碗瓢盆从他手中“滑落”，重重地砸在烤箱上，发出一阵刺耳的碰撞声，淹没了红发女孩口中的声音。女孩缩了缩身子，肩上的软肉在胸罩带上方聚成一团，但真嗣并不在意。只要能在丽的故事成为话题焦点之前打断明日香，他什么都愿意做。
+
+"What the hell are you! Stupid!" Asuka snapped, turning on Shinji, "Those pots aren't cheap, ya know!"  
+“你到底在搞什么鬼！蠢货！”明日香厉声喝道，转向真嗣，“那些锅可不便宜，你知道吗！”
+
+"But you see no problem in spending dozens of hundreds if not thousands of dollars on a birthday cornucopia?"  
+“但你却觉得花上几百甚至几千美元办个生日宴会毫无问题？”
+
+"That's irrelevant!" "那无关紧要！"
+
+"You guys sure fight a lot," Yumi replied, smiling, her dimples almost begging Shinji to pinch her cherubic cheeks.  
+""你们俩真是吵个不停，"" 优微笑着说，她的酒窝几乎在恳求真嗣捏捏她那可爱的脸颊。
+
+"Yeah, well, that's what happens when you're dealing with an idiot like him," Asuka replied, slumping back down by Ryouji, forgetting Yumi in order to pummel her brother.  
+""是啊，这就是跟像他那样的白痴打交道的后果，"" 明日香回答道，又瘫倒在亮司旁边，忘记了优的存在，转而继续揍她的哥哥。
+
+Disaster averted, right? 灾难避免了，对吧？
+
+As Shinji realized, as he sat on the can, an extra ingediant had been dropped in the pot when he slammed it against the oven, one that, upon being cooked, reacted poorly with his bowels. Asuka and the others simply said the food wasn't his best specimen, or, in Asuka's words, "I've tasted freaking dog vomit tastier than this slop! What? Was edible food too classy for tonight, dummkopf?"  
+正如真嗣所意识到的那样，当他坐在马桶上时，他在猛击锅子时意外地向锅中加入了某种额外的成分，这种成分在被烹饪后与他的肠胃产生了不良反应。明日香和其他人只是说这顿饭不是他最好的作品，或者说，用明日香的话来说，“我尝过比这烂泥还美味的狗呕吐物！怎么？今晚吃可食用的食物对你来说太高级了吗，笨蛋？”
+
+After purging himself of the filthy sludge he had cooked the night before, Shinji left the bathroom, and made a mad dash for Fuyutsuki's room as they paged him a second time. Upon arriving in his office, pushing his door open as he stumbled in front of Fuyutsuki's desk in a clutter, the elderly man glanced at him, sighing in relief. "Good. For a second I thought you must've been out contemplating the meaning of life or something. What took you so long, Ikari?"  
+在清除了昨晚烹饪的污秽泥浆后，真嗣离开了浴室，疯狂地冲向冬月副司令的房间，因为他第二次被呼叫了。到达办公室时，他推开门，踉跄地站在冬月的办公桌前，这位老人看了他一眼，松了口气。“好。有那么一会儿，我还以为你一定是在外面思考人生的意义之类的。碇，你为什么花了这么长时间？”
+
+"I was, er, taking care of some business, sir."  
+"呃，先生，我正在处理一些事务。"
+
+"Was it so important that you couldn't just stop what you were doing and walk your way to my office, Ikari?"  
+"真的有那么重要，以至于你不能停下手头的事情，直接走到我办公室来吗，碇？"
+
+"Trust me when I say that if I stopped midway and did a half-assed job, things could get a little messy in here."  
+"相信我，如果我中途停下来，只做一半的工作，这里可能会变得有点乱。"
+
+"Ikari, I waddle through messes bigger than whatever you were dealing with on a daily basis, so that's no excuse."  
+"碇，我蹚过的浑水比你日常处理的那些要大得多，所以这不算借口。"
+
+"Okay, sir." "好的，先生。"
+
+"And in any case, what I have to tell you is extremely important, so listen very careful to what I am about to say."  
+"无论如何，我要告诉你的事极其重要，所以请仔细听我接下来要说的话。"
+
+"Okay." “好的。”
+
+Fuyutsuki ran a hand up his wrinkled forehead, the lighting in the room making him look older than he truly was. Finally, he turned to Shinji, and withdrew a folder from his desk drawer. As he dropped the file on the surface of his desk, he began to speak. "Intelligence gathered questionable video content from the Hyuuga residence a few days ago, but it's only come to my attention recently due to rather sloppy middle management skills. Once Misato saw this, she felt you had the right to take a look at all this as well."  
+冬月用手抚过他布满皱纹的额头，房间的灯光让他看起来比实际年龄更老。最终，他转向真嗣，从办公桌抽屉里取出一个文件夹。他将文件丢在桌面上，开始说道：“几天前，情报部门从日向家收集到了一些可疑的视频内容，但由于中层管理不善，直到最近才引起我的注意。米萨托看到这些后，认为你也有权看一下。”
+
+Even before Fuyutsuki opened the folder up, Shinji knew what he was about to see. He didn't need the page to turn to bare witness to a head of blue hair, scarlet eyes staring out at the camera, a school uniform composed of blue and white fabric that he had not seen in several yeas, and pale, empty skin pulled against nigh emotionless facial muscles.  
+甚至在冬月打开文件夹之前，真嗣就知道自己即将看到什么。他不需要翻页就能见证那一头蓝发，猩红的眼睛直视着镜头，那套由蓝白布料组成的校服他已经多年未见，苍白无情的肌肤紧贴在几乎毫无表情的脸庞上。
+
+Rei Ayanami. 绫波零。
+
+Alive again. 再次活过来。
+
+"I don't know what this means, nor have I any way of knowing how to deal with this issue, but, Ikari, we just felt you should know. That's all."  
+“我不明白这意味着什么，也没有任何方法知道如何处理这个问题，但，碇，我们只是觉得你应该知道。仅此而已。”
+
+"I understand, Commander. But, can you tell me what you think this means?"  
+"我明白，指挥官。但，你能告诉我你认为这意味着什么吗？"
+
+Fuyutsuki sighed, running his hand through his hair yet again, pewter in color. "I have no idea. I really wish I had an answer to satisfy you, but I've got nothing. We checked the basement, and there's no sign that Rei's remains are any different, the bloodstains she left on the moon are still present, but I have nothing I can possibly tell you to explain why Rei Ayanami is in that picture. Not a damn thing."  
+冬月叹了口气，再次用手梳理着他那铅灰色的头发。“我不知道。我真的希望能给你一个满意的答案，但我什么都没有。我们检查了地下室，那里没有任何迹象表明绫波的遗体有所不同，她在月球上留下的血迹依然存在，但我无法告诉你为什么绫波零会出现在那张照片里。一点线索都没有。”
+
+"Does—" "这——"
+
+"Your fiancé knows nothing. We all felt, considering their history and the great lengths she went to last time to prove to herself that there was nothing wrong, that for her peace of mind it was best not to tell her until we have sure proof evidence that this is indeed Rei. Then we'll tell her, seeing as how she is a high ranking member of NERV. Before that? Not necessary."  
+你的未婚妻一无所知。考虑到他们的过往和她上次为了证明自己无恙所付出的巨大努力，我们都觉得为了她的心安，最好在有确凿证据证明这确实是丽之前，不要告诉她。既然她是 NERV 的高级成员，届时我们会告知她。在那之前？没必要。
+
+Shinji agreed. Was there any need to add stress on her shoulders what with the baby growing inside of her and everything? What could that sort of stress do to their son—er, child—and his—er, its—development? This was the right decision, certainly. But still, what was he going to tell his wife—er, fiancé? Nothing. That was what. Nothing at all. He'd say nothing.  
+真嗣同意了。考虑到她腹中胎儿的成长以及一切，有必要再给她增加压力吗？这种压力会对他们的儿子——呃，孩子——及其——呃，它的——发育产生什么影响？这无疑是正确的决定。但尽管如此，他该对他的妻子——呃，未婚妻——说什么呢？什么都没有。就是这样。他什么都不会说。
+
+After all, why say anything when nothing was wrong?  
+毕竟，如果一切无恙，又何必多言呢？
+
+#
+
+From the door of the store emerged the red-haired German, holding a bar of chocolate between her delicate fingers. She inhaled the chocolate as her craving desire consumed her. She really didn't like chocolate anyway on a regular basis. It wasn't that good, just okay. She preferred real food, and yet she longed for the soft surface of these brown milky bars. Was this what those cravings were? The food cravings she had heard so much of in her books that caused women to gain weight for their baby? What a filthy, rotten joke nature had dealt the usually svelte woman.  
+从店铺门口走出那位红发的德国女子，她纤细的手指间夹着一块巧克力。她深深吸入巧克力的香气，渴望之情吞噬着她。其实她平时并不怎么喜欢巧克力，觉得它不过尔尔，她更偏爱真正的食物。然而，她却渴望着这些棕色牛奶棒的柔软表面。这就是所谓的渴望吗？那些她在书中读到过的，让女性因怀孕而体重增加的食物渴望？大自然对这位通常苗条的女子开了一个多么肮脏、恶劣的玩笑。
+
+"Pregnancy sucks," Asuka mumbled as she finished the bar, tossing it aside before turning aside, running a hand through her scarlet locks.  
+“怀孕真糟糕，”明日香嘟囔着，吃完巧克力后随手一扔，转身时用手拨弄着她那鲜红的秀发。
+
+Pigeons flew into the air, beating their wings against the crisp air as they surged toward the sky in mass. The young adult stared up at them in mild awe. Some small children birds were soaring next to their mothers, or at least that's what it looked like. It could well be that the children were really just runts that Darwinism had forgotten to dispose of, but she'd rather not think that way right then and there.  
+鸽群振翅高飞，迎着清冽的空气冲向天际。年轻人抬头望着它们，心中涌起一丝敬畏。一些小鸟似乎在母亲身边翱翔，至少看起来是这样。或许那些小家伙只是达尔文主义遗忘处理的弱者，但她宁愿此刻不去那样想。
+
+She glanced down as she started toward home. She glanced off to the side to see a young girl clinging to the hand of an older woman, whining about how the threads in her skirt had gone undone and how the older woman, not a tailor or a professional like that, was the sole person in the world who could salvage her article of clothing. As Asuka pressed on, she also noticed a young girl sobbing to herself as she looked around for her mother, tears running down her cherubic cheeks. After the mother-to-be passed the sobbing girl by, she heard the girl's real mother arrive, taking the young one into her arms.  
+她低头快步走向家的方向。不经意间，她瞥见一个小女孩紧抓着一位年长女性的手，抱怨着裙子上脱线的线头，而那位并非裁缝或专业人士的年长女性，却是这世上唯一能拯救她这件衣服的人。随着明日香继续前行，她还注意到另一个小女孩独自啜泣，四处寻找她的母亲，泪水顺着她那天使般的脸颊滑落。在即将成为母亲的明日香经过哭泣的女孩后，她听到了女孩真正的母亲到来，将小女孩拥入怀中。
+
+Was that what a real mother was supposed to do?  
+这就是一个真正的母亲应该做的吗？
+
+Nurture? 养育？
+
+Rescue? 救援？
+
+Repair? 修复？
+
+She didn't know how to do any of that.  
+她不知道如何做这些。
+
+As she walked down the remainder of the distance to her house, the German redhead noticed a schoolgirl standing nearby her apartment complex. She sighed, recognizing that blue and white uniform. Come to think of it, maybe Asuka could give her old uniform to her daughter—er, child. Surely she'd—er, it—would inherit Asuka's beautiful figure.  
+当她走完剩下的路程回到家时，这位德国红发女子注意到一个女学生站在她公寓楼附近。她叹了口气，认出了那身蓝白相间的校服。转念一想，也许明日香可以把她的旧校服送给她的女儿——呃，孩子。当然，她——呃，它——肯定会继承明日香那优美的身姿。
+
+That girl looked familiar.  
+那个女孩看起来很眼熟。
+
+Maybe if Asuka would dig through her old stuff she'd find that old thing. She doubted it could fit her now with her future daughter—er, child—growing inside of her.  
+如果明日香翻找一下她的旧物，或许能找到那件旧东西。她怀疑现在那东西还能不能穿，毕竟她未来的女儿——呃，孩子——正在她肚子里成长。
+
+Her head was blocked out by that branch, but she could swear she looked familiar.  
+她的头被那根树枝挡住了，但她敢肯定那张脸似曾相识。
+
+Maybe if she asked that stupid dork to look in her stuff for her. Digging around like she wanted to with a baby in her belly was one step short of insanity. Didn't want to hurt her future daughter—er, child—did she?  
+也许她该让那个笨蛋帮她找找东西。像她现在这样挺着肚子翻来翻去，简直离疯了只差一步。她可不想伤害她未来的女儿——呃，孩子——对吧？
+
+The girl was turning around now, and walking away.  
+女孩现在转过身，正走开去。
+
+Maybe— 或许——
+
+Blue hair. 蓝色头发。
+
+Red eyes. 红色眼睛。
+
+All of a sudden, the German's thoughts froze in her brain as she stared out before her at the figure slowly walking away, clearly dissatisfied with whatever she was looking at. Step after step the woman took, her delicate smooth legs moving to the beat of the angels' wings, her locks of short cut hair at the edge of her harsh jaw line bouncing up and down with the beat of her movements.  
+突然间，德国人的思绪在她脑海中凝固，她凝视着前方那个缓缓走开的人影，显然对所见之物感到不满。那女人一步接一步地走着，她那细腻光滑的双腿随着天使翅膀的节奏移动，短发沿着她坚硬的颌线边缘随着她的步伐上下跳动。
+
+That wasn't possible. 这不可能。
+
+That doll was dead. 那个玩偶已经死了。
+
+Rei was dead. 丽已经死了。
+
+There she stood, no, walked, away from Asuka, and she could do nothing. All she could do was stare, her eyes wide in awe and terror, as the source of her fears and anxieties moved farther away from her, unaware that the red-haired demon who had abused her for so long was standing only ten meters away, no, twenty. She could do nothing to either run away from her or alert the doll to her presence. All she could do was stare, pick out each individual strand of hair on that girl's head as she walked, pick out every thread in her uniform as she swung her arms so briefly, see the outline of her rear-end on the skirt she wore, her rather slender and small rear. All she could see was Rei Ayanami's profile as she turned a corner, and disappeared entirely from view.  
+她就那样站着，不，是走着，远离明日香，而她却无能为力。她只能瞪大眼睛，既敬畏又恐惧地看着那个让她心生恐惧和焦虑的源头渐行渐远，浑然不觉那个红发恶魔，那个长久以来一直虐待她的恶魔，就站在十米之外，不，是二十米。她既无法逃离她，也无法向那个玩偶发出警报。她只能瞪大眼睛，仔细观察那女孩头上每一根发丝的飘动，每一根制服上的线随着她手臂的摆动而晃动，看到她穿着的裙子勾勒出的臀部轮廓，那相当纤细而小巧的臀部。她只能看到绫波丽的侧脸，在她转过街角后，便彻底消失在视线之外。
+
+Rei Ayanami wasn't alive. She was dead. She was dead. She was dead. She was dead. She was dead. She was dead. She was dead. She was dead. She was dead. She was dead. She was dead. She was dead. She was dead. She was dead. She was dead. She was dead. She was dead. She was dead. She was dead. She was dead. She was dead. She was dead. She was dead. She was dead.  
+绫波丽没有活着。她死了。她死了。她死了。她死了。她死了。她死了。她死了。她死了。她死了。她死了。她死了。她死了。她死了。她死了。她死了。她死了。她死了。她死了。她死了。她死了。她死了。她死了。她死了。她死了。她死了。她死了。
+
+"SHE'S DEAD!" Asuka screamed to herself, grabbing her hair tightly as she fell to her knees, staring down at the ground. She was alone in the street. No one saw her collapse, nor did anyone see her reaction. No, they couldn't have seen int. Surely not. They'd think she was crazy if they had. What if she was crazy? What if she was hysterical? What if—?  
+"她死了！" 明日香尖叫着自言自语，紧紧抓住自己的头发，跪倒在地，盯着地面。她独自一人在街上。没有人看到她倒下，也没有人看到她的反应。不，他们不可能看到。肯定没有。如果他们看到了，会认为她疯了。万一她真的疯了呢？万一她歇斯底里呢？万一——？
+
+"Asuka?" Asuka turned at the sound of her name to see Hikari, standing there not five meters, no, ten, from her, pushing the baby carriage here young Shinji laid, napping silently. At the sight of her friend, the redhead rose to her feet, her eyes still wide, sweat billowing from her pours. Were her knees shaking? Were her feet numb? She didn't know, though she was aware of the fact she couldn't stand still, nor could she breath properly. "You look like you've seen a ghost."  
+"明日香？" 明日香听到自己的名字转过身，看到光，站在那里不到五米，不，十米远，推着婴儿车，她的小真嗣躺在里面，静静地睡着。看到朋友，红发女孩站起身来，眼睛仍然睁得大大的，汗水从毛孔中涌出。她的膝盖在颤抖吗？她的脚麻木了吗？她不知道，尽管她意识到自己无法站稳，也无法正常呼吸。"你看起来像是见鬼了。"
+
+"I think I have," Asuka replied, gasping for air at last, becoming aware she had been holding her breath before.  
+"我想我是见到了，" 明日香回答，终于喘了一口气，意识到自己之前一直屏住呼吸。
+
+"Come again?" “再说一遍？”
+
+"I just saw—no, I think I just saw—no, maybe it was—no, couldn't be—"  
+"我刚刚看到——不，我觉得我刚刚看到——不，也许是——不，不可能——"
+
+"Slow down and just speak, alright?" Hikari replied, perhaps anxious that Asuka's rambling would awaken the napping babe.  
+"慢点说，好吗？" 光回应道，或许是因为担心明日香的喋喋不休会吵醒正在打盹的婴儿。
+
+"I think I just saw Rei."  
+"我觉得我刚刚看到了丽。"
+
+"Rei? You mean Ayanami?" "Rei？你是说绫波吗？"
+
+"Yeah, that one!" "对，就是她！"
+
+"Isn't she dead?" "她不是已经死了吗？"
+
+"She is, right?" "她确实是，对吧？"
+
+"Well, you'd know better than me."  
+"嗯，你比我更清楚。"
+
+"Well, I don't know anything anymore right now. She's supposed to be dead. She should be dead. Has to be. That doll can't be alive. Was she ever alive? I don't know. Can something that wasn't really alive like a doll really be dead?"  
+"好吧，我现在什么都不确定了。她应该已经死了。她本该死了。必须得死。那个玩偶不可能是活的。她曾经是活的吗？我不知道。一个像玩偶一样原本不是活物的东西，真的能算是死了吗？"
+
+"You're not making any sense, Asuka! Just sit down and let's just—"  
+"你根本说不通，明日香！坐下，我们——"
+
+"I can't just sit down! We need to tell Shinji, or Misato, or Fuyutsuki, or someone!" Asuka stammered, about to pull away, only for Hikari to grab her by the wrist. "Let me go!"  
+"我不能就这么坐下！我们需要告诉真嗣，或者美里，或者冬月，或者任何人！" 明日香结结巴巴地说，正要挣脱，却被光抓住了手腕。"放开我！"
+
+"Listen to yourself for a second! Do you realize what you're saying?" Hikari stammered, frantically.  
+"你冷静点听自己说的话！你知道自己在说什么吗？" 光结结巴巴地说，慌乱不已。"
+
+"What do you mean?" "你什么意思？"
+
+"What do I mean? You're hysterical! Think about it for a second! You're saying a girl who's been dead for the past decade, more than that, is alive and well and you just saw her. Do you know what they're gonna think?"  
+"我是什么意思？你简直歇斯底里！冷静下来想想！你在说一个死了十年、甚至更久的女孩，现在还活着，而且你刚刚还见到了她。你知道他们会怎么想吗？"
+
+"No."
+
+"They're gonna think you're losing it."  
+"他们会觉得你疯了。"
+
+For a moment, the image of a woman sitting on her bed emerged in the German's mind eye. She imagined a woman seeing things too, such as seeing a girl in her hands when all that she held was a fabric doll, a doll she called her daughter. She could see the woman's real daughter standing outside of her room, kept from contacting her mother. She saw herself as a child, staring at the mother who told people what she saw.  
+有那么一刻，一个女人坐在床上的画面浮现在德国人的脑海中。她想象着一个女人也在看到一些东西，比如当她手里只有一块布娃娃时，却看到了一个女孩，一个她称之为女儿的布娃娃。她能看到那个女人的亲生女儿站在房间外，无法接触到她的母亲。她看到自己小时候，盯着那个告诉别人她所见之物的母亲。
+
+Was she going crazy? She had to be. She was saying she saw a dead girl walking around as though she were alive. What if she was becoming like her mother? Her mama? Surely, this couldn't be true. The circumstances were different, very different, but even so, what if other people didn't see it that way? What if they locked her up in a madhouse? What if everyone abandoned her? What if they took away her own future daughter—er, child?  
+她是不是疯了？一定是的。她居然说自己看到一个死去的女孩像活人一样四处走动。会不会她正变得像她母亲那样？她的妈妈？这肯定不是真的。情况完全不同，非常不同，但即便如此，如果别人不这么看呢？如果他们把她关进疯人院怎么办？如果所有人都抛弃她怎么办？如果他们夺走她未来的女儿——呃，孩子怎么办？
+
+What then? 那该怎么办？
+
+No, that was just crazy paranoid rambling, wasn't it?  
+不，那只是疯狂的偏执妄想，不是吗？
+
+Was it worth it to find out what it was?  
+知道那是什么值得吗？
+
+"I understand. I must be stressed out and saw something," Asuka sighed, doubting her own mouth.  
+"我明白了。我一定是压力太大，看到了什么，" 明日香叹了口气，怀疑起自己的话来。
+
+"Do you want me to help you out or anything?"  
+"需要我帮忙吗？"
+
+"Can you get me some chocolate and some water?"  
+“你能帮我拿些巧克力和水吗？”
+
+#
+
+Shinji Ikari opened the door to his apartment, sighing as he ran a hand up his hair, anxiously. He glanced around, hoping he could avoid looking at his fiancé for too long. If he saw her, he was afraid he'd spill the beans, crack under her forceful eyes and tell her the truth, that Rei Ayanami was alive and well, with video and photograph evidence to prove it.  
+碇真嗣打开公寓的门，叹了口气，用手焦虑地捋了捋头发。他环顾四周，希望能避免长时间直视他的未婚妻。如果他看到她，他担心自己会忍不住，在她的强势目光下崩溃，告诉她真相，那就是绫波零还活着，而且有视频和照片证据可以证明。
+
+When his eyes landed on Asuka playing her game, he was relieved. No eye contact for him. "Hey, Asuka."  
+当他的目光落在正在玩游戏的明日香身上时，他松了口气。他没有与她对视。“嘿，明日香。”
+
+No response. 没有回应。
+
+"Uh, do you want me to get you anything to eat?"  
+"呃，你想让我给你带点什么吃的吗？"
+
+No response. 没有回应。
+
+"Oh, uh, okay then. Chocolate?"  
+"哦，呃，那好吧。巧克力？"
+
+No response. 没有回应。
+
+"Okay, uh, work was really rough today. How was your day?"  
+"好吧，呃，今天工作真的很辛苦。你今天怎么样？"
+
+No response. 没有回应。
+
+"Did I do something to bother you or something?"  
+"我做了什么让你不高兴的事吗？"
+
+"Shut up." "闭嘴。"
+
+"What's that?" Shinji stared at the redhead, concerned. Her voice was so flat, so unmotivated. She hadn't spoken like that since after Third Impact, when she was bleeding on the inside on a deserted beach, bleeding slowly through her torn intestine. He stared at her, bewildered as she stared blankly, lowering her head in shame as she turned away from Shinji, her hair falling over her face.  
+"那是什么？" 真嗣盯着红发女孩，感到担忧。她的声音如此平淡，毫无生气。自从第三次冲击后，她在荒凉的海滩上内出血，肠子被撕裂，慢慢流血以来，她就没有这样说过话。他困惑地看着她，只见她茫然地低下头，羞愧地转过身去，头发遮住了脸庞。
+
+"It's not you, don't worry. It's just—I don't know."  
+"不是你的问题，别担心。只是——我不知道。"
+
+Shinji neared his fiancé, extending his hand to comfort her, only to draw back. She was in one of her moods. Was it wise to even touch the time bomb at a time like this? Yes, she needed someone to help. He neared her again, putting a hand on her shoulder, gently. "Hey, listen, what's bothering you?"  
+真嗣靠近他的未婚妻，伸出手想安慰她，却又缩了回来。她正处于情绪之中。在这种时候触碰这个定时炸弹明智吗？是的，她需要有人帮助。他再次靠近她，轻轻地将手放在她的肩膀上。“嘿，听着，你在烦恼什么？”
+
+"I think I'm going insane is all, no big deal!"  
+"我觉得我要疯了，没什么大不了的！"
+
+"What? What do you mean?"  
+"什么？你什么意思？"
+
+Asuka began to laugh at this, but it wasn't a normal laugh. It was a hoarse, dry laugh, a cruel laugh, a laugh that bore no humor in it at all. "If I told you, you'd probably think I'm nuts. Don't worry. I know it couldn't be real. Maybe it was all just a dream I had with my eyes open."  
+听到这话，明日香开始笑了起来，但这不是正常的笑声。这是一种沙哑、干涩的笑声，一种残忍的笑声，完全没有幽默感。“如果我告诉你，你大概会觉得我疯了。别担心，我知道这不可能是真的。也许这一切只是我睁着眼睛做的梦。”
+
+"Oh, okay," Shinji mumbled, backing away. How did he deal with this? It wasn't like Asuka hadn't broken down like this before, but he couldn't just check her into a clinic like this with a baby on the way. Would they be able to treat her properly with a baby boy—er, child—in her body? What if they hurt their unborn infant, or if they somehow screwed up giving her enough food to feed their child? What if they gave her medication that could hurt their child? No, surely Asuka would need to stay out of a home as she struggled with her issues.  
+""哦，好吧，“真嗣喃喃自语，向后退去。他该怎么处理这种情况？虽然明日香以前也这样崩溃过，但他不能就这样把她送到诊所，何况她还怀着孩子。他们能妥善治疗她吗，尤其是她体内还有一个小男孩——呃，孩子？万一他们伤害了未出生的婴儿，或者在给她足够的食物喂养孩子时出了差错怎么办？万一他们给她用药伤害了孩子怎么办？不，明日香肯定需要在面对这些问题时远离医院。”
+
+But how could that work out if Asuka didn't tell him what was wrong?  
+但如果明日香没有告诉他哪里不对劲，这怎么可能行得通呢？
