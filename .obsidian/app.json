@@ -12,7 +12,7 @@
     "pageSize": "A4",
     "landscape": false,
     "margin": "1",
-    "downscalePercent": 86
+    "downscalePercent": 70
   },
   "rightToLeft": false
 }
