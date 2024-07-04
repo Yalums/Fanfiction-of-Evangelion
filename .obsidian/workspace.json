@@ -47,10 +47,28 @@
                 "mode": "source",
                 "source": false
               }
-            }
+            },
+            "group": "51b9ccf1200a1c78"
           }
         ],
         "currentTab": 1
+      },
+      {
+        "id": "4fa516c9dad7569a",
+        "type": "tabs",
+        "children": [
+          {
+            "id": "8256c615829c9193",
+            "type": "leaf",
+            "state": {
+              "type": "outline",
+              "state": {
+                "file": "kira862 -.md"
+              }
+            },
+            "group": "51b9ccf1200a1c78"
+          }
+        ]
       }
     ],
     "direction": "vertical"
@@ -178,7 +196,7 @@
       "workspaces:管理工作区布局": false
     }
   },
-  "active": "3660f98da3bd7fae",
+  "active": "8256c615829c9193",
   "lastOpenFiles": [
     "Marco Strange - Underneath.md",
     "kira862 -.md",
