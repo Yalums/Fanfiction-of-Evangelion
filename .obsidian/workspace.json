@@ -4,24 +4,6 @@
     "type": "split",
     "children": [
       {
-        "id": "ca9af7e1b0a33d8c",
-        "type": "tabs",
-        "children": [
-          {
-            "id": "3eb79df7f76d3e44",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Marshall Banana - Asuka Strikes.md",
-                "mode": "source",
-                "source": false
-              }
-            }
-          }
-        ]
-      },
-      {
         "id": "5a72b41290db2a29",
         "type": "tabs",
         "children": [
