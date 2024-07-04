@@ -459,3 +459,193 @@ He opened his mouth to try to say something, but his brain wouldn't produce the 
 'No...not like this,' he thought suddenly.  
 “不……不是这样，”他突然想到。
 
+Forcing his right arm upward, he pressed it roughly into her chest, forcing her backwards and relinquishing the hold on his neck. Taking a quick gulp of air, he turned towards her just in time as she lunged towards him again, reaching for his neck. He batted her hand away this time and took another breathe of air, feeling his entire head spinning with the sudden burst of oxygen. He felt even more like passing out now.  
+他强行将右臂向上推，粗暴地按入她的胸口，迫使她后退并松开了对他的颈部束缚。他迅速深吸一口气，就在她再次扑向他、伸手抓向他的脖子时，他及时转身。这次他拍开了她的手，又吸了一口气，突然涌入的氧气让他感到整个脑袋都在旋转。他现在感觉更加晕眩，几乎要昏过去。
+
+Shaking off the feeling he stared back at her who had moved away from him a little now, but was still glaring hatefully at him, her eyes still filled with anger and if Shinji didn't know better, a death glare. He was now wary, not wanting to get up or move at all, so he sat in a sprawled position on the ground.  
+他甩开这种感觉，重新看向她，她现在已经稍微远离了他一些，但仍然用充满仇恨的眼神瞪着他，眼中满是愤怒，如果真嗣不了解情况，可能会以为那是死亡凝视。他现在变得谨慎起来，不想起身或移动分毫，于是就那样四肢摊开坐在地上。
+
+The girl glared back at him still; she was crouched in a sitting position, ready incase he decided to run for it. Only problem was, she wasn't confident that she could catch him if he really decided to run. She shifted position a little though, and winced as she did so. Shinji couldn't help but notice this.  
+女孩依旧瞪着他，蹲坐在地上，随时准备在他逃跑时追上去。只是问题在于，她并不确信自己能追上他。尽管如此，她还是稍微调整了下姿势，同时疼得皱了皱眉。这一幕被真嗣看在眼里，无法忽视。
+
+He looked where she looked; down around her legs and all the way to her feet were large dark marks, likely the cause of when she had dragged herself across the fire pit. Shinji couldn't imagine the pain from that, but he suddenly thought of something.  
+他顺着她的目光看去；她的双腿周围直至脚边，布满了大片深色痕迹，很可能是她拖着自己穿过篝火堆时留下的。真嗣无法想象那有多痛，但突然间他想到了什么。
+
+Standing up, he stood in place for several seconds as he stared back at the girl several paces in front of him. Next second, he took two steps back, and then three steps back. He then turned and looked at the girl and was surprised to see that she hadn't _gotten up_, but was desperately trying to _get up_. She would place both hands on either side of her, and trying pushing her body upward, but her entire lower body didn't seem to want to listen to her.  
+他站起身来，目光紧锁前方几步之遥的女孩，静立数秒。下一刻，他向后退了两步，接着又退了三步。随后，他转头望向女孩，惊讶地发现她并未起身，而是拼命想要站起来。她双手分别撑在身体两侧，试图将身体向上推，但她的下半身似乎完全不听使唤。
+
+'Did she injure herself that badly?' thought Shinji. 'Or was the reason she dragged herself across the fire because she couldn't use her legs to begin with?'  
+'她伤得那么重吗？' 真嗣心想。'还是说她之所以拖着身子穿过火海，是因为她原本就无法使用双腿？'
+
+Shinji walked several steps backwards again, testing his theory again. The girl seemed to have given up however, and was now attempting to drag herself forward. As she looked up at him however, she seemed to realize that he knew she couldn't chase after him. She glared back at him, her eyes boring into his until her gaze fell and she slowly shifted her legs so that they were in front of him. The were as heavy as lead, but if she touched them, she couldn't feel any sensation.  
+真嗣再次后退了几步，再次验证他的猜想。然而，女孩似乎已经放弃了追逐，现在正试图拖着自己向前移动。但当她抬头看向他时，似乎意识到他已经知道她无法追赶上来。她瞪着他，目光如炬，直到视线低垂，她缓缓调整双腿，让它们横亘在他面前。它们沉重如铅，但当她触碰时，却感觉不到任何知觉。
+
+As Shinji watched this pitifulness, he couldn't help but feel sorry for her as she dragged her legs around so she could sit properly. He was even beginning to wish she had just stayed asleep now that she was awake, and apparently wanted to kill him for some reason.  
+当真嗣目睹这一幕可怜兮兮的情景时，看到她费力地拖着双腿以便能端正坐好，他不禁为她感到难过。甚至开始希望她还不如继续睡着，毕竟她现在醒了，还不知为何明显想要杀他。
+
+As the girl finally managed to become comfortable, she redirected her gaze at Shinji as he stood in front of her. She hating this feeling of being completely merciless in front of some stranger she didn't even know. To wake up and find somebody asleep close to her, without knowing anything about them or what they had possibly done. It made her so sick she wanted to puke.  
+当女孩终于设法感到自在时，她重新将目光投向站在她面前的真嗣。她讨厌这种在完全陌生的人面前毫无防备的感觉，一个她甚至不认识的陌生人。醒来时发现有人睡在身边，却对他们一无所知，也不知道他们可能做过什么。这让她恶心得想吐。
+
+Shinji watched her silently, his hands at his sides. He was unsure what to do in a situation like this. Having never gotten along well with humans in general, having a girl suddenly try to strangle him to death was a situation he hadn't imagined himself being in.  
+真嗣默默地注视着她，双手垂在身侧。他不知道在这种情况下该怎么做。一直以来与人类相处得并不融洽，突然有个女孩试图勒死他，这种情形他从未设想过会发生在自己身上。
+
+'We can't just stay like this forever though,' thought Shinji as he sighed.  
+"我们不能就这样永远待下去啊。" 真嗣叹了口气，心想。
+
+Resigning to that fact, he sat down slowly, make sure the girl wouldn't try to go after him as he did this. She seemed to be somewhat surprised that he was sitting down now though, as her eyes widened slightly, but then quickly went back to that death stare.  
+无奈接受这一事实，他缓缓坐下，确保女孩不会趁机追上来。她似乎对他此刻坐下的举动有些惊讶，眼睛微微睁大，但很快又恢复了那副死寂的凝视。
+
+They sat across from each other now, both watching each other. The girl had been initially surprised that Shinji hadn't just ran away, letting her die in that undignified way. But instead he had sat down, bringing himself down to her level. That pissed her off even more though; he was pitying her.  
+他们现在面对面坐着，彼此凝视。女孩起初对真嗣没有直接逃跑，任由她以那种不体面的方式死去感到惊讶。但他却坐了下来，让自己与她平视。这让她更加恼火；他在怜悯她。
+
+'I have to say something,' thought Shinji. 'But what do I say to this girl who just tried to kill me?'  
+'我得说点什么，' 真嗣心想。'但对刚刚试图杀我的这个女孩，我该说什么呢？'
+
+Shinji didn't have a clue what to do, but didn't think this was a time to introduce himself. Looking back at her, he saw that her gaze had switched to her legs. She was examining them slowly, moving her hands over the black burns across her legs and feet. She seemed slightly more calm now as she did this, but Shinji noticed that her right eye kept flickering back to him.  
+真嗣完全不知道该怎么办，但觉得现在不是自我介绍的时候。他回头看她，发现她的目光已经转向了自己的双腿。她慢慢地检查着，双手在腿上和脚上的黑色烧伤处来回移动。这样做似乎让她稍微平静了一些，但真嗣注意到她的右眼不时地瞥向他。
+
+'She doesn't trust me,' thought Shinji. He should have expected this somewhat, and rather wished he hadn't fallen asleep.  
+“她不信任我，”真嗣心想。他本该预料到这一点的，更希望自己没有睡着。
+
+Though an idea came to him then.  
+虽然那时他脑海中闪过一个念头。
+
+Standing up again, the girls head came whipping around as her eyes locked on him, watching his every movement. Shinji watched her calmly before he started walking along in a wide half circle around the right side of her; her head followed him as he walked. Walking in a wide arc, he walked all the way around her to the point that she was desperately trying to look behind her but unable to see without repositioning her body. She stopped though as he came back into her field of wish. In his hands he held two bottles.  
+再次站起身，女孩的头猛地转向他，目光紧锁在他身上，观察着他的一举一动。真嗣平静地注视着她，然后开始沿着她的右侧走一个大半圆；她的头随着他的步伐转动。他以一个大弧度绕行，直到她拼命想看向身后却无法在不调整身体的情况下看到。然而，当他重新进入她的视野时，她停了下来。他的手中拿着两瓶水。
+
+Shinji sat down again several paces in front of her and placed both water bottles next to him before he open his and took a draught out of it. The water felt cool as it slid down his throat which was still sore from when she had been choking him. Setting down his bottle, he looked across at her and saw that she wasn't looking at him angrily anymore. Her expression was one of confusion.  
+真嗣再次坐下，与她相隔几步之遥，将两瓶水放在身边，然后打开自己的那瓶，喝了一口。水流过他因她之前的窒息而仍感疼痛的喉咙，带来一丝凉意。放下水瓶，他望向她，发现她不再以愤怒的眼神看着他。她的表情充满了困惑。
+
+'What is wrong with her?' wondered Shinji almost somewhat amusedly.  
+"'她怎么了？' 真嗣几乎有些好笑地想着。
+
+Shinji waited several more seconds before he picked up the other water bottle he had brought, and rolled it across the sand; the bottle bumped gently into the girls knee. She stared down at it for several seconds, her face a mixture of expressions.  
+真嗣又等了几秒钟，然后拿起他带来的另一瓶水，滚过沙地；瓶子轻轻撞到了女孩的膝盖。她低头盯着它看了几秒钟，脸上表情复杂。
+
+"Drink it," said Shinji tonelessly.  
+“喝吧，”真嗣面无表情地说。
+
+The girls eyes darted towards him, surprised to hear a human voice. Shinji stared back and nodded his head slowly. The girl looked back down at the water bottle before picking it up in her hands. She looked at the cap for several seconds before determining it hadn't been opened before. Quickly opening it, she took several long swallows, just realizing then how thirsty she was. The water slid down her throat, moistening her lips in the process until she paused and removed the bottle from her lips. She slowly set the bottle down next to her, but didn't remove her grip on the bottle. She looked back at Shinji then, a frown on her face.  
+女孩的目光迅速转向他，惊讶于听到人类的声音。真嗣回望着她，缓缓点头。女孩再次低头看向水瓶，然后将其拿起。她盯着瓶盖看了几秒，确认未曾被打开过。迅速旋开瓶盖，她连喝了几大口，这才意识到自己有多渴。水滑过喉咙，滋润着她的双唇，直到她停下，将瓶子从唇边移开。她慢慢将水瓶放在身旁，但并未松开握瓶的手。随后，她再次看向真嗣，眉头微皱。
+
+'Is it really that strange for someone to do something like this?' thought Shinji as he looked back at her. He hadn't really expected to receive words of thanks, but knowing that she could at least talk would have been something.  
+"有人这么做真的很奇怪吗？" 真嗣想着，回头看向她。他并没有真的期待听到感谢的话语，但知道她至少能开口说话，也算是件好事。
+
+Ignoring this, he raised his own bottle to lips and was about to take a drink when-  
+他对此置之不理，举起自己的瓶子送到唇边，正要喝上一口时——
+
+"Where are we?" asked the girl with a clear voice.  
+“我们在哪儿？”女孩用清脆的声音问道。
+
+Shinji looked at her for a second through his raised bottle before he lowered it slowly and looked back at her. She was looking determinedly at him now.  
+真嗣透过举起的酒瓶看了她一秒钟，然后慢慢放下酒瓶，再次看向她。她此刻正坚定地注视着他。
+
+Shinji took several seconds to reply until he looked across the beach to the bloodied ocean and said-  
+真嗣过了几秒才回答，他望向染血的海岸线，说道——
+
+"Tokyo-3, I think." “第三新东京市，我想。”
+
+His eyes darted back to her as he said this, he saw that her eyes had widened slightly as he said this. Was she equally confused and surprised as he was by this, or did her eyes hold a different meaning?  
+他说这话时，目光迅速回到她身上，发现她的眼睛微微睁大了。她是否也像他一样感到困惑和惊讶，还是她的眼神蕴含着不同的含义？
+
+They sat in silence again, sipping there water quietly, but as Shinji quickly noticed, both bottles had almost been emptied already. Looks like he'd be looking for more water before the day ended. So much for saving it.  
+他们再次静静地坐着，小口啜饮着水，但正如真嗣很快注意到的那样，两个瓶子几乎都快空了。看来今天结束前他得去找更多的水了。省水的计划算是泡汤了。
+
+"Why is no one here?" asked the girl again.  
+“为什么这里一个人都没有？”女孩再次问道。
+
+Shinji turned towards her and replied, "I don't know. You're the only other person I've seen, and I was up in the city for these,' he said as he gestured to the water bottles.  
+真嗣转向她，回答道：“我不知道。你是除了我之外唯一见过的人，而我之前在城里就是为了这些。”他说着，指了指那些水瓶。
+
+The girl looked at him for several seconds before she turned away from him. Shinji thought he might have seen her mutter something under her breath, but he couldn't hear what it was.  
+女孩盯着他看了几秒钟，然后转过身去。真嗣觉得他可能看到她在低声嘀咕什么，但他没听清内容。
+
+Looking at her legs he couldn't think of anything else to say so he asked, "How are your legs?"  
+看着她的双腿，他想不出还有什么可说的，于是问道：“你的腿怎么样了？”
+
+The girl glared back at him for a few seconds, not enjoying the question, but he already knew that she couldn't move, so ignoring it was pointless.  
+女孩瞪了他几秒钟，不喜欢这个问题，但他已经知道她动不了，所以无视它是没有意义的。
+
+"I can't move them." “我动不了它们。”
+
+Shinji already knew this, but he still pressed the subject.  
+真嗣其实已经知道这一点，但他还是继续追问。
+
+"Were they already like that before you-"  
+“在你之前，他们就已经那样了吗？”
+
+Shinji hesitated; he had been about to say before you tried strangling me.  
+真嗣犹豫了一下；他本想说在你试图勒死我之前。
+
+"-before you crawled across the fire."  
+"-在你爬过火堆之前。"
+
+The girl continued glaring at him, but eventually replied, "They were already like this."  
+女孩继续瞪着他，但最终回答道，"它们本来就是这样的。"
+
+Shinji didn't think that pushing this further would do any good. Admittedly though, her being basically crippled was a problem, and he was worried about her legs, but if she didn't want to talk about it, he would just wait. He could understand that, as he certainly had things he didn't want to talk about.  
+真嗣不认为继续追问会有什么好处。不过，她几乎瘫痪的状况确实是个问题，他对她的双腿感到担忧，但如果她不想谈，他会耐心等待。他理解这一点，因为他自己也有不想提及的事情。
+
+Shinji stood up then, stretching his body and relieving the tension that was building between them just now. The girl watched him silently as he walked several paces away from her towards the ocean. She let out a small sigh herself then; she had been incredibly nervous since the moment she had awoken.  
+真嗣随后站起身来，伸展身体，缓解了刚才两人之间的紧张气氛。女孩默默地看着他走向海边，离她几步之遥。她自己也轻轻叹了口气；自从醒来那一刻起，她就一直非常紧张。
+
+Shinji looked out across the ocean for several more seconds before he walked back to where the girl sat. She watched him as he passed by her and started walking towards the slope to the right of where they had sat. She shifted her body slightly, watching as he climbed the hill and was momentarily thinking that he was walking away, that he had made a decision to leave her when he bent over and picked something up. Several seconds later, he came jogging back down the hill, his arms filled with dry brush.  
+真嗣又凝视了一会儿海面，才转身走向女孩坐着的地方。她注视着他从身边经过，开始朝他们所坐之处右侧的斜坡走去。她微微调整了姿势，看着他爬上山丘，心中掠过一丝念头，以为他要离开，决定抛下她，然而他却弯腰捡起了什么。几秒钟后，他抱着一捆干枯的灌木，小跑着下了山坡。
+
+The words 'what are you doing,' were half formed in her mouth before her hand brushed against something. Picking it up, she realized it was a lighter, and understood then what he was doing.  
+她刚要开口问“你在做什么”，手却无意间触碰到了什么东西。拾起一看，是个打火机，她这才明白他在做什么。
+
+Shinji walked back several seconds later with his arms full of dried drift wood. Dropping everything on the ground, he was about to look for the lighter when he realized it was in the girls hands. There eyes met, and for several seconds, Shinji was afraid that she wasn't going to give it to him. Silently, he held his hand out asking for it. He knew she must understand what he was doing by now, but was never truly sure whether sure she would give it to him. It took her several seconds until she dropped the lighter in his hands wordlessly.  
+几秒钟后，真嗣抱着满怀的干漂流木回来了。他将所有东西扔在地上，正准备找打火机时，才发现它在女孩手里。他们的目光相遇，有那么几秒钟，真嗣担心她不会把打火机给他。他默默地伸出手，示意她递过来。他知道她现在肯定明白他的意图，但始终不确定她是否会给他。她犹豫了几秒钟，终于无声地将打火机放在他手中。
+
+Shinji didn't bother saying thanks, as he knew she had been close to not giving it to him. Was she that unable to trust him?  
+真嗣没有费心道谢，因为他知道她差点就没给他。她真的那么不信任他吗？
+
+Lighting the fire quickly, he stood back for several seconds watching as the flames licked the wood. Across from him, the girl stared into the flames.  
+他迅速点燃了火，后退几步，注视着火焰舔舐木柴。对面，女孩凝视着火光。
+
+Looking down at her, Shinji thought, 'This is a good a time as any I suppose.'  
+低头看着她，真嗣心想，'我想这正是时候吧。'
+
+Sitting down across the fire from her, Shinji placed his hands on his knees and said, "Look...as much as you don't trust me, and I have to say, I don't really trust you either, we seem to be the only two people in the entire city. What I guess I'm trying to say is...we have to at least stay together until we're able to find more people."  
+坐在火堆对面，真嗣将双手放在膝盖上，说道：“听着……尽管你不太信任我，我得承认，我对你也没多少信任，但我们似乎是这座城市里仅有的两个人。我想说的是……在我们找到更多人之前，至少得待在一起。”
+
+"And if nobody else comes?" asked the girl, her voice suddenly growing in volume.  
+"如果其他人都不来呢？"女孩问道，声音突然提高了。
+
+Shinji was trying to be optimistic, but the way she said that made him pissed off for some reason.  
+真嗣试图保持乐观，但她那番话不知为何让他莫名恼火。
+
+"You don't believe anybody else will come?"  
+“你不相信还会有人来吗？”
+
+The girl didn't reply, already having spoken her mind.  
+女孩没有回答，她已经表达了自己的想法。
+
+Shinji stared back at her for a few seconds, wondering what could possibly have made her so inept in dealing with other people. He wasn't a role model by any means, but he at least did want to survive.  
+真嗣盯着她看了几秒，心中疑惑究竟是什么让她在与人相处时如此笨拙。他自知绝非榜样，但至少他确实渴望生存。
+
+After several seconds of silence, Shinji finally opened his mouth and muttered, "Shinji...Shinji is my name."  
+沉默了几秒后，真嗣终于张开嘴，低声说道：“真嗣……真嗣是我的名字。”
+
+The girl slowly raised her head and looked back at him. Her face was blank as she stared back at him.  
+女孩缓缓抬起头，回头望向他。她面无表情地凝视着他。
+
+Her small mouth eventually opened as she replied, "Asuka, is mine."  
+她的小嘴终于张开，回答道：“这是明日香的。”
+
+They both looked into the fire for several seconds before Shinji stood up and grabbed the sleeping bag and walked around the fire. The girl, Asuka, watched him as he did this and was momentarily surprised when he handed it to her.  
+他们俩都盯着火堆看了几秒钟，随后真嗣站起身，抓起睡袋绕过火堆走去。女孩，明日香，看着他这么做，当真嗣将睡袋递给她时，她一时有些惊讶。
+
+"Wrap yourself in this," Shinji said.  
+"用这个把自己裹起来，" 真嗣说道。
+
+Asuka watched his eyes for several seconds, searching for any hint of malicious intent in his eyes, though she couldn't find anything. She didn't really like accepting this from him, but she took it all the same.  
+明日香盯着他的眼睛看了好几秒，试图从中寻找一丝恶意，却一无所获。她其实并不喜欢接受他的这份好意，但还是接了过来。
+
+Shinji then walked to where he had been sitting, and bent down and grabbed the lighter before he stood up again.  
+真嗣随后走向他之前坐的地方，弯腰捡起打火机，然后再次站直身子。
+
+"Though it is still early in the morning, I'm going to enter the city again. By tonight both water bottles will be gone and I can search in daylight better than night anyways."  
+虽然清晨尚早，我打算再次进城。到今晚，两个水壶的水都将耗尽，无论如何，白天的搜索总比夜晚更有效。
+
