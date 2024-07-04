@@ -649,3 +649,6 @@ Shinji then walked to where he had been sitting, and bent down and grabbed the l
 "Though it is still early in the morning, I'm going to enter the city again. By tonight both water bottles will be gone and I can search in daylight better than night anyways."  
 虽然清晨尚早，我打算再次进城。到今晚，两个水壶的水都将耗尽，无论如何，白天的搜索总比夜晚更有效。
 
+As he started walking towards the slope, Shinji said, "Don't try moving much either. Your legs will recover faster if you let them sit."
+当他开始向山坡走去时，信治说："也别试着多动。如果你让它们静静地坐着，你的腿会恢复得更快。"
+
