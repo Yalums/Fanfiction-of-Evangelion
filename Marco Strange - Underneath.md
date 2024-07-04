@@ -1175,3 +1175,146 @@ Shinji now noticed that Asuka dragged him to the mall. Shinji noticed several pe
 
 ---
 ### Chapter 9
+"What's taking you so long!?" Asuka stood with her arms crossed, looking at the closed door to a changing room.  
+"你到底还要多久！？" 明日香双臂交叉站在那里，盯着更衣室的门。
+
+"Ummm..." Shinji was looking himself over in the window. "I'm not sure about this outfit."  
+"嗯……" 真嗣在窗户前打量着自己。"我不太确定这套衣服合不合适。"
+
+"Oh, just show it to me already!" Asuka started banging on the door. "I don't want to waste our whole day having you try on clothes and being too scared to show me!"  
+"哎呀，快让我看看！" 明日香开始敲门。"我不想一整天都浪费在你试衣服又不敢给我看上！"
+
+"Okay, okay!" Shinji unlocked the door and opened it. "Here, happy?"  
+"好了，好了！" 真嗣解开门锁，把门打开。"这样，满意了吧？"
+
+To say Shinji looked a lot different would be an understatement. Asuka gave him a pair of black jeans and a green t-shirt. She also gave him a thin, sleeveless, zip-up hoodie.  
+说真嗣看起来大不一样，实在是轻描淡写。明日香给了他一条黑色牛仔裤和一件绿色 T 恤。她还给了他一件薄薄的、无袖的、带拉链的连帽衫。
+
+"Hmm, not bad" Asuka smiled with her arms crossed. "It's a definite improvement."  
+"嗯，不错" 明日香交叉双臂，微笑着。"确实是个明显的进步。"
+
+"Did you really have to pick an outfit based on the colors of my Eva?" Shinji slumped his shoulders and frowned. "You said you don't want to be reminded of school, but now I'm being reminded of piloting the Evas in this."  
+"你真的非得根据我 Eva 的颜色来挑衣服吗？" 真嗣垂下肩膀，皱起眉头。"你说不想被提醒学校的事，但现在我穿着这个就想起驾驶 Eva 了。"
+
+"And what's wrong with that?" Asuka glared at him. Shinji jumped back and looked down. After seeing that, she sighed and smiled. "Besides, purple is a good color for you, so I like seeing you in it."  
+"那有什么问题吗？" 明日香瞪着他。真嗣往后一跳，低头不语。看到这一幕，她叹了口气，微笑道："再说了，紫色很适合你，我喜欢看你穿。"
+
+Shinji blushed at her comments and looked back up at her. He also saw a blush as Asuka's eyes were now wide.  
+真嗣因她的评论而脸红，抬头看向她。他也注意到明日香的眼神变得宽阔，脸上泛起了红晕。
+
+"I didn't mean it like that!?" Asuka stomped her foot.  
+"我不是那个意思！？" 明日香跺了跺脚。
+
+"I didn't think that!" Shinji held up his hands in defense.  
+"我没那么想！" 真嗣举起双手表示防御。
+
+"Good, because if you did or told anyone that, I'd have to hurt you!" Asuka held up a fist. "Got it!?  
+"很好，因为如果你真那么想或告诉了别人，我可得揍你一顿！" 明日香举起拳头。"明白了吗！？
+
+Shinji was too scared to speak, so he just nodded in response. Shortly after, they paid for that outfit and a few others for both of them and left.  
+真嗣害怕得说不出话，只是点了点头作为回应。不久后，他们为这套衣服和彼此的几件其他衣物付了款，然后离开了。
+
+"So what's next?" Shinji followed behind Asuka, holding the shopping bags. He had to admit wearing his new outfit felt different than just walking around in his school uniform all the time.  
+“接下来去哪儿？”真嗣跟在明日香后面，手里提着购物袋。他不得不承认，穿上新衣服的感觉与整天穿着校服四处走动截然不同。
+
+"Beats me." Asuka kept walking, still looking ahead. "I thought you were treating me today, so don't you have any ideas?"  
+“我怎么知道。”明日香继续前行，目光依旧直视前方。“今天不是你请客吗，难道你没什么主意？”
+
+Shinji was trying to think as he continued walking. Sadly, nothing was coming to mind.  
+真嗣边走边努力思考。遗憾的是，什么也想不出来。
+
+"Come on." Shinji thought to himself as he sighed. "There must be some idea to name."  
+“加油啊。”真嗣叹了口气，自言自语道，“总该有个名字吧。”
+
+Despite not seeing her face, Shinji was starting to worry that it was annoying Asuka that he couldn't name anything. He had a right to be since Asuka was frowning as she waited for an answer. She was about to turn around to say something, but Shinji luckily saw a sign.  
+尽管没看到她的脸，真嗣开始担心自己想不出名字会让明日香感到烦躁。他有这样的担忧不无道理，因为明日香正皱着眉头等待他的回答。她正要转身说些什么，但真嗣幸运地看到了一个标志。
+
+"What about karaoke?" Shinji pointed at the sign just as he noticed Asuka turned around, looking like she was about to yell at him. Luckily for him, Asuka stopped and turned to look at the sign.  
+"卡拉 OK 怎么样？" 真嗣指着招牌，正好注意到明日香转过身来，看起来像是要对他大喊。幸运的是，明日香停了下来，转头看向招牌。
+
+"Oh, karaoke?" Asuka crossed her arms. "I never tried it before."  
+"哦，卡拉 OK？" 明日香交叉双臂。"我以前从没试过。"
+
+"Want to try it today?" Shinji smiled as Asuka turned to look at him. "I haven't tried it before, but it could be fun trying something new together."  
+"今天想试试吗？" 真嗣微笑着，明日香转头看向他。"我也没试过，但一起尝试新事物可能会很有趣。"
+
+"I guess." Asuka sighed as she walked towards the karaoke bar. "Guess it's better than waiting for you to come up with something else."  
+"我想是吧。" 明日香叹了口气，朝卡拉 OK 酒吧走去。"总比等你再想出别的什么好。"
+
+"Thank god." Shinji thought to himself as he sighed. He started to enjoy avoiding Asuka yelling at him like she usually did. As he followed behind her, he didn't notice their three friends from school looking at them from a distance.  
+"谢天谢地。" 真嗣暗自想着，叹了口气。他开始享受起避免明日香像往常那样对他大吼大叫的感觉。跟在她后面，他没注意到学校的三位朋友在远处看着他们。
+
+"Is that Shinji and Asuka," Kensuke pointed toward them while looking through his camera. "Out on a date?"  
+"那是真嗣和明日香吗？" 剑介透过相机镜头指向他们。"在约会吗？"
+
+"Seriously?" Touji had his arms crossed. "It must be her dragging him around to be her mule."  
+"真的假的？" 托基双臂交叉，"肯定是她在拖着他到处跑，当她的苦力。"
+
+"Both of you stop." Hikari frowned. "Asuka's still my friend, and it's not nice to spy on either of them."  
+"你们俩都别说了。" 光皱起眉头，"明日香还是我的朋友，偷窥他们俩都不太好。"
+
+"Asuka sure got dressed up nice if she just wants Shinji as a mule," Kensuke said before Hikari stole his camera. "Hey!"  
+"明日香要是只想让真嗣当个苦力，那她打扮得可真够漂亮的，" 健介说道，话音未落，就被光莉抢走了相机。"嘿！"
+
+"Let me see that!" Hikari looked through the camera. Her eyes went wide as she saw what Kensuke was talking about. "That's one of the outfits she tried on with me the other day."  
+"让我看看！" 光希透过相机查看。当她看到健介所说的情况时，眼睛瞪得大大的。"那是我前几天和她一起试穿的一套衣服。"
+
+"So what?" Touji raised an eyebrow as he looked at her.  
+"那又怎样？" 冬二挑了挑眉，看着她。
+
+"She said that's the perfect outfit for a date when she picked it up." Touji and Kensuke's eyes went wide from looking at Hikari to looking at each other.  
+"她当时挑这件衣服时说，这是约会的完美装扮。" 冬二和健介的目光从光希转向彼此，眼睛瞪得大大的。
+
+"I knew I would regret asking Shinji what was going on with him and Asuka." Touji sighed as he frowned. "Now I'm too curious."  
+"我就知道问真嗣他和明日香之间怎么了会后悔的。" 冬二皱着眉叹了口气。"现在我太好奇了。"
+
+"Same." Hikari sighed. "Shame we'll be out on that trip, though, and won't know what's going on with them."  
+"一样。" 光叹了口气。"可惜我们要去那次旅行，不然就能知道他们怎么了。"
+
+"True, but" Kensuke took back his camera and looked at them. "It's not like the trip is mandatory."  
+“确实，但是” 真嗣拿回相机，看着他们。“这趟旅行又不是强制的。”
+
+Touji and Hikari looked at each other before turning to look at Kensuke. Meanwhile, Shinji and Asuka were now inside the karaoke bar.  
+冬二和光相互看了一眼，然后转向真嗣。与此同时，真希和明日香已经进入了卡拉 OK 酒吧。
+
+"And if you need anything, such as refreshments, just hit this button and tell us what you'd like." The server was pointing at a device on the wall.  
+“如果需要什么，比如饮料，只需按这个按钮告诉我们你想要什么。”服务员指着墙上的一个设备说道。
+
+"Thank you." Shinji was sitting on the couch in a studio next to Asuka, who was now looking through the list of songs.  
+“谢谢。”真嗣坐在录音室里的沙发上，旁边是正在浏览歌曲清单的明日香。
+
+"You're welcome." The server waved as she left them alone.  
+"不客气。" 服务员挥了挥手，留下他们独自相处。
+
+"Ehh, there are so many songs." Asuka groaned. "How in the world are we supposed to find one to sing?"  
+"哎呀，这么多歌。" 明日香抱怨道。"我们到底该怎么选一首来唱啊？"
+
+"Technically, we'll be here for a while." Shinji turned to her, smiling. "I'm pretty sure we'll sing more than one song."  
+"严格来说，我们会在这里待上一阵子。" 真嗣转向她，微笑着说。"我敢肯定我们不止唱一首歌。"
+
+"That's not what I meant." Asuka clenched her fist, gritting her teeth. Shinji gulped as he looked away. After a few more minutes, Asuka saw a song she liked and put it in. "I guess this would be good."  
+"那不是我的意思。" 明日香紧握拳头，咬紧牙关。真嗣吞了吞口水，移开了视线。又过了几分钟，明日香看到一首她喜欢的歌并播放了它。"我想这应该不错。"
+
+"What did you pick?" Shinji turned back to her.  
+"你选了什么？" 真嗣转回来看着她。
+
+"You'll see." Asuka got up and grabbed the mic. She then looked back over at Shinji. "And if you make fun of me, you'll regret it, got it?"  
+“你会看到的。”明日香站起身，抓起麦克风。她回头瞥了一眼真嗣，“要是你敢取笑我，你会后悔的，明白吗？”
+
+"I'd never do anything like that to you, Asuka." Shinji sighed.  
+“我绝不会对你做出那种事，明日香。”真嗣叹了口气。
+
+"Good." Asuka smiled. "Just wanted to make sure you knew not to do that."  
+“很好。”明日香微笑道，“只是想确认你明白别再那么做了。”
+
+She then turned to the monitor and waited for the song to start.  
+她随后转向显示器，等待歌曲开始。
+
+---
+
+**A/N: Hey guys, another chapter for all of you. Sort of a way of saying I'm sorry for being gone for so long, as well as advertising another fanfic I'm working on, (Not) her. This Evangelion and the film her mixed, and that's what it is. Be sure to check that story out if you'd like to see more of my work. Anyways, what song do you think Asuka picked? Also, what other songs do you think both Asuka and Shinji would sing? Let me know in the reviews.  
+作者留言：嘿大家，又是一章献给你们。算是对消失这么久说声抱歉，同时也宣传一下我正在写的另一篇同人，《（非）她》。这篇是结合了《新世纪福音战士》和电影《她》的产物，就是这样。如果你们想看更多我的作品，一定要去看看那篇故事。话说回来，你们觉得明日香选了哪首歌？还有，你们觉得明日香和真嗣还会唱哪些歌呢？欢迎在评论里告诉我。**
+
+---
+### Chapter 10
+The song started with a slow piano intro as Asuka closed her eyes and took a breath. Shinji was wondering why she wasn't looking at the screen, but Asuka answered his question as the first lyric hit.
