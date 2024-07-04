@@ -8,12 +8,12 @@
         "type": "tabs",
         "children": [
           {
-            "id": "4a79e4891ede4994",
+            "id": "3eb79df7f76d3e44",
             "type": "leaf",
             "state": {
               "type": "markdown",
               "state": {
-                "file": "atare - Don't wark at me!.md",
+                "file": "Shizumaru - In other words.md",
                 "mode": "source",
                 "source": false
               }
@@ -43,26 +43,26 @@
             }
           },
           {
-            "id": "3eb79df7f76d3e44",
-            "type": "leaf",
-            "state": {
-              "type": "search",
-              "state": {
-                "query": "file:asuka and shinji",
-                "matchingCase": false,
-                "explainSearch": false,
-                "collapseAll": true,
-                "extraContext": false,
-                "sortOrder": "alphabetical"
-              }
-            }
-          },
-          {
             "id": "54f9059b165e295c",
             "type": "leaf",
             "state": {
               "type": "bookmarks",
               "state": {}
+            }
+          },
+          {
+            "id": "2f4432c7012e8683",
+            "type": "leaf",
+            "state": {
+              "type": "search",
+              "state": {
+                "query": "",
+                "matchingCase": false,
+                "explainSearch": false,
+                "collapseAll": false,
+                "extraContext": false,
+                "sortOrder": "alphabetical"
+              }
             }
           }
         ]
@@ -85,7 +85,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "atare - Don't wark at me!.md",
+                "file": "Shizumaru - In other words.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -102,7 +102,7 @@
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "atare - Don't wark at me!.md",
+                "file": "Shizumaru - In other words.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               }
@@ -125,7 +125,7 @@
             "state": {
               "type": "outline",
               "state": {
-                "file": "atare - Don't wark at me!.md"
+                "file": "Shizumaru - In other words.md"
               }
             }
           }
@@ -146,17 +146,22 @@
       "workspaces:管理工作区布局": false
     }
   },
-  "active": "4a79e4891ede4994",
+  "active": "3eb79df7f76d3e44",
   "lastOpenFiles": [
+    "Shizumaru - I Mustn't Run Away.md",
+    "Shizumaru - The Quiet Moments.md",
+    "Shizumaru - In other words.md",
+    "SheriffJohnStone - Care.md",
+    "DeadlyPole - 🍋Shinji and Asuka.md",
+    "Tashikawa - Shinji, Asuka and The Last Angel.md",
+    "atare - Some Stupid Game.md",
     "Axel Terizaki - Shinji, will you dance with me.md",
+    "atare - Don't wark at me!.md",
     "Azeituna - Tempo.md",
     "Red Horseman - The More Things Change.md",
     "Sadistic Shadow - Tough Cookies, Or So She Said.md",
     "September's Nobara - Come, Sweet Life.md",
-    "SheriffJohnStone - Care.md",
     "README.md",
-    "DeadlyPole - 🍋Shinji and Asuka.md",
-    "Shizumaru - In other words.md",
     "Norsehound - Splint.md",
     "Marshall Banana - Asuka Strikes.md",
     "Karina Kineshi - A Beautiful Day for Piggyback Rides.md",
@@ -168,11 +173,6 @@
     "FreckledBitches - 🍋This Love.md",
     "Bardic Jester - ❤️This Way.md",
     "Random1377 - Sanshuunoomoi.md",
-    "silentmusic16 - Discordant.md",
-    "sydneyeliza - Finding Asuka Langley.md",
-    "Shizumaru - The Quiet Moments.md",
-    "skyf0x - Confidence.md",
-    "atare - Don't wark at me!.md",
-    "Andrew Aelfwine - The Children and the Fury.md"
+    "silentmusic16 - Discordant.md"
   ]
 }
