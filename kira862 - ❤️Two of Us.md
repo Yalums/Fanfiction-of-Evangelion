@@ -18586,45 +18586,9 @@ Anyways, I've been talking for far too long, so I'm gonna end this extremely lon
 
 总之，我已经说了太久，所以这篇超长的作者笔记就到此为止了。下次见。
 
-« First « Prev Ch 18 of 30 Next »
+---
 
-« 首页 « 上一章 第 18 章，共 30 章 下一章 »
-
-Review
-
-Share: Email . Facebook . Twitter
-
-Story: 	Follow Favorite
-
-Author: 	Follow Favorite
-
-Contrast: Dark . Light
-
-Font: Small . Medium . Large . XL
-
-Twitter . Help . Sign Up . Cookies . Privacy . Terms of Service
-
-　　
-
-FanFiction.Net
-
-Just In 最新动态
-
-Community 社区
-
-Forum 论坛
-
-V
-
-More 更多
-
-Two of Us by kira862
-
-《我们俩》作者：kira862
-
-Anime » Evangelion Rated: M, English, Romance & Drama, Shinji I., Asuka L. S., Words: 286k+, Favs: 284, Follows: 310, Published: Mar 19, 2012 Updated: May 14, 2015
-
-动漫 » 新世纪福音战士 评级：M，英语，浪漫与戏剧，真嗣·I.，明日香·L. S.，字数：28.6 万，收藏：284，关注：310，发表日期：2012 年 3 月 19 日，更新日期：2015 年 5 月 14 日 184 Chapter 19: Onward  Chapter 19: 继续前行
+### Chapter 19: Onward
 
 Right, well lets see if I remember how this works. Seven months? Or is it eight now? Well, nothing since December either way, but here I am updating, with not one, but two chapter today. I've got tons to say, but I'll leave all that till the end of the other chapter. And no, I'm not abandoning this.
 
@@ -21232,45 +21196,9 @@ Well lets see how it goes from here I suppose.
 
 好吧，让我们看看接下来会如何发展。
 
-« First « Prev Ch 21 of 30 Next »
+---
 
-« 第一章 « 上一章 第 21 章 共 30 章 下一章 »
-
-Review
-
-Share: Email . Facebook . Twitter
-
-Story: 	Follow Favorite
-
-Author: 	Follow Favorite
-
-Contrast: Dark . Light
-
-Font: Small . Medium . Large . XL
-
-Twitter . Help . Sign Up . Cookies . Privacy . Terms of Service
-
-　　
-
-FanFiction.Net
-
-Just In 最新动态
-
-Community 社区
-
-Forum 论坛
-
-V
-
-More 更多
-
-Two of Us by kira862
-
-《我们俩》作者：kira862
-
-Anime » Evangelion Rated: M, English, Romance & Drama, Shinji I., Asuka L. S., Words: 286k+, Favs: 284, Follows: 310, Published: Mar 19, 2012 Updated: May 14, 2015
-
-动漫 » 新世纪福音战士 评级：M，英语，浪漫与戏剧，真嗣·I.，明日香·L. S.，字数：28.6 万，收藏：284，关注：310，发表日期：2012 年 3 月 19 日，更新日期：2015 年 5 月 14 日 184 Chapter 22: Longing  Chapter 22: 渴望
+### Chapter 22: Longing
 
 Right, well, not sure if this constitutes a surprise update, but update nonetheless. I'm sure if I thought about things, I could talk more, but its 6:30 in the morning and I've been up all night.
 
@@ -27477,3 +27405,4 @@ She quickly looked away from him, her face briefly turning pink. Shinji swore wi
 她迅速从他身上移开视线，脸颊短暂地泛起红晕。真嗣在心中咒骂自己，责怪自己过于松懈，以为她还在熟睡。他一边思考一边自言自语，几乎没考虑到明日香可能会听到，但事已至此。
 
 "...Asuka?" "...明日香？"
+
