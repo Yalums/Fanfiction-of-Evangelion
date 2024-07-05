@@ -6508,7 +6508,8 @@ On another note, the birthday themed story that I mentioned during the previous 
 另外，之前在chapter中提到的生日主题故事，第一个chapter将在 3 月 1 日（也就是周五，我还有很多工作要做）发布，一直持续到 10 号。这将是一部成熟的作品，预计每天更新一章。暂定故事标题为《没有惊喜的生日》，不过这个标题仍有可能变动。
 
 ---
-### Chapter 25: Attachment 第二十五章：依恋  
+### Chapter 25: Attachment
+依恋  
 
 It was now summer, around mid July, and though the memories of that day in early March would always remain within Shinji's mind, time had passed since then. In reality, Shinji and Asuka had begun to lose any semblance of dates, and though it had steadily gotten warmer out, heralding the arrival of summer, neither knew what month they were in anymore. They still had the calendar, but had since forgotten about it, and neither paid it any attention. Instead, they focused on changes within themselves, and their outward exterior. Shinji was taller now, and though he had always been slightly taller than Asuka, it was more pronounced now. His hair was longer as well, and was a shaggy mop on his head that covered his forehead entirely, threatening to spill into his eyes. He had matured since that time, and though he didn't feel much older, if two pictures were placed side by side of him then, and now, the differences would have been striking.  
 如今已是盛夏，大约七月中旬，尽管三月初那一天的记忆永远铭刻在真嗣心中，但时间已经流逝。实际上，真嗣和明日香已经开始逐渐忘记日期，尽管天气逐渐变暖，预示着夏天的到来，但他们已经不知道现在是几月份了。他们仍然有日历，但早已忘记它的存在，也都不再关注。相反，他们专注于自身的变化和外在表现。真嗣现在更高了，尽管他一直比明日香稍高一些，但现在这种差异更加明显。他的头发也更长了，像一团蓬乱的草丛覆盖着他的额头，几乎要遮住眼睛。自从那时起，他成熟了许多，尽管他并不觉得自己老了很多，但如果将他那时和现在的照片并排放置，差异会非常显著。
