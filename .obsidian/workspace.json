@@ -17,25 +17,7 @@
                 "mode": "source",
                 "source": false
               }
-            },
-            "group": "e8f0eee35aa557db"
-          }
-        ]
-      },
-      {
-        "id": "afd4f05414ed5b9b",
-        "type": "tabs",
-        "children": [
-          {
-            "id": "d1a9b455ce183512",
-            "type": "leaf",
-            "state": {
-              "type": "outline",
-              "state": {
-                "file": "kira862 - ❤️Two of Us.md"
-              }
-            },
-            "group": "e8f0eee35aa557db"
+            }
           }
         ]
       }
@@ -164,7 +146,7 @@
       "workspaces:管理工作区布局": false
     }
   },
-  "active": "d1a9b455ce183512",
+  "active": "3660f98da3bd7fae",
   "lastOpenFiles": [
     "DeadlyPole - 🍋Shinji and Asuka.md",
     "kira862 - ❤️Two of Us.md",

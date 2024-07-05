@@ -28163,3 +28163,1787 @@ Clearing her throat, Ritsuko continued talking.
 
 "If they did, they didn't stay in the city. There have been no other signs of humans staying here before we started arriving. No, I'm sure that we are the first. Currently, we have people patrolling the beaches up and down in both directions since this area seems to be centered on where most are arriving. We've been scavenging for food as best as we can, but any perishables have long since deteriorated. I'm guessing that several months have passed since Third Impact happened at the very least, possibly as much as a year."  
 "如果有，他们也没有留在城里。在我们开始抵达之前，没有其他人类在此停留的迹象。不，我确信我们是第一批。目前，我们有人沿着海滩上下两个方向巡逻，因为这个区域似乎是大多数人抵达的中心地带。我们一直在尽力搜寻食物，但任何易腐烂的物品早已腐坏。我猜测，至少在第三次冲击发生后的几个月已经过去了，甚至可能长达一年。"
+
+"Kaji said the supplies are low right now," said Misato.  
+“加持说现在补给不足，”美里说道。
+
+"We're rationing everything as best as possible, but with more people returning every day it's becoming more difficult. If civilians start returning, I can only imagine the problems we'll begin to have. So far, everybody has been understanding, but if this continues, people may begin to clash over the simplest of things."  
+“我们尽可能地实行配给制，但随着每天越来越多的人回来，情况变得越来越困难。如果平民也开始返回，我只能想象我们将面临的问题。到目前为止，大家都还能理解，但如果这种情况持续下去，人们可能会因为最简单的事情而发生冲突。”
+
+"I'm assuming you have a plan then?" asked Misato.  
+“那我想你已经有计划了吧？”美里问道。
+
+"I do, and it's a good thing you returned when you did. Kaji, show her the map."  
+"我确实需要，你回来的正是时候。加持，给她看地图。"
+
+Kaji handed the map over to Misato, and glanced over it, quickly noticing what the many markings on the map indicated.  
+加持将地图递给美里，她迅速扫了一眼，很快就注意到了地图上众多标记所指示的内容。
+
+"These are all access points into the Geofront," stated Misato.  
+"这些都是通往地底都市的入口，""美里说道。
+
+"Exactly. The power grid is down across all of Tokyo-3, but the Geofront has its own generators and backups incase those fail. With a small party of Nerv personal, we should be able to get them running again. Getting the electricity back would be a moral boost, and there should be plenty of supplies down there as well."  
+“正是如此。整个东京-3 的电网都瘫痪了，但地底都市有自己的发电机和备用系统以防万一。只要带上几名 NERV 人员，我们应该能重新启动它们。恢复电力不仅能提振士气，那里应该还有充足的物资。”
+
+"I assume that you want me to lead this expedition?" said Misato.  
+“我想你是希望我带队去执行这次任务吧？”美里说道。
+
+"Both you and Kaji. I'd go as well, but I'll have to stay here for the people returning. Besides, you're now the highest ranking person here at the moment."  
+“你和加持都去。我也想一起去，但我得留在这里接待返回的人员。而且，你现在是我们这里职位最高的人。”
+
+"I am? What about the Commander, and Fuyutsuki?"  
+"我是吗？那司令和冬月呢？"
+
+"There hasn't been any sign of the commander, and Fuyutsuki returned a few days before you, but he hasn't said much to me or anyone. He has relinquished his role as vice commander as well, so you're now the highest ranking member here."  
+"司令至今杳无音讯，而冬月在你回来前几天就回来了，但他没怎么跟我或其他人说话。他也已经辞去了副司令的职务，所以你现在是我们这里最高级别的成员。"
+
+"But Ritsuko, you-" "但律子，你——"
+
+"First and foremost, I'm a doctor and a scientist," said Ritsuko, cutting her off. "You want my medical or scientific opinion, that I can give. I'm not a leader, and these six days juggling both has wore me down. That duty is yours Misato, whether you want it or not. You commanded at Nerv when you had to, and this is no different."  
+"首先，我是一名医生和科学家，"律子打断她道，"你需要我的医学或科学意见，我可以提供。我不是领导者，这六天来兼顾两者已让我筋疲力尽。这项责任是你的，美里，无论你是否愿意。你在 Nerv 需要时指挥过，现在也一样。"
+
+Misato's eyes swiveled to Kaji as though asking her to back her up, but he just waived his hands in front of his face and said, "Don't look at me. I was never directly affiliated with Nerv in the first place, and only gave my support when it was needed."  
+美里的目光转向凯吉，似乎在请求他支持，但他只是摆手挡在脸前说："别看我。我从未直接隶属于 Nerv，只是在需要时提供过支持。"
+
+"Useless," complained Misato.  
+"没用，"美里抱怨道。
+
+Looking from one to the other though, she finally gave up.  
+她来回打量着，最终还是放弃了。
+
+"Fine, you win. I'll do this, but I want both of your assistance and help when needed.."  
+“好吧，你赢了。我会做这件事，但需要时我要求你们俩都来帮忙。”
+
+---
+
+Two days later, when Misato was fully rested and her body had recovered, her and Kaji started on there way to the Geofront with six other people who had worked in the maintenance department. They walked at a distance away from the maintenance crew, letting them decide based on the map what emergency access to enter the Geofront from. In reality, there were many choices to chose from. Due to the attack on Nerv, all of the main access tunnels leading to the Geofront had been assaulted, most of the gates having been throughly destroyed, allowing large groups of soldiers to infiltrate. Misato didn't just plan on restoring power while they were there, but assessing the overall damage to the Geofront.  
+两天后，当美里完全恢复了体力，她和加持与另外六名曾在维修部门工作的人员一起前往地底都市。他们与维修队伍保持一定距离，让他们根据地图决定从哪个紧急入口进入地底都市。实际上，选择很多。由于 NERV 遭受的攻击，通往地底都市的主要通道都被破坏了，大多数大门被彻底摧毁，使得大批士兵得以渗透。美里不仅计划在那里恢复电力，还要评估地底都市的整体受损情况。
+
+Based on the current path they were taking, Misato had an idea of where they were headed.  
+根据他们目前行进的路径，美里大致猜到了他们的目的地。
+
+As she had assumed, they were making for a small building disguised as a retail store that in reality, was owned by Nerv. It was just one of the many buildings used in emergencies if the power grid across Tokyo-3 failed. She was sure that the thought of entering through one of the main gates had appeared in the minds of the maintenance crew, but they couldn't be sure how badly the damage was there. The coalition of soldiers could have likely destroyed the entrances, hoping to trap Nerv employees inside the facility, so this was a for sure option.  
+正如她所料，他们正前往一座伪装成零售店的小型建筑，实则归 NERV 所有。这只是众多在东京-3 电力网络失效时用于紧急情况的建筑之一。她确信维修团队曾考虑过从主入口进入，但他们无法确定那里的损坏程度。联合士兵很可能已经摧毁了入口，企图困住 NERV 的员工，因此这是一个确定可行的选择。
+
+That being said, the building had suffered severe damage from the fight between Unit-01 and the Mass-Produced Evangelions. Much of the right side of the building had collapsed on itself, and broken pieces of brick littered the front entrance.  
+尽管如此，这座建筑在初号机与量产型使徒的战斗中遭受了严重破坏。建筑右侧大部分已经坍塌，破碎的砖块散落在前门入口处。
+
+The eight of them stepped around the hazardous obstacles, and entered the darkened ruin, turning on their flashlights as they did. Misato had never actually been through this access point before, though she knew about it, and each of the maintenance crew certainly had used it before since it was their job to keep points like this operational.  
+他们八人绕过危险的障碍物，进入了昏暗的废墟，随即打开手电筒。美里从未真正从这个入口进入过，尽管她知道它的存在，但每位维修人员肯定都曾使用过它，因为这是他们保持此类入口正常运作的工作。
+
+The interior was a mess, with broken wooden shelves and a random assortment of objects. It was a cheap shop, like a second hand store, which made it not stand out, though this was of course the point.  
+内部一片狼藉，破碎的木架和杂乱无章的物品散落一地。这是一家廉价的商店，像二手店一样，这使得它并不显眼，当然，这也是其目的所在。
+
+Navigating around the scattered shelves, Kaji and Misato followed the crew who seemed to know this place even if they were blindfolded into the back where the employee lounge was. Opening a side door, they proceeded down a narrow staircase into the basement. Here, the brick and mortar store disappeared above them, and the walls were replaced by thick metal walls. It was like a small basement, about thirty feet in diameter, and devoid of anything except a single large metal door at the far side of the room. The door had a manual crank on it, similar to those seen on battleships. One of the crewman, presumably the strongest of the six, placed both his on the crank and began turning it, slowly opening the metal door and half a minute later, revealed a metal stairway that went down into the darkness.  
+穿过散乱的书架，Kaji 和 Misato 跟着那些似乎即便蒙上眼睛也能熟悉这个地方的员工，来到了后面的员工休息室。打开一扇侧门，他们沿着狭窄的楼梯下到地下室。在这里，上面的砖石店铺消失了，取而代之的是厚重的金属墙。这个地下室大约三十英尺直径，空无一物，除了房间远端的一扇大金属门。门上有一个手动曲柄，类似于战舰上的那种。其中一名船员，大概是六人中最强壮的，双手放在曲柄上，开始转动它，慢慢地打开金属门，半分钟后，露出一道通往黑暗中的金属楼梯。
+
+"Commander?" asked the crewman who had just opened the door as he turned towards Misato.  
+“指挥官？”刚打开门的船员转向 Misato 问道。
+
+Misato felt it would take sometime to get used to being referred to as the commander, but she nodded all the same, and took the lead down the staircase, followed closely by Kaji.  
+Misato 觉得要习惯被称为指挥官还需要一段时间，但她还是点了点头，率先走下楼梯，Kaji 紧随其后。
+
+Many minutes passed with only the sound of their footsteps echoing off the walls as they continued walking deeper under Tokyo-3. Slowly however, Misato began to feel a soft breeze hitting her face. Finally, the beam of her flashlight hit a door at the end of the long staircase. Turning the doorknob, it swung open, bathing her in warm sunlight.  
+许多分钟过去了，只有他们的脚步声在墙壁间回响，他们继续深入东京-3 的地下。然而，慢慢地，美里开始感觉到一阵轻柔的微风拂过她的脸颊。终于，她的手电筒光束照到了长楼梯尽头的一扇门。转动门把手，门缓缓打开，温暖的阳光洒在她身上。
+
+The eight of them stepped out onto a small platform, several feet above the ground. Sunlight streamed down through the gaping hole in the Geofront, and for a moment, they took in the scenery. The grass, trees, and lake were all Misato remembered it as if she had just been here yesterday, and the pyramid of Nerv was no different. This wasn't entirely true however, as even from here, the aftermath of the damage done to the Geofront from the battle could be seen.  
+他们八人踏出到一个小平台上，离地面有几英尺高。阳光从地底都市的巨大裂口中倾泻而下，有那么一刻，他们欣赏着周围的景色。草地、树木和湖泊都如美里记忆中那样，仿佛她昨天才来过这里，NERV 的三角锥建筑也没有变化。但这并不完全准确，因为即使在这里，也能看到战斗对地底都市造成的破坏痕迹。
+
+Turning towards the others, she beckoned them to follow her, and walked down the winding metal staircase. As she began reaching the bottom however, she noticed something unusual. The handrail, and many parts of the metal stairway were rusted brown and orange. Ritsuko had mentioned that the possibility of several months to a year had passed since humans had vanished from the earth, but was this amount of rust normal for that passage of time?  
+她转向其他人，示意他们跟上，然后走下蜿蜒的金属楼梯。然而，当她开始接近底部时，她注意到了一些不寻常的东西。扶手和金属楼梯的许多部分都生锈成了棕色和橙色。赤木律子曾提到，自人类从地球上消失以来，可能已经过去了数月到一年的时间，但这种程度的锈蚀对于这段时间来说正常吗？
+
+When she reached the bottom of the stairway though, something else struck her as odd. While a concrete path has once been here, and while it wouldn't be unusual for it to be concealed by the  
+然而，当她到达楼梯底部时，另一件事引起了她的注意。虽然这里曾经有一条混凝土小路，而且被茂密的草丛遮盖并不奇怪，但这些草却高过了她的头顶。站在四十英尺高的地方，很难判断下方物体的高度，但这正常吗？
+
+overgrown grass, the grass was well above her head. Forty feet above the ground, it was more difficult to establish the height of things below you, but was this normal?  
+茂密的草丛，这些草却高过了她的头顶。站在四十英尺高的地方，很难判断下方物体的高度，但这正常吗？
+
+"It's bothering you too, isn't it?" said Kaji pointedly.  
+"你也觉得困扰，对吧？" 加持一针见血地说道。
+
+"So you noticed as well," mumbled Misato. "What do you think?"  
+"你也注意到了啊，" 美里咕哝着，"你觉得呢？"
+
+"I've seen a lot more of the city than you have, and honestly, I think Ritsuko was being rather conservative in her assessment. The rust in particular worries me. I've seen many cars throughout the city who's paint has completely rusted off, and that would of course be because they're out in the open and get rained on constantly. The railing though is far enough away from the hole left by the N2 bomb that it would take a considerable amount of rain and wind to reach this point. Plants need both water and direct sunlight to grow, and the grass here will only get hit by the sun as its setting for maybe an hour everyday, which of course doesn't account for cloud cover. As we near the center of the Geofront, I'm guessing the grass will be even taller."  
+"我比你更了解这座城市，说实话，我觉得律子在评估时相当保守。尤其是锈蚀问题让我很担心。我见过城里很多车的漆面完全锈蚀掉了，当然这是因为它们暴露在外，经常被雨淋。但这个栏杆离 N2 炸弹留下的洞口相当远，需要相当多的雨水和风才能到达这里。植物需要水和直射阳光才能生长，这里的草每天只能得到大约一小时的夕阳照射，这还没算上云层的遮挡。随着我们接近地表的中心，我猜草会更高。"
+
+"Then how long do you think we were gone for?" asked Misato.  
+“那你觉得我们离开了多久？”美里问道。
+
+"I don't know," said Kaji, shaking his head. "But I think it's more than a year."  
+“我不知道，”加持摇着头说，“但我觉得超过一年了。”
+
+Misato didn't say anything, but she began worrying about the future. How long had they been gone? Could humanity realistically continue living in such a state?  
+美里没有说话，但她开始担忧未来。他们究竟离开了多久？人类在这种状态下还能继续生存下去吗？
+
+"Well, one step at a time I suppose," said Kaji. "Before we start worrying about anything else, we first need to try and get the power back to the Geofront."  
+"嗯，一步一步来吧，" 加持说道。"在我们担心其他事情之前，首先得设法恢复地底都市的电力。"
+
+"Right," mumbled Misato, pushing her worries to the back of her mind.  
+"没错，" 美里喃喃自语，将忧虑暂时抛诸脑后。
+
+Though the path was concealed by the grass, each of them had treaded on it enough times to know where it was headed, and it wasn't as if they couldn't guess. The large pyramid which was the most distinct landmark in the Geofront was what they were aiming for.  
+虽然小径被草丛遮掩，但他们每个人都已经走过太多次，知道它通往何方，而且他们也能猜到。地底都市中最显眼的地标——那座巨大的金字塔，正是他们的目标。
+
+After several minutes of walking and fighting there way through the tall grass which reached over there heads, they finally reached the entrance to Nerv. The front doors had been smashed open, and what they at first thought to be more rust around the entrance, turned out to be dried blood. They were reminded again of the battle that had happened here, though for them, hardly a week had passed within their own memories.  
+经过几分钟的跋涉与穿越高过头顶的草丛，他们终于抵达了 NERV 的入口。前门已被砸开，起初他们以为是入口处的锈迹，结果却是干涸的血迹。这让他们再次想起这里发生过的战斗，尽管对他们来说，这不过是在自己的记忆中过去了不到一周的时间。
+
+"C'mon," said Misato as she stepped through the doorframe.  
+“快点，”美里说着，跨过了门框。
+
+The automatic moving walkways were of course shut off without power, so they walked the length of the long entrance way, noting the many patches of dried blood, shell casings that littered the floor, and bullet holes that marked the walls. Misato couldn't help but inwardly shudder as she thought of the brutality orchestrated here.  
+自动移动步道当然因为断电而关闭了，于是他们沿着长长的入口通道步行，注意到地面上散布的干血迹、弹壳，以及墙壁上的弹孔。美里不禁在心里为这里的残酷景象而战栗。
+
+They were on the ground floor, or what could be viewed as the very center of Dogma. With the elevators not working, they used an emergency stairwell that led further into the complex. At this point, Misato let the maintenance crew take the lead since they knew the in and outs of this place, and followed their lead.  
+他们位于底层，或者说可以视为 Dogma 的核心地带。由于电梯无法使用，他们利用一条紧急楼梯深入建筑内部。此时，美里让维修团队走在前面，因为他们对这里了如指掌，她便紧随其后。
+
+The main generators and backup generators were in separate locations, and the maintenance crew didn't even bother to go for the main ones. It would be too much to hope that the soldiers hadn't manages to sabotage the main generators, but the backups would hopefully be fine.  
+主发电机和备用发电机分别位于不同位置，维修团队甚至没有考虑去主发电机那里。指望士兵们没有破坏主发电机未免太过奢望，但备用发电机应该还能正常运作。
+
+Stepping into a narrow tunnel that ran the length of the Geofront, one of the many that was used by the maintenance crew to move around quickly, Misato and Kaji followed the others to a single door. One of the crewmen opened it, and they entered a large room.  
+走进一条狭窄的隧道，这是维修团队用来快速移动的众多通道之一，贯穿整个 Geofront，美里和加持跟随其他人来到一扇门前。一名维修人员打开门，他们进入了一个宽敞的房间。
+
+Five enormous generators stretched to the end of the room, each nearly thirty feet tall, and twenty feet wide. Misato let her eyes trail over the large generators before her eyes moved to the maintenance crew who had already begun assessing the situation. Everything was manually operated in here, but the problem was that the back up generators were automatically supposed to start incase the primarily ones failed.  
+五台巨大的发电机延伸至房间尽头，每台高达近三十英尺，宽二十英尺。美里目光掠过这些庞大的发电机，随后转向已经开始评估情况的维修团队。这里的一切都是手动操作的，但问题在于，备用发电机本应在主发电机失效时自动启动。
+
+Misato stood there and watched as they began moving around the large room, the six of them examining each of the five generators. From the snatches of conversation she heard, it appeared that at the very least, they weren't tampered with. Slowly, the six of them went off in opposite directions after reaching some sort of agreement. Two of them began accessing panels near two of the generators, and examining the wires there while another entered a large man sized duct near another generator. Misato watched them begin working, and turned towards Kaji with a confused expression, wondering whether she was supposed to say anything to them, but Kaji was looking pointedly over Misato's shoulder. Turning around, Misato saw of the crew walking towards her, the only female in the group.  
+美里站在那里，看着他们开始在大房间里四处移动，六个人分别检查着五台发电机。从她听到的零星对话来看，至少可以确定这些发电机没有被篡改。慢慢地，六个人在达成某种共识后各自朝相反的方向散开。其中两人开始接近两台发电机旁的控制面板，检查那里的线路，而另一人则钻进了靠近另一台发电机的大型人形管道。美里看着他们开始工作，转向加持，脸上带着困惑的表情，不知道是否应该对他们说些什么，但加持却明显地越过美里的肩膀看向别处。美里转过身，看到团队中唯一的女成员正向她走来。
+
+"Commander?" “指挥官？”
+
+"Just call me Misato," sighed Misato. "So, have you figured out what's wrong? Why haven't the backups started yet?"  
+“直接叫我美里吧。”美里叹了口气，“那么，你们找出问题所在了吗？为什么备用系统还没有启动？”
+
+"No," said the woman, shaking her head. "The generators themselves don't have any problems. It's difficult to be sure without a more thorough examination of the power grid, but we think that during the attack, something must have disrupted the backups from starting. All of the generators here run on hydroelectric power from Tokyo-3's bay, so somewhere along the line the connection was disrupted somehow."  
+"不，" 女人摇着头说，"发电机本身没有问题。没有对电网进行更彻底的检查，很难确定，但我们认为在袭击期间，某些因素可能阻碍了备用电源的启动。这里所有的发电机都依赖于来自第三新东京湾的水力发电，所以某个环节的连接一定被某种方式打断了。
+
+"Do you have an idea for how long it'll take to get it back up?"  
+"您有大概的估计，需要多长时间才能恢复供电吗？
+
+"Again without an idea of how sever the damage is here, or to the rest of the Geofront, we can't be sure. At the very least, the damage is centralized here. The cables run deep underground, so even with the destruction to the city, it wouldn't affect it on that end. Most likely the soldiers cut the power at some point, likely with help from inside."  
+"再次强调，没有具体了解这里的损害程度，或是地底都市其他部分的状况，我们无法确定。至少，损害集中在这里。电缆深埋地下，所以即便城市遭受破坏，那端也不会受到影响。最有可能的是，士兵们在某个时刻切断了电源，很可能得到了内部的帮助。
+
+Misato had long since known that there were infiltrators from Seele inside Nerv, so this didn't come as much of a surprise.  
+美里早就知道 Seele 在 NERV 内部有渗透者，所以这并不让她感到太意外。
+
+"Do you need more people to help with this?"  
+“你需要更多人手来协助吗？”
+
+"As many as possible." “越多越好。”
+
+"Right. I'd already planned on getting an accurate damage assessment of the Geofront and Dogma, so I suppose this handles both cases. Don't push yourselves, and work in shifts to alleviate the work load. I'll send a few more personal down here when I return to the camp."  
+"好的。我原本就计划对 Geofront 和 Dogma 进行准确的损害评估，所以这应该能同时解决两个问题。不要勉强自己，轮班工作以减轻负担。我回到营地后会再派几个人下来。"
+
+"Thank you comman-Misato."  
+"谢谢你，指挥官——美里。"
+
+The woman hurried of without another word, assisting the others with the workload.  
+女人匆匆离开，没有再多说一句话，帮助其他人分担工作量。
+
+"Not bad Commander," muttered Kaji with a slight smile.  
+"不错嘛，指挥官。" 加持轻声笑道。
+
+"Don't you go talking like that as well," groaned Misato as she turned to leave.  
+"你也别这么说。" 美里叹了口气，转身离开。
+
+Both of them left, walking back up the emergency stairwell. Misato had expected things to go a lot slower, but they had gotten here sooner than she had expected, and it couldn't have even been noon yet.  
+两人一同走回紧急楼梯，美里本以为事情会进展得更慢些，但没想到比预期来得早，甚至还没到中午。
+
+"Hey Kaji?" "嘿，Kaji？"
+
+"Hmmm?" “嗯？”
+
+"Mind if we make a detour?"  
+"介意我们绕个路吗？"
+
+"No, I don't," he answered, knowing fully well where she wanted to go.  
+"不介意，我明白你想去哪儿。"
+
+Minutes later, they both stood in the middle of a hallway, staring a duct, and in particular, the dried blood that surrounded it.  
+几分钟后，他们俩站在走廊中央，盯着通风管道，特别是周围干涸的血迹。
+
+"It's hard to believe, isn't it, muttered Kaji.  
+“很难相信，是吧？”加持低声说道。
+
+Misato didn't say anything as she continued staring at the dried blood. This was where both her and Kaji had once "died" yet here they were standing side by side again. It was a very surreal feeling to be staring at the spot where there deaths actually occurred.  
+美里没有说话，继续盯着那干涸的血迹。这里曾是她和加持“死去”的地方，而如今他们再次并肩站在这里。盯着他们实际死亡的地点，这种感觉非常超现实。
+
+"Did I make the right decision in letting Asuka fight?" asked Misato almost inaudibly.  
+"我让明日香去战斗，这个决定对吗？" 美里几乎听不见地问道。
+
+"If you hadn't, she would have likely found another way."  
+"如果你没让她去，她很可能会找到其他方式。"
+
+"What would Shinji have said in that moment though? Surely he wouldn't have allowed it."  
+"但那一刻，真嗣会怎么说呢？他肯定不会允许的。"
+
+"Whatever he would have done doesn't matter, since you were the one to make the decision. Are you blaming yourself for what happened between them?"  
+“无论他原本会做什么都无关紧要，因为是你做出了决定。你是在为发生在他们之间的事情自责吗？”
+
+No, Misato didn't think she was, not in that regard at least. However, she couldn't help but feel that things weren't right not having them here right now. Shinji and Asuka had just as much a role in things that were happening right now as Misato herself. Since they both weren't here though, Misato couldn't help but feel some twinge of guilt. If she hadn't relied on Shinji so heavily, or allowed Asuka to pilot Unit-02, would they be here? What had happened after she parted ways with Asuka in the first place?  
+不，美里并不认为自己在这方面有责任，至少不是那种意义上的。然而，她无法不觉得现在他们不在这里是不对的。真嗣和明日香在当前发生的事情中同样扮演着重要角色，就像美里自己一样。既然他们都不在这里，美里不禁感到一丝内疚。如果她没有如此依赖真嗣，或者允许明日香驾驶二号机，他们会不会在这里？在她与明日香最初分别后，究竟发生了什么？
+
+"Misato?" asked Kaji, noting the worried expression on her face.  
+"“美里？” 加持注意到她脸上的忧虑表情，问道。
+
+"...Sorry," she replied. "Just remembering some things. I think I'm ready to leave."  
+"...对不起，"她回答道。"只是想起了一些事情。我想我已经准备好离开了。"
+
+Kaji nodded, and followed Misato back the way they came.  
+加持点点头，跟着美里原路返回。
+
+It took them roughly two hours of backtracking there way through the Geofront and navigating there way through the city until they were back at their camp near the beach. Thankfully, Kaji knew the city fairly well even in its ruined state, so they made it back without much difficulty. The sun had just reached its apex in the sky when Misato found Ritsuko in her tent, going over a notebook she had been writing in recently.  
+他们花了大约两个小时的时间在 Geofront 中回溯，并在城市中导航，直到回到海滩附近的营地。幸运的是，加持对这座城市即使在其毁坏的状态下也相当熟悉，所以他们没有遇到太多困难就回到了营地。当美里在帐篷里找到正在翻阅最近一直在写的笔记本的律子时，太阳刚刚升到天空的最高点。
+
+"That didn't take very long?" said Ritsuko when she saw them enter through the tent flap. "I take it you didn't run into any problems?"  
+"那没花多少时间嘛？" 看到他们从帐篷口进来，律子说道，"看来你们没遇到什么麻烦？"
+
+"That depends on what you mean," sighed Misato as she sank down into a foldable chair. "We found the generators without any difficulty, but the crewmen say it may take them sometime to get them up and running. They aren't sure what the problem is without a more thorough analysis of the damages done to Nerv and the Geofront, so I'll be sending some more personnel down there in the evening."  
+"这要看你怎么定义了，" 美里叹了口气，坐进一把折叠椅，"我们找到发电机没费什么劲，但船员们说可能需要一段时间才能让它们运转起来。他们不确定问题所在，需要对 NERV 和地底都市的损坏进行更彻底的分析，所以我晚上会再派些人下去。"
+
+"Can't say I didn't expect that," shrugged Ritsuko. "Well, if it's any consolation, we've managed to get a few vehicles that were sheltered from the rain running, so we can begin sending more people to the Geofront. Besides that, there was something that was reported to me shortly after you two left."  
+"我倒也不意外，" 律子耸耸肩，"不过，说点安慰的话，我们已经设法让几辆避雨的车子启动了，可以开始向地底都市增派人手。另外，你们俩离开后不久，我收到了一份报告。"
+
+"What is it?" asked Misato.  
+“怎么了？”美里问道。
+
+"One of our men has found what appears to be the remains of Unit-02."  
+“我们的人发现了一些似乎是二号机残骸的东西。”
+
+Kaji could tell that Misato tensed up beside him, and thought for a moment that she was about to run out of the tent after demanding to know where it was, but she managed to keep calm.  
+加持能感觉到美里在他身旁紧张起来，他以为她会立刻冲出帐篷，追问残骸在哪里，但她设法保持了冷静。
+
+"What is its state?" asked Misato hesitantly.  
+"它的状态如何？" 美里犹豫地问道。
+
+"He didn't give a very accurate picture in that regard. He's not one that normally associates himself with the Evangelions, so only knows of them from a very vague standpoint, but he gave me the directions to the remains."  
+"在这方面，他并没有给出非常准确的描述。他通常不与福音战士打交道，所以只是从一个非常模糊的角度了解它们，但他给了我前往残骸的指示。"
+
+"Where are they?" asked Misato, finally asking the question she had been wanting to ask from the moment Ritsuko told her this.  
+"它们在哪里？" 美里终于问出了从听到律子告诉她这件事起就一直想问的问题。
+
+"I'll get to that in a minute," said Ritsuko, but when Misato went to protest this by opening her mouth, Ritsuko continued with, "there is something else I wanted to discuss with you before you leave."  
+"我一会儿就会讲到那件事，" 丽素说，但当美里正要开口抗议时，丽素继续说道，"在你离开之前，我还有其他事情想和你讨论。"
+
+Misato surely didn't want to waste anymore time talking if there was even the slightest possibility to discover anything which may have happened to Asuka, but she held her tongue.  
+如果有一丝可能发现关于明日香下落的线索，美里当然不想再浪费任何时间在谈话上，但她还是忍住了。
+
+"As you know, I've been fulfilling my role as a doctor and questioning every single person that returns and ends up back here in Tokyo-3. In doing so, I've been slowly able to piece together the events that happened during the attack on the Geofront, and have a fairly accurate understanding of what happened that day."  
+"如你所知，我一直履行着作为医生的职责，询问每一个返回并最终回到第三新东京市的人。通过这样做，我逐渐拼凑出了攻击地底都市那天发生的事件，对那天的情况有了相当准确的了解。"
+
+"What are getting at?" asked Misato, beginning to lose her patience.  
+"你到底想说什么？" 美里开始失去耐心问道。
+
+"Fine, I can see that you are anxious for me to hurry through this, so I'll say this much at least. Something happened at the end of the battle between Unit-01 and the Mass Produced Evangelions, likely helping to create the situation that we are now in."  
+"好吧，我看得出你急于让我快点讲完，所以至少这一点我要说清楚。在零号机与量产型 EVA 战斗的最后发生了一些事情，很可能促成了我们现在所处的局面。"
+
+"And Shinji-" "那真嗣呢——"
+
+"Was likely at the center of it all," finished Ritsuko. "I do not know what happened during that moment since everything was chaotic on our end, and the command center was being overrun at the time. Unfortunately, we have very little knowledge of what happened after both Unit-01 and Unit-02 engaged the Mass Produced Evangelions."  
+"很可能就是这一切的中心，" 丽津子总结道，"我不知道那一刻发生了什么，因为我们的情况一片混乱，指挥中心当时也被攻陷了。遗憾的是，我们对初号机和二号机与量产型使徒交战后的情况知之甚少。"
+
+"So Asuka made it to Shinji's side," spoke Misato.  
+"所以明日香赶到了真嗣身边，" 美里说道。"
+
+"She did. Both yours and Kaji's efforts weren't in vain."  
+"确实如此。你和加持的努力并没有白费。"
+
+This helped to improve Misato mood slightly, but she still had more pressing matters to attend to.  
+这稍微改善了美里心情，但她仍有更紧迫的事情要处理。
+
+"Without Shinji here though, we don't have anyway of confirming this," said Misato suddenly.  
+“不过，没有真嗣在，我们无法确认这一点，”美里突然说道。
+
+"Well, true," sighed Ritsuko. "There are many things I would like to ask him if I got the chance. Well, that's all I wanted to say, but I expect to hear something reassuring after you investigate Unit-02."  
+“嗯，确实，”律子叹了口气。“如果有机会，我有很多问题想问他。好了，我要说的就这些，但我期待你在调查二号机后能听到一些令人安心的话。”
+
+"I will," said Misato as she stood up to leave. She glanced over at Kaji, thinking that he would accompany her.  
+"我会去的，"美里说着站起身准备离开。她瞥了一眼加持，心想他会陪她一起去。
+
+"Sorry," he said, "I've got something other matters to attend to, so I won't be accompanying you this time."  
+"抱歉，"他说，"我有些其他事情要处理，这次就不能陪你去了。"
+
+"Right," said Misato, thinking that she would have preferred his company of she was honest. She didn't know what she expected to find, but she wanted to be prepared for the worst.  
+"好吧，"美里说，心里诚实地说她其实更希望有他陪伴。她不知道自己期待找到什么，但她想做好最坏的准备。
+
+After Misato had left however, Kaji turned to Ritsuko and asked, "How long do you think we've actually been gone for?"  
+然而，在美里离开后，加持转向律子问道：“你觉得我们实际上离开了多久？”
+
+"Where is this coming from?"  
+“这从何说起？”
+
+"You can't honestly expect people to not be able to not put two and two together. The decomposition of food, oxidizing of metal, plant life that has grown in abundance without humans hands to tend them. Six months is hardly long enough for these things, well, the food wouldn't take long I suppose, but other than that..."  
+“你不能真的指望人们无法将这些线索联系起来。食物的腐烂、金属的氧化、植物在没有人类照料下大量生长。六个月对这些现象来说时间太短了，嗯，食物腐烂可能不需要太久，但除此之外……”
+
+"You weren't secretly affiliated with Nerv for nothing I see," sighed Ritsuko."  
+"看来你并非毫无缘由地秘密隶属于 Nerv，" 律子叹息道。
+
+Standing up, she left the comfortable feel of the chair, and stepped into the open sun while Kaji followed her. All around them, people continued moving, each of them shouldering some burden that they were assigned. That last remnants of humanity has been reduced to scavengers.  
+她站起身，离开了那把舒适的椅子，踏入阳光下，加持紧随其后。四周的人们依旧在忙碌，每个人都肩负着被分配的负担。人类最后的残余已沦为拾荒者。
+
+"I don't honestly know how much time has passed, and that is what makes me worried the most," whispered Ritsuko.  
+"老实说，我不知道已经过去了多少时间，而这正是最让我担忧的，" 律子低声说道。
+
+"You don't even have a guess?" asked Kaji.  
+"你连个猜测都没有吗？" 加持问道。
+
+"More than a year I think. If we can get the power back, then I may be able to get a rough estimate, but that's all."  
+"我想超过一年了吧。如果能恢复电力，我或许能给出一个大致的估计，但也就这样了。"
+
+Kaji and Ritsuko watched the many Nerv employees continuing working around them, both wondering how humanity could continue functioning as such.  
+加持和律子看着周围众多 NERV 员工继续工作，两人都在想，人类究竟是如何在这样的状态下继续运作的。
+
+---
+
+Using the map Ritsuko had given her, it didn't take long for Misato to arrive by vehicle. She was driving a green jeep that somebody has found during the many travels through the ruined city, and Misato was thankful for this. On foot, it would have taken her several hours.  
+借助律子给她的地图，Misato 很快就驾车抵达了目的地。她驾驶的是一辆在废墟城市中多次穿梭时找到的绿色吉普，对此 Misato 深感庆幸。如果步行，她可能需要好几个小时。
+
+From where their camp was on the beach, it was difficult to tell how bad the state of Tokyo-3 was. While driving though, Misato began to realize just how bad the damage was. A large part of the city had of course been destroyed when Unit 00 was contaminated and subsequently destroyed, but the ensuing battle between Unit 01 and the Mass Produced Evangelions had turned this section of Tokyo-3 into a wasteland similar to apocalyptic movies. The destroyed remains of buildings lay on there side. Entire sections of roadways had been gouged out of the earth, and large indents into the ground indicated where the Evangelions once stood.  
+从他们在海滩上的营地望去，很难判断东京-3 的状况有多糟糕。然而，当 Misato 驾车行驶时，她开始意识到破坏的严重程度。当然，当零号机被污染并随后被摧毁时，城市的大部分地区已经化为废墟，但紧接着初号机与量产型使徒之间的战斗，将东京-3 的这一区域变成了类似末日电影中的荒地。建筑的残骸横七竖八地倒在地上，道路的整段被从地面上挖出，巨大的地面凹陷显示了使徒曾经站立的位置。
+
+Misato took all this in as she drove, carefully navigating her way around the ruins until she reached the area that the map indicated where Unit 02 was. As Misato stepped out of the jeep though, she couldn't help but inhale sharply at the sight before her. Calling it the remains of Unit 02 didn't do it justice: there was almost nothing left of the Evangelion.  
+美里一边开车，一边将这一切尽收眼底，小心翼翼地绕过废墟，直到她到达地图指示的 02 号机所在区域。然而，当美里从吉普车上下来时，她不禁倒吸一口凉气，眼前的景象让她震惊。称其为 02 号机的残骸并不贴切：这台福音战士几乎什么都没剩下。
+
+Initially, Unit 02 had been severely damaged by Unit 01 and Shinji as they fought while descending into Terminal Dogma. Tabris, the last Angel had of course been controlling it at the time, and Shinji had seen no way of subduing it then to tear off both its arms. After the battle, Unit 02 had been repaired, but only to the point of the right arm functioning again, and Asuka had left to fight with Shinji in this damaged state. But that state couldn't compare to what Misato saw now. The only way of describing it was a savage mangling.  
+起初，02 号机在与 01 号机和真嗣在进入最终教条区时激战时遭受了重创。当时，最后的使徒塔布里斯当然在控制着它，而真嗣当时只能通过撕掉它的双臂来制服它。战斗结束后，02 号机虽然得到了修复，但仅限于右臂再次运作，而明日香则带着这种受损状态去与真嗣并肩作战。但这种状态与美里现在所见的情景相比，简直是小巫见大巫。唯一能形容它的方式就是野蛮的蹂躏。
+
+Unit 02 was nearly unrecognizable. The entire chest cavity had been ripped open, the large organs long decayed, and the ribcage had been ripped apart, pieces of bone littering the ground beside the fallen Eva Unit. The right arm had been torn off, though within Misato's vision, it was no where to be found. Both of the legs had been stripped clean of flesh as though carrion birds had defiled the body. The skull however was missing from the body, the head flung to the side where it lay on the ground. Two large punctures where the eyes were supposed to be went in one end of the skull and out the other. The top of the skull looked to have been crushed by a blunt instrument or a large fist, and the flesh had of course long decayed away, the metal red armor laying around the broken skull.  
+02 号机几乎面目全非。整个胸腔被撕裂开来，巨大的器官早已腐烂，肋骨也被扯得支离破碎，骨头碎片散落在倒下的 EVA 机体旁。右臂被撕扯下来，但在美里视线所及之处，却不见其踪影。两条腿上的肉被剥得一干二净，仿佛食腐鸟类亵渎了这具躯体。然而，头骨却从身体上消失了，头部被甩到一边，躺在地上。两个巨大的孔洞贯穿了本应是眼睛的位置，从颅骨的一端穿透到另一端。颅顶似乎被钝器或巨拳击碎，而肉体自然早已腐烂殆尽，红色的装甲金属散落在破碎的头骨周围。
+
+Misato felt a certain fear welling up inside her as she looked at the husk which was once Unit 02, long destroyed during the battle with the Mass Produced Eva Units. However, there was still one thing that she didn't immediately see, and that was the entry plug.  
+美里凝视着曾经是 02 号机的残骸，心中涌起一股莫名的恐惧，这台机体在对抗量产型 EVA 的战斗中早已被摧毁。然而，有一件东西她并未立即发现，那就是插入栓。
+
+Quickly jumping back in the jeep, she starting driving around the corpse of Unit 02, searching for the entry plug. What did she expect to find? Misato wasn't sure whether she even wanted to find it or not, worried what the inside might tell her. However, if there was even the slightest possibility she could learn something about Asuka, she felt it was her duty to do so.  
+她迅速跳回吉普车，开始绕着二号机残骸行驶，寻找插入栓。她期望找到什么呢？美里不确定自己是否真的想找到它，担心内部可能透露的信息。然而，如果有哪怕一丝可能了解明日香的情况，她觉得这是自己的责任。
+
+Driving in a large radius around Unit 02, she slowly began enlarging the circle she was driving in, but began to lose hope of ever finding it. When she was about to give up though, she spotted a cylindrical object far away from where Unit 02 lay. Speeding up, she realized why she hadn't seen it sooner since the white entry plug would certainly have stood out in the ruins.  
+她围绕二号机画了一个大圈行驶，逐渐扩大搜索范围，但开始失去找到它的希望。就在她准备放弃时，她注意到远处有一个圆柱形物体，远离二号机所在的位置。加速驶去，她意识到为何之前没看到它，因为白色的插入栓在废墟中肯定非常显眼。
+
+Stepping out of the jeep, she slowly walked towards the object, nearly buried in the dirt. The white had faded, replaced with a rusted hue, but Misato could see the words "Unit 02" plastered on the side though the letters were faded. Walking around the side, she tried pulling on the release that would open it, but it was firmly rusted closed. Misato stared at it for several seconds, knowing that it was futile to try to open it by herself. What she needed to do now was return to camp and get a team out her to open it.  
+从吉普车下来，她缓缓走向那个几乎被泥土掩埋的物体。白色已经褪去，取而代之的是锈迹斑斑的色泽，但 Misato 仍能辨认出侧面模糊的“二号机”字样。她绕到侧面，试图拉动开启装置，但它已被锈死无法打开。Misato 凝视了几秒钟，明知单凭自己无法打开它。现在她需要做的是返回营地，带一支队伍来开启它。
+
+As she hurried back to her jeep though, she felt that something was bothering her. Where were the Mass Produced Evangelions that Asuka had certainly fought? Where was Unit 01? What had happened to Shinji?  
+然而，当她匆忙返回吉普车时，她感到有些事情困扰着她。那些量产型 EVA 在哪里？二号机在哪里？一��机呢？Shinji 又遭遇了什么？
+
+Hundreds of questions began floating around Misato's mind, nearly all of which she couldn't find an answer for.  
+无数问题开始在 Misato 的脑海中浮现，几乎所有问题她都找不到答案。
+
+Unable to find an answer, she had no choice but to return to camp, dreading what she might find after the entry plug for Unit 02 was opened.  
+无法找到答案，她别无选择，只能返回营地，担心打开 02 号机驾驶舱后会发现什么。
+
+---
+
+When Misato returned, she barged into Ritsuko's tent while she was talking to a patient who has recently been found on the beach earlier that day, and was immediately ordered out until she was done. When Ritsuko finally came out of the tent, she found Misato standing there impatiently waiting for her.  
+当美里回来时，她闯进了律子的帐篷，当时律子正在与那天早些时候在海滩上被发现的一名病人交谈，并立即被命令离开直到她完成。当律子终于走出帐篷时，她发现美里正不耐烦地站在那里等她。
+
+"You're back quicker than I anticipated. I take it you found something.  
+“你回来得比我想象中快。看来你发现了什么。”
+
+"Speaking hurriedly, Misato said, "Unit 02 is...there isn't much left. I don't know what happened during the battle, but it is unsalvageable, but that's not the important part. I found the entry plug, but it's rusted shut. Ritsuko, I need you to help me assemble a team to get it open. Whatever tools you need just find them, Asuka may-"  
+"米萨托急忙说道，“二号机已经……所剩无几了。我不知道战斗中发生了什么，但它已经无法修复，但这不是重点。我找到了插入栓，但它锈死了。理津子，我需要你帮我组建一个团队把它打开。无论需要什么工具，尽快找到，明日香可能还……”
+
+"Misato, even if we could assemble a team this quickly with the right tools and factoring in the little light left today, a week has passed since people started returning, and even if Asuka was trapped in there, she's likely-"  
+"米萨托，即使我们能迅速集结一支配备合适工具的团队，考虑到今天剩下的光线时间，人们已经返回一周了，即使明日香被困在里面，她很可能……”
+
+"Don't! Please don't say that..."  
+"别！请不要说出来……”
+
+Even though Misato said this, she recognized how hopeless it was to believe Asuka was waiting in the entry plug for rescue. LCL fluid could function as water in dire need, and passed through the lungs mimicking oxygen, but a week without food...that was pushing it.  
+尽管美里这么说，她心里明白相信明日香会在插入栓里等待救援是多么无望。LCL 液体在紧急情况下可以充当水，通过肺部模拟氧气，但一周没有食物...这实在是太过勉强了。
+
+"Even if she isn't there, some sign of her, that's all I want."  
+“即使她不在那里，只要有她的任何迹象，我就满足了。”
+
+"Even if it's something you don't want to see?" asked Ritsuko.  
+“即使是你不想看到的东西？”律子问道。
+
+"...Yes," replied Misato.  
+"...是的，" 美里回答道。
+
+Ritsuko watched her for several seconds before she sighed and said, "Alright. But it may be a few hours before everything will be ready. It just so happens that somebody found a hardware store earlier today and came back with a few things just as a precaution. I'll send a few more people back to grab a list of things we'll need."  
+律子盯着她看了几秒钟，然后叹了口气说："好吧。但可能要等几个小时才能准备好一切。碰巧今天有人发现了一家五金店，回来时带了一些东西以防万一。我会再派几个人回去拿我们需要的东西清单。"
+
+"Ritsuko?" "律子？"
+
+"I'll be coming as well. I trust you, but I'd planned on seeing Unit 02 myself, so I think this kills two birds with one stone."  
+"我也会一起去。我相信你，但我原本就打算亲自去看 Unit 02，这样一举两得。"
+
+"But what about affairs here? What about the people returning?"  
+"但这里的事务怎么办？那些回来的人呢？"
+
+"I'm not the only doctor that Nerv employed. They should be able to handle things even if I'm away for a few hours."  
+"Nerv 雇佣的医生不止我一个。即使我离开几个小时，他们应该也能应付得来。"
+
+"Ritsuko, I-" "律子，我——"
+
+"Get some rest if you can in the mean time. You look like you need it."  
+"趁现在能休息就休息一下吧。你看起来很需要。"
+
+Leaving her with that thought, Ritsuko left Misato alone in front of the tent after she went back in. Though she was anxious, Misato knew that sleep would be best right now. There was no point worrying over something which may or may not occur, but on the off chance that it did...  
+留下这句话后，律子回到帐篷里，留下美里独自站在帐篷前。尽管心中焦虑，美里明白此刻睡眠是最好的选择。为可能发生也可能不发生的事情担忧毫无意义，但万一真的发生了……
+
+Pushing that thought away from her mind, Misato found a small tent tucked away in a corner of the encampment, laid herself down on an empty sleeping back, and fell into a restless sleep.  
+将那个念头从脑海中赶走，美里在营地的一角找到了一个小帐篷，躺在一个空睡袋上，陷入了不安的睡眠。
+
+It felt like she had only just laid down, when Kaji shook her awake two hours later.  
+感觉她才刚躺下，两个小时后，加持就摇醒了她。
+
+"You look horrible," said Kaji after Misato sat up, yawning widely. In truth, she had only managed to get about half an hour of sleep, and ended up lying awake, tossing and turning for most of the time.  
+“你看起来糟透了，”美里坐起身，打着大大的哈欠，加持说道。实际上，她只睡了大约半小时，大部分时间都在辗转反侧，无法入眠。
+
+"Is Ritsuko ready?" "律子准备好了吗？"
+
+"Yeah, she had me come and get you, and also told you to put something warm on. It's likely gonna be a cold night."  
+"嗯，她让我来接你，还让你穿暖和点。今晚可能会很冷。"
+
+Handing her a jacket and some warmer clothes, Kaji stepped out of the tent and waited for her to change, smoking while he waited. When Misato stepped out, she glanced over at him, before taking the cigarette out of his mouth and took a long drag on it.  
+递给她一件夹克和一些更暖和的衣服，加持走出帐篷，等她换衣服，一边等一边抽烟。当美里走出来时，她瞥了他一眼，然后从他嘴里拿过香烟，深深吸了一口。
+
+"I thought you quit," said Kaji, surprised by this action.  
+"我以为你戒了，"加治对此举动感到惊讶。
+
+"I needed that right now. My nerves are shot."  
+"我现在正需要这个。我的神经都快崩溃了。"
+
+Handing it back to him, Misato spotted Ritsuko walking towards then, dressed similarly as she was.  
+把烟递还给他，美里注意到律子正朝他们走来，穿着和她相似的衣服。
+
+"You awake?" "你醒了吗？"
+
+"Yeah." "嗯。"
+
+"Then let's go. I want to at least get there before the sun completely sets."  
+"那我们走吧。至少要在太阳完全落山前赶到那里。"
+
+Ritsuko drove, with Misato riding shotgun beside her in the same jeep she had driven earlier. Kaji stayed behind at the camp, taking care of a few things on his end, deciding to leave it to them. Behind Ritsuko and Misato, five more vehicles drove at a distance behind them, each of varying makes, models, and colors. Ten more people were accompanying them, each an engineer who had hands on experience working with the Evangelions.  
+律子开车，美里坐在副驾驶座上，同她一起坐在之前开过的吉普车里。加持留在营地处理一些事情，决定让他们先行。在律子和美里身后，五辆各式各样、颜色不同的车辆保持着一定距离跟随。另外十个人陪同他们，每个人都是有着实际操作经验的福音战士工程师。
+
+By the time they reached there destination, it was already dark out, and they parked the six vehicles around the entry plug, the headlights shinning on it to provide light. The ten workers got out of their vehicles and started pulling out tools from crowbars, to buzz saws and blow torches.  
+当他们到达目的地时，天色已晚，他们将六辆车围绕着插入栓停放，车头灯照亮了它以提供光线。十名工人从车上下来，开始从撬棍到电锯和喷灯等各种工具中取出所需物品。
+
+Misato watched then start working around the entry plug, but noticed that Ritsuko had wandered over to the wreckage of Unit 02 and was examining it using a flash light she had brought. Hurrying over to her, she saw that Ritsuko was closely examining the skull.  
+美里看着他们开始在插入栓周围工作，但注意到律子已经走到 02 号机残骸旁，正用带来的手电筒检查它。她急忙走过去，看到律子正在仔细检查那个头骨。
+
+"Well, you were certainly right in that this is unsalvageable, but I'm glad I saw it myself."  
+“好吧，你确实说得对，这东西无法修复，但我很高兴亲眼见到了。”
+
+Misato saw that Ritsuko expression was darkened however, and the beam of her flashlight was closely inspecting the two gaping holes where the eyes had once been.  
+美里注意到律子脸上的表情变得阴沉，她的手电筒光束正仔细检查着那两个曾经是眼睛的大洞。
+
+"Misato, unless I'm very mistaken, I think the damage to Unit 02 was done after it was already incapacitated."  
+“美里，除非我大错特错，我认为零二号机的损伤是在它已经失去行动能力后造成的。”
+
+Misato's expression froze, but she managed she give a low reply.  
+美里的表情凝固了，但她还是勉强给出了一个低沉的回应。
+
+"What do you mean?" "你什么意思？"
+
+"These two points here, I think they were done by a Lance of Longinus."  
+"这两处痕迹，我想是被朗基努斯之枪所造成的。"
+
+The Lance of Longinus, capable of breaking through an Angels AT-field and destroying its core instantly. However, if said thing was used against an Evangelion, it would effectively disrupt the pilots synchronization, possibly killing the pilot, and where the two holes were.  
+朗基努斯之枪，能够突破使徒的 AT 力场并瞬间摧毁其核心。然而，如果这东西被用来对付福音战士，它将有效地破坏驾驶员的同步率，可能导致驾驶员死亡，正如这两处孔洞所显示的。
+
+"...No...Asuka," spoke Misato in horror.  
+"...不...明日香，" 美里惊恐地说道。
+
+"The cranial nerves were severed, originating from the back of the skull. It was thrust in from here."  
+"颅神经被切断，起源于颅骨后部。它是从这里刺入的。"
+
+"...Ritsuko..." "...律子..."
+
+"I don't think there can be any denying it..."  
+"我想这已经是不容否认的事实了..."
+
+Then Asuka was- 然后明日香她——
+
+"But," said Ritsuko cutting off Misato's voiceless cry, "keep in mind that both yourself and Kaji died, yet here you are standing next to me."  
+“但是，”律子打断了美里无声的呼喊，“记住，你和加持都死了，可你现在却站在我身边。”
+
+"Ritsuko, what are you saying?" said Misato, holding back her tears.  
+“律子，你在说什么？”美里强忍着泪水说道。
+
+"Only this. You died, yet here you are. There is something, some sort of phenomenon that happened here that I can't explain. Third Impact has apparently occurred, so why are we alive then? Even if Asuka did die, there is a strong possibility that she could come back just as you and Kaji did, and you aren't the only ones. Plenty other of our personnel died, only to return."  
+“仅此而已。你死了，却又在这里。有些现象，某种我无法解释的事情发生了。第三次冲击显然已经发生，那我们为何还活着？即使明日香确实死了，她也有很大可能像你和加持那样复活，而你们并非个例。我们许多人员都曾死去，却又归来。”
+
+"So, something like...God made this happen?"  
+“所以，是类似……神让这一切发生的吗？”
+
+"Something more physical than that I think, or a being that could be considered a god. Don't forget Misato, Shinji is not only human, but has Adam's DNA in him. I think he had some hand in whatever happened...this miracle if you will. I've also noticed that neither the Mass-Produced Eva's, or Unit 01 is here, though what's happened to them, I don't know. Either way, don't give up hope on Shinji or Asuka. Somehow or another, they'll turn up eventfully, I believe."  
+“我想是某种更具体的存在，或者可以被视为神的存在。别忘了，美里，真嗣不仅是人类，他体内还有亚当的 DNA。我认为他在所发生的事情中起了某种作用……这奇迹，如果你愿意这么称呼的话。我还注意到，量产型 EVA 和初号机都不在这里，尽管它们发生了什么，我不得而知。无论如何，不要对真嗣或明日香失去希望。我相信，他们终将出现，无论以何种方式。”
+
+At that moment, they heard a loud call from where the crew was working. They had managed to cut open the entry plug, though it had predictably been empty. Misato saw it for herself, but the only thing left was a small amount of LCL fluid which trickled out of the cut they had made. No sign of Asuka, or any possibility that she was ever even here.  
+就在那一刻，他们听到从工作人员所在的地方传来一声响亮的呼喊。他们设法切开了插入栓，尽管里面空无一物是预料之中的事。美里亲眼所见，但唯一剩下的只有从切口处缓缓流出的少量 LCL 液体。没有明日香的踪迹，也没有任何她曾在此的迹象。
+
+Without any other options, the group went back to the campsite, but Ritsuko was thinking about Shinji, and his possible relevance to Third Impact. There was still much that she didn't know, but also some that she hadn't told Misato. Shinji having Adam's DNA was essentially the catalyst that could have triggered Third Impact, but something else was required of course. Was it Shinji himself which had caused everybody to return, or was it that other being?  
+别无选择，一行人返回营地，但律子却在思考真嗣，以及他可能与第三次冲击的关联。她仍有许多未知，也有一些未曾告诉美里。真嗣拥有亚当的 DNA，这本质上是触发第三次冲击的催化剂，但当然还需要其他条件。是真嗣本人导致了大家的回归，还是那个其他存在呢？
+
+Ritsuko looked up to the darkened sky, wondering how far away from the truth she was.  
+律子抬头望向昏暗的天空，思索着自己离真相还有多远。
+
+---
+
+The days passed by slowly, as Misato started getting used to being called the commander. Ritsuko and Kaji helped out her where there assistance was needed, but ultimately, the decision fell on her.  
+日子一天天缓慢流逝，美里开始习惯了被称为指挥官。律子和加持在需要时伸出援手，但最终决策还是落在她身上。
+
+The third day after they had opened Unit 02's entry plug, Misato received a report on the status of the Geofront and Dogma. Besides the destruction that Unit 01 and Shinji had caused while destroying military installation and the top part of the pyramid being blown off, the rest of the Geofront was largely in tact. Rations had been found within Nerv capable of supplying them for many months, but this was of course only on the assumption that everything was strictly for Nerv personnel. As there numbers continued growing, and civilians eventually started appearing, rations would start to dwindle. With this in mind, Misato decided to start planning for the inevitable future.  
+在打开零二号机的插入栓后的第三天，美里收到了关于地底都市和死海文书的报告。除了零一号机和真嗣在摧毁军事设施和金字塔顶部时造成的破坏外，地底都市的其他部分基本完好。在 NERV 内部找到了足够供应他们数月的补给，但这当然仅限于严格为 NERV 人员提供。随着人数不断增加，平民最终开始出现，补给将开始减少。考虑到这一点，美里决定开始为不可避免的未来做计划。
+
+The hills above Tokyo-3 had there fair share of small towns and homes, but the majority of it was farmland. Tokyo-3 had been built with the imagined possibility of it being the only remaining city on earth incase the Angels targeted the rest of the earth. Because of this, Tokyo-3 was supplied entirely by its own agricultural surroundings, eliminating the need for foreign imports.  
+东京-3 上方的山丘上散布着许多小镇和住宅，但大部分地区仍是农田。东京-3 的建设考虑到了可能成为地球上唯一幸存城市的情景，以防使徒袭击其他地区。因此，东京-3 完全依靠周边农业自给自足，无需外部进口。
+
+Misato sent out a team of people to the hills to inspect the land, fearing that they may have to start planting from scratch, but was surprised by the news she received when they returned. Though much of the fields were overgrown with weeds and nature had claimed back much of the civilized land, most of the fields were teeming with food still. With the change of seasons, fruit would fall from the stems and the seeds would become buried in the ground as animals trod upon them and water fell. Certain root based vegetables would need to be replanted, but they had returned at a time where the winter was just ending, and spring starting. Misato once again wondered if whatever force has brought them back had planned this all along. It certainly made things easier for her.  
+美里派出一支队伍前往山丘勘察土地，担心可能需要从头开始种植，但当他们回来时，她收到的消息却出乎意料。尽管许多田地被杂草覆盖，自然重新夺回了大部分文明土地，但大多数田地依然生机勃勃，充满了食物。随着季节变换，果实会从茎上落下，种子被动物踩踏和水流掩埋。某些根茎类蔬菜需要重新种植，但他们回来的时机恰逢冬季结束，春天开始。美里再次怀疑，将他们带回的力量是否早已预谋这一切。这无疑让她的工作轻松了许多。
+
+Finally, nearly a week after they had inspected Unit 02, Misato was greeted by the woman from the maintenance crew who has sped into the camp driving a red truck. The news couldn't have been any better: the backup generators were finally working. Misato couldn't help but smile at this news, and the people near her that heard this news began cheering. Electricity and running water: everybody had missed these daily necessities for the short time they had been without them.  
+终于，在检查零二号机近一周后，Misato 迎来了那位驾驶红色卡车疾驰而来的维修队女性。消息再好不过了：备用发电机终于运转了。Misato 听到这消息不禁露出微笑，周围听到这消息的人们也开始欢呼。电力和自来水：大家短暂失去这些日常必需品后，都倍感怀念。
+
+With the thought in mind that she should organize groups to go to the Geofront to relax for a while, Misato entered Ritsuko's tent. She was examining a large notebook that had notes about every patient that she had examined. At the very front of the notebook were numerous numbers, all of which had been crossed out and then finally at the very bottom was the number five hundred and seventy-eight, circled in red ink.  
+想着应该组织队伍去地底都市放松一下，Misato 走进了 Ritsuko 的帐篷。她正在检查一本大笔记本，上面记录了她检查过的每一位病人的笔记。笔记本最前面有许多数字，都被划掉了，最后在底部是数字五百七十八，用红笔圈了起来。
+
+"So this is what we're to as far as our population goes?" asked Misato.  
+“这就是我们目前的人口状况吗？”Misato 问道。
+
+"Yeah," said Ritsuko as she leaned back in her chair and stretched her arms up.  
+"是啊，" 律子说着，靠在椅背上，伸了个懒腰。
+
+"So have you heard?" "那你听说了吗？"
+
+"I'm assuming by the cheering that the back up generators have been fixed?"  
+"我猜是因为欢呼声，备用发电机已经修好了？"
+
+"They have. I was thinking of sending groups of people down to the Geofront to relax and what not. God knows I could use a shower myself. With this amount of people though, I suppose we should start setting up residencies inside the Geofront."  
+"他们确实需要。我在考虑分批让人下到地底都市去放松一下之类的。天知道我自己也需要洗个澡。不过这么多人，我想我们得开始在地底都市建立居住区了。"
+
+"Either that our start rebuilding Tokyo-3's infrastructure."  
+"要么就从重建第三新东京市的基础设施开始。"
+
+"Isn't it a little soon for that?"  
+"现在就开始重建，是不是有点太早了？"
+
+"No, you're right. We still have a while before that begins. So what's next?"  
+"不，你说得对。离那开始还有一段时间。接下来呢？"
+
+"That was actually the main reason I came to see you. The electricity and water may be working again, but Nerv's network, the computer systems, are still down."  
+"那其实是我来找你的主要原因。电力和水可能恢复了，但 NERV 的网络，计算机系统，仍然处于瘫痪状态。"
+
+"I figured as much. I suppose they'll need my help in that regard."  
+"我猜到了。我想他们在这方面需要我的帮助。"
+
+"How soon can you get them back up?"  
+"你多久能把它们重新启动？"
+
+"If it's a simple matter of rebooting the system, about a day. Why though? They can't be of much help."  
+"如果只是重启系统的话，大概一天。不过为什么呢？它们帮不上什么忙的。"
+
+"I've actually been thinking Ritsuko, whether we our the only humans here."  
+"我最近一直在想，律子，我们会不会是这里唯一的人类。"
+
+"What do you mean?" "你什么意思？"
+
+"You said when I first came back that currently it's only Nerv employees that our returning, so what about the other branches? What about our facilities in the United States and Germany?"  
+"你刚回来时说过，目前只有 Nerv 的员工在返回，那么其他分支机构呢？我们在美国和德国的设施怎么办？"
+
+"...I hadn't thought of that, but you raise a good point. It is possible, though I assumed since this is where Third Impact initiated from, that we would bear the brunt of humanities reappearance, though it is possible. Am I correct in assuming you want to contact them via the computers satellite uplink?"  
+"...我之前没考虑到这一点，但你提得很有道理。虽然可能性存在，但我以为既然第三次冲击是从这里开始的，我们可能会首当其冲地面对人类的重新出现，不过确实有可能。我猜你是想通过电脑的卫星链接与他们联系？"
+
+"That is my intention." "正是我的打算。"
+
+"It could work, assuming that Nerv's satellites are still orbiting of course, but I'd be careful as well. Leaving the branch in Germany aside, the United States branch may no longer be under our control. Don't forget that before Tokyo-3 was attacked, each branch was suppressed, and while we know that Germany gave up without a fight and they were sympathetic to us, the United States may be different. I think they have long been in control by Seele."  
+"这有可能奏效，当然前提是 Nerv 的卫星仍在轨道上运行，但我也会谨慎行事。暂且不论德国分部，美国分部可能已不再受我们控制。别忘了，在东京-3 被攻击之前，各分部都受到了压制，虽然我们知道德国分部未作抵抗且对我们抱有同情，但美国分部可能不同。我认为他们早已被 Seele 控制。"
+
+At Ritsuko's words, Misato narrowed her eyes. "Ritsuko, do you think it possible that Seele could hinder us again?"  
+听到律子的这番话，美里眯起了眼睛。"律子，你认为 Seele 有可能再次阻碍我们吗？"
+
+"I don't know, but I can't rule it out. Seele is composed of the twelve most powerful men in the world, and though whatever they hoped to accomplish with Instrumentality is likely no longer possible, they may hold contempt for us. For now though, I don't think we have to worry about  
+"我不确定，但不能排除这种可能性。Seele 由世界上最有权势的十二个人组成，尽管他们通过人类补完计划希望达成的目标可能已不再可能，但他们可能对我们抱有轻视。不过目前来看，我认为我们不必过于担心。"
+
+them. It will take time for even them to rebuild the power they once had. Meanwhile, I suppose I should head to the Geofront and get started on the computer systems. What are you gonna do?"  
+他们。即使对他们来说，重建曾经的力量也需要时间。与此同时，我想我应该前往地底都市，开始处理计算机系统。你打算做什么？
+
+"I'll sort out a couple things here, then I plan on going somewhere I've been meaning to for a while."  
+我先在这里处理几件事，然后计划去一个我一直想去的地方。
+
+"Where's that?" 那是哪里？
+
+"My old apartment." “我以前的公寓。”
+
+After creating a rotating schedule of people visiting the Geofront, Misato drove to her old apartment. She asked Kaji whether he would join her, but he declined. Misato wasn't sure whether he was being considerate to her, since he likely knew why she was going there, but she had wanted him there all the same.  
+在制定了一个轮流访问地底都市的计划后，美里驱车前往她以前的公寓。她问加持是否愿意同行，但他拒绝了。美里不确定他是否是在体贴她，因为他很可能知道她去那里的原因，但她还是希望他能陪她一起去。
+
+As she drove into the spot she normally parked at, she glanced up to her apartment building. The right side of it was completely destroyed by what she guessed where shells fired from artillery, but her own room appeared unscathed.  
+当她驶入平时停车的位置时，她抬头望向自己的公寓楼。楼的右侧被她猜测是炮弹击中而完全摧毁，但她的房间似乎完好无损。
+
+Walking up the steps, each seemed heavier than the rest. When she approached her door, out of habit, she reached for her keys, but obviously didn't have them. As she began wondering whether she'd even be able to get in, she saw that the door was already open, but that parts of the door were damaged, riddled with bullet holes. It appeared that the soldiers had come her searching for both Shinji and Asuka at some point.  
+走上台阶，每一步都显得比之前的沉重。当她走近自己的房门时，出于习惯，她伸手去摸钥匙，但显然没有带在身上。正当她开始怀疑自己是否还能进去时，她发现门已经开了，但门的部分已经损坏，布满了弹孔。看来士兵们曾在某个时候来这里搜寻过真嗣和明日香。
+
+Pushing the door aside, she stepped into her old apartment and spoke to nobody-  
+她推开门，走进了旧公寓，对着空无一人的房间说道——
+
+"I'm back..." “我回来了……”
+
+Her apartment was destroyed. The living room had been ran sacked, the couch was molding and had numerous bullet holes covering it, and the TV had been shattered. The window itself was also damaged, likely letting the rain in.  
+她的公寓被毁了。客厅被洗劫一空，沙发发霉且布满弹孔，电视也已粉碎。窗户本身也受损，很可能让雨水渗了进来。
+
+The kitchen was little better. The table had been kicked against a corner, and the three chairs were laying upside down, one of the chairs missing its legs. The refrigerator was left open and empty, an all the cabinets were swinging open, the pots and pans that Shinji had bought lay scattered on the floor.  
+厨房情况稍好一些。桌子被踢到角落，三把椅子倒置，其中一把缺了腿。冰箱敞开着，空空如也，所有橱柜都半开着，真嗣买的锅碗瓢盆散落一地。
+
+Her own bedroom had likewise been destroyed. Her bed was thrown against a wall, feathers from the mattress littering the carpet thanks to the bullet holes that riddle the mattress. Her dresser and had been turned over, her clothes scattered across the floor, and fragments of glass lay on the ground where he mirror had been shattered. The life that she had once had here was likewise gone.  
+她自己的卧室同样被毁。床被扔到墙上，弹孔让床垫里的羽毛散落在地毯上。她的梳妆台翻倒，衣服散落一地，镜子碎片也散布在地上。她曾在这里拥有的生活也一并消失了。
+
+Leaving her room, she entered the only one that had any stuff left in it, and dreaded the worst. Opening the door, she couldn't help but feel angry at the site she saw. Asuka's room had been ransacked in every way imaginable. Her bed was in tatters, the pillow and mattress torn apart by a stream of bullet holes. Posters that she had hung on the wall had been ripped down. Her  
+离开她的房间，她走进了唯一还留有物品的那个房间，心中满是恐惧。推开门，她无法抑制地对眼前的景象感到愤怒。明日香的房间被洗劫一空，每一处都被破坏得面目全非。她的床支离破碎，枕头和床垫被一连串的弹孔撕裂。墙上她挂的海报也被撕扯下来。她的
+
+wooden dresser had all the drawers ripped out of it, everything from shirts, pants, and underwear were strewn across the floor. The window that her bed rest under had been shattered, and the curtains had been torn and ripped apart. For some reason, Misato felt more angry here than even her own room. She hated to think of somebody going through this room, destroying everything that Asuka held dear.  
+木制梳妆台的所有抽屉都被扯了出来，衬衫、裤子、内衣散落一地。她床下的窗户被砸碎，窗帘也被撕扯得破烂不堪。不知为何，美里在这里感到的愤怒甚至超过了她自己的房间。她痛恨想到有人闯入这个房间，毁掉明日香珍视的一切。
+
+As she thought that however, something sprang to her mind. Quickly, she began searching the room, checking on, and under the bed, moving the dresser out of the way, and picking up every article of clothing. Finally, she found what she was looking for under a red shirt. They were no longer within the case, but the earrings that Shinji had given Asuka from the souvenir shop at the aquatic museum were still intact, the blue eyes of the two dolphins gleaming even in the dimness of the room. Misato couldn't help but smile as she examined them, remembering how embarrassed Asuka was when Ritsuko, Kaji, and herself had seen Shinji and Asuka out on what could have been considered a date. It felt like that had happened an eternity ago. She didn't know whether she would ever see Asuka again, but if she was allowed that privilege, she would give these to her.  
+正当她这么想着，脑海中突然闪过一丝念头。她迅速开始在房间里搜寻，检查床底，挪开梳妆台，拾起每一件衣物。最终，她在一件红衬衫下找到了她要找的东西。它们已不在盒子里，但那对新治从水族馆纪念品店送给明日香的海豚耳环依然完好无损，即使在昏暗的房间里，两只海豚的蓝色眼睛依旧闪闪发光。美里不禁微笑着端详它们，回想起当时律子、加持和她自己看到新治和明日香外出，那或许可以算作一次约会时，明日香那窘迫的样子。感觉那仿佛是发生在很久以前的事了。她不知道自己是否还能再见到明日香，但如果能有这个荣幸，她会把这些耳环交给她。
+
+Pocketing the earrings, she left Asuka's room and paused just as she was about to leave. Glancing over at Shinji's room, she hesitated, unsure whether she wanted to enter. So many things had led to him leaving, and so many memories existed within this space. Misato had been there guardian for a short time, but had watched then grow together. She wished for those moments, wanting to turn back the hands of time to happier moments when they had all lived together. But fate was a cruel thing.  
+她把耳环收好，离开了明日香的房间，正要离开时停下了脚步。瞥了一眼真嗣的房间，她犹豫了，不确定是否要进去。太多的事情导致他离开，这个空间里留下了太多回忆。美里曾短暂地担任过他们的监护人，见证了他们的成长。她渴望那些时光，希望能让时间倒流，回到他们共同生活时的快乐时刻。但命运是残酷的。
+
+She had made her decision though. Her old life was behind her, and there was no possible way of reclaiming it. Leaving behind everything she had ever accumulated in her life, she left her old apartment with nothing but the earrings.  
+尽管如此，她已经做出了决定。她的旧生活已经过去，无法再挽回。她放弃了生活中积累的一切，只带着耳环离开了旧公寓。
+
+---
+
+Misato awoke early the next morning before the sun had even fully risen, and was currently speeding through the remnants of Tokyo-3. She had been awoken by an engineer who had been working on the cleanup of the Geofront, one of the many. The engineer had been contacted by Ritsuko using the newly reestablished communications within the Geofront, and that she wanted Misato to come to the command center as soon as possible. As such, Misato was hurriedly driving through Tokyo-3, making her way to one of the many gates that connected it to the Geofront.  
+次日清晨，太阳尚未完全升起，美里便早早醒来，此刻正疾驰在东京-3 的废墟之中。她被一位参与地底都市清理工作的工程师唤醒，这样的工程师不在少数。这位工程师是通过地底都市内新近恢复的通讯系统接到律子联系的，律子希望美里尽快赶往指挥中心。因此，美里急匆匆地驾车穿越东京-3，前往连接地底都市的众多入口之一。
+
+With nearly a thousand Nerv employees now available to work, they had begun cleaning up the devastation that had been left as a result of the attack. All the gates had been cleared of debris and rubble as well as the many military vehicles. Some of the these were still working, so those personnel experienced with such things had begun storing them on the off chance they could be used.  
+随着近千名 NERV 员工投入工作，他们开始清理因袭击而留下的满目疮痍。所有入口的碎石瓦砾和众多军用车辆均已清除。其中一些车辆仍能运转，于是有经验的人员开始将它们妥善存放，以备不时之需。
+
+Driving through one of the largest gates, Misato went deep underground before passing into the Geofront, parking her car in one of the many underground parking lots, and then used the stairs to ascend to the command level. Many of the elevators were still not working, but this was a matter of sabotage instead of lack electricity.  
+驶过其中一座最大的大门，美里深入地下，穿过地底前线，将车停在了众多地下停车场之一，随后利用楼梯上升至指挥层。许多电梯仍未恢复正常，但这并非电力不足，而是破坏所致。
+
+Each person she passed greeted her in a polite manner, and Misato was glad to see that Nerv was essentially functioning once again, even under these strenuous circumstances. Finally arriving at the commander center, Misato immediately spotted Ritsuko working at one of the three main Nerv computers, the Magi, developed by Ritsuko's mother.  
+她经过的每个人都礼貌地向她打招呼，美里很高兴看到 NERV 基本上再次运转起来，尽管在这种紧张的情况下。最终抵达指挥中心，美里立刻发现了正在其中一台由律子母亲开发的 MAGI 主电脑前工作的律子。
+
+"How's it coming?" asked Misato as she approached Ritsuko who was currently in a sitting position while her eyes were focused on a laptop in front of her.  
+“进展如何？”美里走近正坐在椅子上，双眼紧盯着面前笔记本电脑的律子问道。
+
+"Alright, all things considered. Coffee?" she then asked, pointing to pot casually plugged into an outlet against the wall. "I just finished brewing it."  
+"好吧，综合考虑一下。来杯咖啡？" 她随即问道，随意地指着墙边插座上插着的咖啡壶。"我刚煮好的。"
+
+"Thanks," said Misato, thinking it was exactly what she needed. She couldn't help but smell the stale smell of tobacco filling the air and noticed an ashtray not far from Ritsuko with several cigarettes crushed within it.  
+"谢谢，" 美里说道，心想这正是她所需要的。她忍不住闻到了空气中弥漫的烟草陈腐气味，并注意到不远处律子旁边有一个烟灰缸，里面有几根被碾碎的香烟。
+
+"Have you slept at all yet?" asked Misato after she had filled a cup.  
+"你睡过觉了吗？" 美里倒满一杯咖啡后问道。
+
+"For about two hours earlier, but taking a shower woke me up the most." replied Ritsuko.  
+"大约两小时前，但洗个澡让我彻底清醒了。" 理津子回答道。
+
+"I'll have to make it a point of doing that myself before I leave. So, what was it you wanted me here for? Did you manage to make contact with another branch?"  
+"我得记住离开前也这么做。那么，你找我来有什么事？你联系上其他分部了吗？"
+
+"No, but I haven't actually tried yet either. This is something else."  
+"没有，但我其实还没尝试过。这是另一件事。"
+
+Setting the laptop on the ground, Ritsuko walked around to one of the other Magi, and came back hefting a large stack of paper, and set them down in front of Misato.  
+将笔记本电脑放在地上，Ritsuko 绕到另一台 Magi 前，回来时抱着一大堆纸张，放在 Misato 面前。
+
+"What is all this?" asked Misato as she knelt down to get a closer look.  
+“这都是些什么？”Misato 跪下凑近了些查看。
+
+"Though the computer systems may have been off, they still catalog every date logged, no different then how a personnel computer accounts for the days passed after you haven't turned then on for a few days."  
+“尽管计算机系统可能已关闭，它们仍然会记录每次登录的日期，就像个人电脑在你几天未开机后记录经过的天数一样。”
+
+"Then what is all this paper for."  
+"那这些纸是用来做什么的？"
+
+"Unfortunately I haven't managed to get the graphical displays up yet, but the system just finished rebooting a few hours ago. I tested a print log to make sure they were functioning properly, and all but Casper is working properly. I suspect there may have been some corrosion in the copper wires, but will be easily replaced. After testing the print log however, I tried something else, and got what you see in front of you."  
+"遗憾的是，我还没能让图形显示功能上线，但系统几个小时前刚刚完成重启。我打印了一份日志来确保它们正常工作，除了 Casper 之外，其他都运行良好。我怀疑铜线可能有些腐蚀，但更换起来很容易。不过，在测试打印日志之后，我尝试了其他东西，结果就是你现在看到的这些。"
+
+"And what is this exactly?"  
+"这究竟是什么东西？"
+
+"Check the log on that first paper and you'll understand what I mean Misato."  
+"查看那份文件的日志，Misato，你就会明白我的意思。"
+
+Misato did so, looking at the first line. The writing was so small that she had to squint slightly to see it. At the top of the page was the date-  
+Misato 照做了，目光落在第一行。字迹非常小，她不得不微微眯起眼睛才能看清。页面的顶部是日期——
+
+"September 09, 2015," she spoke slowly, beginning to realized what she was seeing.  
+"2015 年 9 月 9 日，"她缓缓念出，开始意识到自己所看到的内容。"
+
+"The date that Nerv was attacked by the coalition of nations. I first ran this on Balthasar, and then Melchior, but I got the same results."  
+那是 Nerv 遭到多国联盟攻击的日子。我先在巴尔萨扎上运行了这个程序，然后在梅尔基奥上运行，但得到了相同的结果。
+
+Misato had stopped listening however, and had already begun frantically going through the large stack of papers. Every single line after the last logged date had only a single dash marking each subsequent day that passed. Eventually, Misato tore through the stack to reach the bottom quicker, and read aloud the next date logged.  
+然而，美里已经不再听他说话，开始疯狂地翻阅那一大堆文件。自上次记录日期之后的每一行，都只有一个破折号标记着每一天的流逝。最终，美里撕开文件堆，以便更快地到达底部，并大声读出下一个记录的日期。
+
+"March 02, 2022." 2022 年 3 月 2 日。
+
+Misato stared long and hard at this date, hoping that the words displayed would suddenly shift to something that she could wrap her mind around, but Ritsuko spoke instead.  
+美里长时间地盯着这个日期，希望这些字眼会突然转变为她能理解的东西，但律子却先开了口。
+
+"I've been through the pages multiple times already, but there isn't a single date besides those two. The date there, would be today, the first time the computer systems were turned on in-"  
+我已经翻阅了好几遍这些页面，但除了那两个日期外，没有其他任何一个日期。那上面的日期，就是今天，电脑系统首次启动的——
+
+"Almost seven years," Misato spoke for her. Seven years? How was that possible? Even if it had been two years, Misato could have wrapped her mind around that as much as she wouldn't want to believe it...but seven...  
+‘将近七年，’美里替她说道。七年？这怎么可能？即便是两年，美里也能勉强说服自己接受，尽管她并不愿意相信...但七年...
+
+"Ritsuko," started Misato, trying to keep her voice from shaking, "is it possible that this is somehow wrong?"  
+"律子，" 美里试图控制声音不颤抖，"有没有可能这是哪里出了错？"
+
+"It's possible, but fairly remote. Without Casper online, I can't be one hundred percent sure, but my mother built the Magi to compliment yet clash with one another. Without all three, a general consensus can't be reached, but since both Balthasar and Melchior reached the same conclusion, I believe this date is true. It would explain what we've seen with regards to the environment."  
+"有可能，但可能性相当小。没有卡斯帕在线，我无法百分之百确定，但我母亲设计的 MAGI 系统本就是为了互补又相互冲突。没有全部三台 MAGI，就无法达成普遍共识，但由于巴尔萨泽和梅尔基奥尔得出了相同的结论，我相信这个日期是真实的。这也能解释我们在环境方面观察到的现象。"
+
+"But why? Almost seven years without humans on earth, why that long?"  
+"但为什么？地球上近七年无人居住，为什么这么久？"
+
+"I don't know, and I have to admit that it is hard to stomach this truth, but Misato, the real reason I wanted you to personally see this and couldn't trust anybody else is because we can't let people know about this, not a single person. It could quickly destroy everything that we've accomplished in this short time."  
+"我不知道，我得承认这个真相难以接受，但美里，我之所以要你亲自来看这个，不能信任任何人，真正的原因是我们不能让任何人知道这件事，一个都不行。它可能会迅速摧毁我们在这短短时间内取得的一切成就。"
+
+Misato wanted to say something in this regard, but knew that Ritsuko was right. They had to keep this in the dark for the time being, but it would eventually come to light. The evidence was after all, all around them, and many people had already wondered about this very thing.  
+美里想就此说些什么，但知道律子是对的。他们暂时必须对此保密，但最终真相会大白。证据毕竟无处不在，已经有许多人对此产生了疑问。
+
+"What about Kaji?" "那加怎么办？"
+
+"You can tell him, he can handle this much without a problem."  
+"你可以告诉他，他完全能应付这个，不会有问题的。"
+
+"What about the other computer systems here at Nerv though? Plenty of personnel computers will show the same dates."  
+"那 NERV 这里的其他电脑系统呢？很多人员电脑也会显示同样的日期。"
+
+"Before I fully bring the systems back up, I'll write an algorithm to change all the systems to a more...feasible date, and I've already begun confiscating any laptops around the Geofront I find. I  
+"在我完全恢复系统之前，我会编写一个算法，将所有系统日期改为一个更...合理的日期，并且我已经着手没收我在地底都市发现的任何笔记本电脑。我
+
+know that it's only a matter of time before this gets out, but we can limit the fallout by rebuilding everything in the meantime. Of course, the possibility of the other branches finding out about this are very high, though that's of course if other humans exist on the planet besides here."  
+知道这消息迟早会泄露，但我们可以通过在此期间重建一切来限制影响。当然，其他分支发现此事的可能性非常高，不过这前提是地球上除了这里还有其他人类存在。
+
+"And how soon do you think we can try and contact the other branches, the one in Germany at the very least?"  
+“你觉得我们多久能尝试联系其他分支，至少是德国的那个？”
+
+"Once Casper is fixed, and the algorithm written, I can try contacting them via satellite communication. If I can identify the problem with Casper, then I'd estimate three or four days."  
+“一旦卡斯帕修复完毕，算法编写完成，我就可以尝试通过卫星通信联系他们。如果我能找出卡斯帕的问题所在，那么我估计需要三到四天。”
+
+"...well, I don't think I could ask for more from you right now. Thanks for letting me know, and try and get some sleep if you can; your eyes are bloodshot."  
+"...嗯，我想我现在不能再向你要求更多了。谢谢你告诉我，如果可能的话，试着睡一会儿吧；你的眼睛都充血了。"
+
+"And I think before you do anything else, you should take a shower, or a bath might be more relaxing," smirked Ritsuko.  
+"而且我想在你做其他事情之前，你应该洗个澡，或者泡个澡可能会更放松，""律子笑着说。"
+
+"Yeah, I should," said Misato with a sigh. "Keep me updated if you find anything."  
+"是啊，我应该去洗个澡，""美里叹了口气说。""有什么发现记得告诉我。"
+
+"Will do," said Ritsuko as she turned back to her laptop.  
+“好的，”理津子说着，转身回到她的笔记本电脑前。
+
+After finishing this conversation, Misato took the stairwell down to one of the lower levels where the residential areas were. These were largely for important personnel or diplomats.  
+结束这段对话后，美里走下楼梯，来到一个较低的楼层，那里是住宅区。这些住宅区主要是为重要人员或外交官准备的。
+
+As Ritsuko had suggested, Misato took a bath, forgetting what this sort of relaxation felt like. From the moment she had returned, it had been one thing or another and she was glad to have time to herself, time to think. Food was the biggest problem right now, and while the fields above Tokyo-3 had been a great discovery, was it truly sufficient to keep them alive for long? There were plenty of canned foods that could be found just scavenging the stores, but how long would that last, especially with people returning every day. Fish was something they could acquire in large quantities as far as meat went, but the Nerv personnel weren't cut out for that sort of work.  
+正如理津子所建议的那样，美里洗了个澡，几乎忘记了这种放松的感觉。自从她回来后，事情一件接一件，她很高兴能有自己的时间，有时间思考。目前最大的问题是食物，尽管在第三新东京市上方的田地是一个伟大的发现，但它真的足够让他们长期生存吗？商店里可以找到大量的罐头食品，但随着人们每天返回，这些东西能维持多久呢？就肉类而言，他们可以大量获取鱼类，但 NERV 的人员并不适合做那种工作。
+
+After spending nearly half an hour soaking in the bathtub, Misato stepped out and dried herself off, glad that there was a hair dryer available to her.  
+在浴缸里泡了近半个小时后，美里走出浴缸，擦干身体，庆幸这里有吹风机可用。
+
+Leaving Nerv didn't take long, and she was soon back at the camp, already getting reports as she drove to her own tent, which had been designated as the commanders tent.  
+离开 NERV 没花多少时间，她很快就回到了营地，一边开车前往自己的帐篷——已被指定为指挥官帐篷——一边已经开始接收报告。
+
+As she pulled up and parked near it, she spotted Kaji sitting on a chair just outside her tent, smoking a cigarette and reading a book.  
+当她停好车走近时，看到加持正坐在她帐篷外的椅子上，抽着烟，读着一本书。
+
+"Any good?" asked Misato as she stepped out of the jeep.  
+“有什么好消息吗？”美里从吉普车里走出来问道。
+
+"Not really, but it helps pass the time," sad Kaji as he set it down.  
+“不算特别好，但至少能打发时间，”加持说着把东西放下。
+
+"Come in, I have something to discuss with you," said Misato as she passed him and ducked into the tent.  
+“进来，我有事要和你商量，”美里说着从他身边走过，弯腰进了帐篷。
+
+Kaji followed, and just as he stepped into the tent, he said, "You took a shower I see."  
+加治跟着走进帐篷，就在他踏入的那一刻说道：“看来你洗过澡了。”
+
+"It was a bath actually, and how did you know?"  
+“其实是泡了个澡，你怎么知道的？”
+
+"I could smell the shampoo."  
+“我能闻到洗发水的味道。”
+
+Misato wasn't sure how to reply to that. She hadn't forgotten the relationship she had once had with Kaji, or the words spoken between them just before they had died, but now wasn't the time to dredge up past feelings.  
+美里不确定该如何回应。她没有忘记曾经与加持的关系，也没有忘记他们临死前说的话，但现在不是挖掘过去感情的时候。
+
+"I was with Ritsuko." “我和律子在一起。”
+
+"So I heard. And? Did she manage to get the computers up and running?"  
+“我听说了。然后呢？她设法让电脑重新运行了吗？”
+
+Misato then launched into the discussion that she had had with Ritsuko, ending it with the reality of how much time had passed since they were last on the earth. Kaji didn't say anything, but he didn't look particularly shocked either.  
+美里接着展开了她与律子之间的讨论，最后以自上次他们离开地球以来已经过去多少时间为现实收尾。加持没有说什么，但他看起来也并不特别震惊。
+
+"You don't seem surprised."  
+“你似乎并不惊讶。”
+
+"I am, but I also somewhat expected this. It accounts for the changes that we've seen."  
+“我是惊讶，但也多少预料到了。这解释了我们看到的那些变化。”
+
+"Ritsuko said the same thing, but what I want to know is why? Why seven years? Why have we returned now?"  
+"律子也说过同样的话，但我真正想知道的是为什么？为什么是七年？为什么我们现在回来了？"
+
+"Who knows," shrugged Kaji. "And does it really matter even if seven years have passed? Sure, rebuilding everything is going to take time, likely several years altogether, but we're back, so there's no sense worrying about why, or how. The only thing we can do now is move forward."  
+"谁知道呢，"加治耸了耸肩。"即便已经过去了七年，这真的重要吗？当然，重建一切需要时间，可能总共要几年，但我们回来了，所以没必要纠结为什么或怎么回来的。我们现在唯一能做的就是向前看。"
+
+"Do you honestly believe that?"  
+"你真的相信这些吗？"
+
+"I do. Whether this was all planned or not doesn't matter to me all that much."  
+"我确实如此。无论这一切是否都是计划好的，对我来说并不那么重要。"
+
+"That may be your opinion, but I can't help but worry."  
+"这可能是你的看法，但我忍不住担心。"
+
+Silence engulfed then as Misato and Kaji sat beside each other. Slowly, Kaji glanced over at Misato and saw that she was bent over, looking at the ground. He wasn't sure where his feelings lay with regards to her right now, but felt that he should at least try and comfort her. Raising up his right hand, he rested it on top of her head, and gently leaned her body towards his.  
+沉默笼罩着他们，美里和加持并肩而坐。渐渐地，加持瞥向美里，看到她弯着腰，盯着地面。他不确定自己现在对她的感觉如何，但觉得至少应该试着安慰她。他举起右手，轻轻地放在她的头上，温柔地将她的身体靠向自己。
+
+"Right now, do what only you can do, and let other people shoulder the rest of the burden. You may be the person everybody is looking towards for help, but don't forget that you're not alone. You have both myself and Ritsuko to help you along this path."  
+“现在，做只有你能做的事，让其他人分担剩下的负担。你可能成为众人求助的焦点，但别忘了你并不孤单。你还有我和律子在这条路上支持你。”
+
+At that moment, footsteps approached the tent, and someone began calling for Misato. Straightening herself up hurriedly, Misato turned back towards Kaji and whispered a quick, "thank you," before she left the tent to attend to more important matters.  
+就在这时，帐篷外传来了脚步声，有人开始呼唤美里。美里急忙挺直身子，转身向加持快速低语了一声“谢谢”，随后便离开帐篷去处理更紧急的事务。
+
+Kaji continued sitting alone in the tent, waiting for his own moment to get up. Some people knew of his and Misato's prior relationship, but it was best to not start any rumors.  
+加持继续独自坐在帐篷里，等待自己起身的那一刻。虽然有些人知道他和美里过去的关系，但最好不要引发任何流言蜚语。
+
+"Even though I said that, I feel like Misato needs more than just myself and Ritsuko to help her," he mumbled.  
+"尽管我这么说了，我觉得美里需要的不仅仅是自己和律子来帮助她，"他喃喃自语道。
+
+Standing up, he left the tent and looked up to the blue sky.  
+他站起身，离开了帐篷，抬头望向蔚蓝的天空。
+
+"Hurry up and return you two," he said.  
+"你们俩快点回来，"他说道。
+
+---
+
+Time passed slowly for the people who had returned, but they all soldiered on. Nerv employees continued returning, and soon their numbers had reached over one thousand. Truck loads of fruits began being shipped to both the Geofront and the camp, but the majority of it was kept at the Geofront for preservation purposes. Most people had begun creating residences in the Geofront, but a contingency was kept at the beach for the people that kept returning. Nearly a month after the first humans had reappeared on the beaches however, one day, nobody had returned. Patrols were expanded to cover more of the beach, driving up and down the beachfront, but nobody was found. At this point, Ritsuko deduced that they had reached the end of the Nerv personnel who would be returning. While the number was smaller than the dossier list of people that Nerv had employed, Ritsuko guessed that civilians would begin returning soon.  
+时间对归来的人们来说流逝得异常缓慢，但他们都坚持不懈。NERV 的员工陆续返回，不久人数已超过一千。成卡车的水果开始运往地底都市和营地，但大部分为了保鲜目的存放在地底都市。多数人已在地底都市建立住所，但海滩上仍保留着为不断归来者准备的临时住处。然而，在第一批人类出现在海滩近一个月后的一天，再也没有人返回。巡逻范围扩大至更多海滩区域，车辆来回巡视，却一无所获。至此，律子推断他们已迎来 NERV 员工回归的尾声。尽管人数少于 NERV 雇佣人员档案清单，律子猜测平民不久也将开始返回。
+
+The computers were up and running, and all the dates had been configured to show the date as late March in 2017, though it was really 2022. While they had managed to connect the Nerv computers to the satellites circling the earth that were affiliated with Nerv, they had not managed to get in touch with the facility in Germany. Despite this, Misato still tried to contact them once a day without fail. On the bright side, they had managed to find a couple radios capable of long distance communication via satellite. Misato and Ritsuko both had one with them at all times incase of emergencies, and the rest were split up between the Geofront and the campsite.  
+电脑已经启动并运行，所有日期都已设置为显示 2017 年 3 月底，尽管实际上是 2022 年。虽然他们设法将 NERV 的电脑连接到了环绕地球的 NERV 卫星，但未能与德国的设施取得联系。尽管如此，美里仍然每天不遗余力地尝试联系他们。好在，他们找到了几台能够通过卫星进行远程通信的无线电。美里和律子每人随时都携带一台以防紧急情况，其余的则在 Geofront 和营地之间分配。
+
+As March ended, and April began, the first civilians returned. Ritsuko had gotten a call from one of the patrols on the beach notifying her of this, and had immediately left the Geofront, getting in touch with Misato as she did do. Misato had been away on a trip north of Tokyo-3 where somebody had found a large farm of Japanese cows, most of which were old, but food was needed after all. Before Misato could make an adequate decision however, she was pulled back to the camp in a hurry.  
+随着三月结束，四月开始，第一批平民返回了。律子接到海滩巡逻队的电话通知了这一情况，她立即离开 Geofront，并在途中联系了美里。美里当时正在东京-3 以北的地方，那里有人发现了一个大型日本牛农场，虽然大多数牛已经很老了，但毕竟食物是必需的。然而，在美里能做出充分决定之前，她被紧急召回营地。
+
+Arriving at the camp nearly an hour after Ritsuko had informed her, she took the familiar path to Ritsuko tent, but paused as she heard unfamiliar voices coming from inside. She was fluent in both English and German as foreign languages, but she didn't understand what was being said, though she recognized it as Chinese.  
+抵达营地时，距离律子通知她已近一个小时，她沿着熟悉的路线走向律子的帐篷，却在听到里面传来的陌生声音时停下了脚步。她精通英语和德语，但听不懂他们在说什么，尽管她能辨认出那是中文。
+
+Quietly, she poked her head into the flap, and saw Ritsuko sitting beside a man who was laying on a bed, and another unfamiliar man sitting beside her. When Ritsuko noticed her presence, she said something to the guy beside her and stood up, greeting Misato, and the two of them stepped outside.  
+她悄悄地探头进去，看到律子坐在一个躺在床上的男人旁边，还有另一个陌生男人坐在她旁边。当律子注意到她的存在时，对旁边的人说了些什么，然后站起来迎接美里，两人一起走了出去。
+
+"What's going on?" asked Misato the moment they had stepped away. "Is that man laying down the civilian?"  
+“怎么回事？”美里一走出帐篷就问道，“那个躺着的人是平民吗？”
+
+"He is, though I didn't account for the possibility of a language barrier."  
+“他确实是，尽管我未曾考虑到语言障碍的可能性。”
+
+"Is he Chinese? I thought I recognized some of the words."  
+"他是中国人吗？我好像听懂了一些词。"
+
+"He is, and it's a good thing that we have a few employees who are Chinese, otherwise we might have had a problem. He was violent when the patrol first found him, and they nearly had to drag him back to the camp, but that's understandable."  
+"是的，幸好我们有几位中国员工，不然可能会有麻烦。他刚被巡逻队发现时很暴力，差点得强行把他拖回营地，不过这可以理解。"
+
+"How is he doing?" "他现在怎么样了？"
+
+"Better now. Once somebody was found to translate, we managed to calm him down, and then I began explaining things to him."  
+“现在好多了。找到人翻译后，我们设法让他平静下来，然后我开始向他解释情况。”
+
+"What did you tell him?"  
+“你告诉他什么了？”
+
+"The truth, or part of it at least. Nuclear holocaust wouldn't suffice, so I only gave him enough information that would convince him. Basically the vaguest about Third Impact and Nerv's role as well as its affiliation with the United Nations, though I left out everything about the Evangelions and Angels. He was skeptical at first, but having a fellow countryman reassuring him helped."  
+“真相，至少是一部分。核灾难的说法不够充分，所以我只给了他足够的信息来让他信服。基本上是最模糊的关于第三次冲击和 NERV 的角色及其与联合国的关系，不过我略去了关于 EVA 和使徒的一切。他起初有些怀疑，但有同胞的安慰确实有帮助。”
+
+"So how do we go from here?"  
+"那么，我们接下来该怎么办？"
+
+"That's actually the good news. From talking with him, we've learned that he was part of a small fishing village off the coast of the South China Sea. He knows a lot about fishing, so I think we can guarantee a sizable income of fish if more like him return."  
+"这其实是个好消息。通过和他交谈，我们了解到他来自南海沿岸的一个小渔村。他对捕鱼非常了解，所以我认为如果再有像他这样的人回来，我们能确保大量的鱼获收入。"
+
+"Ritsuko that's-" "律子，这——"
+
+"Exactly what we needed, I know. I'm almost positive now that something is, or has, prearranged all this for us. I think we can assume that the first civilians that will be returning are those who's skills are related to agriculture or food production in some way. How were the cows?"  
+"正是我们需要的，我知道。我现在几乎可以肯定，这一切都是被某种力量或某个存在为我们预先安排好的。我想我们可以假设，第一批返回的平民将是那些技能与农业或食品生产相关的人。那些牛怎么样了？"
+
+"I don't think they're something to eat. A couple corpses were found in the field, and a lot of them looked sickly, though I'm no farmer, so I'm not sure."  
+"我觉得它们不是用来吃的。田里发现了几具尸体，其中很多看起来病怏怏的，不过我不是农民，所以不太确定。"
+
+"At least we'll have fish," sighed Ritsuko.  
+"至少我们还有鱼。" 律子叹息道。
+
+"Once more farmers return, we can start worrying about rice and fruit production, though rice should be first. Any luck with the other Nerv facilities?"  
+"一旦农民们再次归来，我们就可以开始担心稻米和水果的生产了，不过稻米应该是首要任务。其他 NERV 设施那边有什么进展吗？"
+
+"No, and I'm starting to think that it won't be possible."  
+"没有，我开始觉得这可能行不通了。"
+
+"If there is some other force at work here though, surely they would have accounted for an overcrowding problem here and food shortages if we get to many people."  
+"但如果这里还有其他力量在运作，他们肯定已经考虑到了人口过多和食物短缺的问题，如果我们聚集了太多人的话。"
+
+"...You have a point. Suppose I'll keep trying. In the meantime, we just have to wait for more people that can assist with food production to return."  
+"...你说得有道理。我想我会继续尝试。与此同时，我们只能等待更多能协助食物生产的人回来。"
+
+"That's all we can do," said Misato, but she was wondering something else. If the Nerv employees had stopped returning, and civilians would now begin reappearing, then where were Shinji, Asuka, and Rei?"  
+"我们只能这么做，""美里说道，但她心里却在想别的事情。如果 NERV 的员工已经停止返回，而平民现在开始重新出现，那么真嗣、明日香和丽又在哪里呢？"
+
+---
+
+The civilians began returning slowly in twos and threes, but soon, nearly ten would arrive in the beach every day.. Due to the possibility of language barriers, Misato had decided that the patrols would now consist of people that were fluent in multiple languages. As the civilians continued returning though, it became apparent that nearly all the civilians were from Asian backgrounds. With this in mind, Ritsuko began guessing that Tokyo-3 would manage the civilians from Asia, the German branch would be in charge of Europe and the Middle East, and that the United States branch would be in charge of North and South America.  
+平民们开始缓慢地以两三人为一组返回，但很快，每天几乎有十人会到达海滩。由于语言障碍的可能性，美里决定巡逻队现在将由精通多种语言的人组成。尽管平民们继续返回，但很快就明显看出，几乎所有平民都来自亚洲背景。考虑到这一点，律子开始猜测，东京-3 将管理来自亚洲的平民，德国分部将负责欧洲和中东，而美国分部将负责北美和南美。
+
+Finally, around mid April, a month and a half since humans had returned, Ritsuko managed to get a secure satellite communication with the Germany branch situated in Berlin. Calling Misato to the Geofront immediately, she arrived at the commander center late in the evening after receiving a report about the first fishing haul.  
+终于，在四月中旬，人类回归一个半月后，律子设法与位于柏林的德国分部建立了安全的卫星通讯。她立即通知美里前往地底都市，美里在收到关于首次捕鱼收获的报告后，于傍晚时分抵达指挥中心。
+
+Stepping out of the elevator doors which had recently been fixed, she walked over to Ritsuko who was waiting in front of a computer. They only had voice communications operable for now, but even this was a massive improvement.  
+走出刚刚修复的电梯门，她走向正在电脑前等候的律子。目前他们只能进行语音通讯，但即便如此，这也是一个巨大的进步。
+
+"Have you talked to them at all yet?" asked Misato as she approached Ritsuko.  
+“你已经和他们联系过了吗？”美里走近律子时问道。
+
+"Just brief greetings. The mans name is Alexander, though Alex is fine he said, and he's in charge of the research center in our German branch."  
+"只是简短的问候。那位先生的名字是亚历山大，不过他说亚历克斯也可以，他是我们在德国分部的研究中心负责人。"
+
+"When was the call received?"  
+"电话是什么时候接到的？"
+
+"About thirty minutes ago. Nobody else knows about this."  
+"大约三十分钟前。其他人都还不知道这件事。"
+
+"Good. I'll take it from here."  
+"很好，接下来交给我吧。"
+
+Taking the seat that Ritsuko had just vacated, Misato flipped a switch on the control panel, turning the communications on.  
+坐在刚刚律子离开的座位上，美里按下了控制面板上的一个开关，开启了通讯设备。
+
+"This is Major Misato Katsuragi currently in charge here in Tokyo-3. Can you hear me Alex?" spoke Misato into the microphone.  
+""这里是负责东京-3 防务的葛城美里少校。亚历克斯，你能听到我吗？"" 美里对着麦克风说道。
+
+"Loud an clear," came the return voice. Judging by his voice, Misato would place his age anywhere between thirty-five and fifty, but she wasn't about to ask. She had more important things to discuss.  
+"清晰响亮。" 对方的声音传来。从他的声音判断，美里估计他的年龄在三十五到五十岁之间，但她不打算问。她有更重要的事情要讨论。
+
+"Can you give me a status report on the situation over there."  
+"你能给我汇报一下那边的情况吗？"
+
+"Yeah, I'm just glad we've managed to get in touch with other humans." Clearing his voice, Alex continued. "It's been twenty-one days now since the first humans, Nerv employees I should say, started returning. The city is mostly intact, but, the water levels of the river Spree which runs  
+"是的，我很高兴我们终于能和其他人类联系上了。" 亚历克斯清了清嗓子，继续说道。"从第一批人类，也就是 Nerv 员工开始返回算起，已经过去二十一天了。城市大部分完好无损，但是，流经此地的施普雷河的水位已经
+
+through Berlin have risen, so certain sections of the city have flooded, but this is also where people started returning from. Currently we have a little more than five hundred people here, and most of our efforts were initially devoted to securing food and other supplies. Afterwards, we began wondering about the possibilities of other humans, particularly in Tokyo-3 living and decided to try contacting you. Owing to the coalition of nations attack against us however, and our surrender, both our computers and power generators were taken off line, and we've only just managed to get both online within the past three days.  
+柏林的水位已经上升，因此城市的某些区域被淹没了，但这也是人们开始返回的地方。目前我们这里有五百多人，最初我们大部分精力都用于确保食物和其他物资。之后，我们开始考虑其他人类的可能性，特别是在东京-3 的生活，并决定尝试联系你们。然而，由于各国联盟对我们的攻击以及我们的投降，我们的电脑和发电机都被关闭了，直到最近三天才刚刚恢复在线。
+
+"Do you have stable food production?"  
+“你们有稳定的食物生产吗？”
+
+"As it stand, we're currently rationing things, but if civilians start returning, we're not sure how we'll fair."  
+“目前我们正在实行配给制，但如果平民开始返回，我们不确定会怎么样。”
+
+"We've already got civilians on our end returning, but all of them so far have been fisherman."  
+"我们这边已经有平民返回，但目前为止都是渔民。"
+
+"What we need is people with agriculture experience more than anything. Most of our people are engineers. But what are things like on your end? What happened to Gendo Ikari? Why isn't he in charge? I've heard of you Major Katsuragi, and Dr. Akagi, and I can assume that you know the most about what happened in Tokyo-3."  
+"我们最需要的是有农业经验的人。我们大多数人都是工程师。但你们那边情况如何？碇源堂怎么了？他为什么不是负责人？我听说过你，葛城美里少校，还有赤木律子博士，我猜你们最了解第三新东京市发生了什么。"
+
+"How much do you know?"  
+"你知道多少？"
+
+"If you mean about Third Impact the Evangelions, and the Angels, then I suppose I know the same as you did. I wasn't part of the team that initially developed the Evangelions, but I was part of the team that helped with Unit 02's development. What happened at Tokyo-3 though when it was attacked?"  
+"如果你指的是第三次冲击、EVA 和使徒，那我想我知道的和你差不多。我并非最初开发 EVA 团队的成员，但我参与了二号机的研发工作。不过，东京-3 遭受攻击时发生了什么？"
+
+Misato paused and glanced over at Ritsuko. She just shrugged however; there didn't seem to be any problem telling him the entire story, so Misato recounted everything she could remember, and what she had been told about the attack on Tokyo-3.  
+美里顿了顿，瞥了一眼律子。律子只是耸了耸肩；似乎告诉他整个故事并无不妥，于是美里尽可能回忆并讲述了关于东京-3 被攻击的一切她能记得的和她所被告知的内容。
+
+When she was finished, Alex was silent on the other end for a moment before he confirmed something.  
+她讲完后，亚历克斯在电话那头沉默了一会儿，然后确认了一些事情。
+
+"And this is After Impact then?"  
+"那么这就是‘后冲击’之后的情况了？"
+
+"Yes." "是的。"
+
+"But you have no idea why humans have returned?"  
+"但你并不知道人类为何会重返？"
+
+"We think there is something at work which we don't understand which has either planned all this out, or is moving things as we speak, but we don't know why we have returned or how."  
+"我们认为有一种我们尚未理解的力量在起作用，它可能早已策划了这一切，或者正在我们说话间推动事态发展，但我们不知道我们为何回归，也不知道是如何回归的。"
+
+"...And I assume that you have realized what the date is?" asked Alex quietly.  
+"...而我想你已经意识到今天是什么日子了？" Alex 轻声问道。
+
+"...We have," said Misato, "but currently only three people including myself know of this."  
+"...我们确实知道，" Misato 说，"但目前只有包括我在内的三个人知道这件事。"
+
+"It looks like I was right in keeping that to myself," mumbled Alex. "So what are your plans currently?"  
+"看来我保密是对的，" Alex 喃喃自语，"那么你们目前有什么计划？"
+
+"Food production is still the most important, but once we have that at sustainable levels, we plan on restoring Tokyo-3's infrastructure."  
+"粮食生产仍然是最重要的，但一旦我们达到了可持续的水平，我们计划重建第三新东京市的基础设施。"
+
+"We have similar goals, though food is the most pressing concern."  
+"我们的目标相似，尽管食物是最紧迫的问题。"
+
+"I think once the civilians return, you won't have to worry about that. From what we've seen, whatever force brought us back, is also assisting us."  
+"我认为一旦平民们返回，你就不必担心这个问题了。从我们所见的情况来看，无论是什么力量让我们回来，它也在帮助我们。"
+
+"I hope that's true," said Alex.  
+"我希望那是真的," 亚历克斯说。
+
+They continued talking with each other for nearly an hour. Discussing the possibility of joint operations, or simple visits, but they each had their own problems to worry about currently. Eventually, they settled on discussing changes once a week and left it at that, but Misato had one last thing to add.  
+他们继续交谈了将近一个小时。讨论联合行动或简单访问的可能性，但他们各自目前都有自己的问题需要担心。最终，他们决定每周讨论一次变化，并就此达成一致，但美里还有最后一件事要说。
+
+"Have you heard anything from the United States facility in Massachusetts?"  
+"你有没有听到马萨诸塞州美国设施的任何消息？"
+
+"No, and I was going to ask you the same actually, but I take that to mean you haven't either?"  
+"没有，我正想问你同样的问题，但我想这意味着你也没有？"
+
+"No, and if by chance they do try and contact you, do not answer under any circumstances. We have reason to believe that they may have leaked information about us to the coalition of nations. If Berlin is back, then it's enough to assume that the site in Massachusetts is as well."  
+"没有，如果他们碰巧试图联系你，无论如何都不要回应。我们有理由相信他们可能已经向国家联盟泄露了关于我们的信息。如果柏林回来了，那么可以假设马萨诸塞州的站点也是如此。"
+
+"Very well, I'll keep that in mind."  
+"很好，我会记住的。"
+
+Saying their goodbyes, both Misato and Alex returned to their duties, but Misato quickly turned to Ritsuko and asked, "So, what do you think?"  
+告别完毕，Misato 和 Alex 各自返回岗位，但 Misato 很快转向 Ritsuko 问道：“那么，你怎么看？”
+
+"I was gonna ask you the same thing, but it seems like we can trust him."  
+“我本来也想问你同样的问题，但看来我们可以信任他。”
+
+"I was thinking the same thing, but it's probably best to keep a couple things to ourselves." Misato had deliberately left out anything referring to Shinji's abilities during the battle since this was still a subject that not many people knew about.  
+“我也是这么想的，但最好还是保留一些事情不对外说。”Misato 故意没有提及战斗中 Shinji 的能力，因为这个话题目前仍鲜为人知。
+
+"Well, I'll check back in with Alex in a week. How much of the Geofront has been rebuilt?"  
+"嗯，我一周后再跟亚历克斯联系。第三新东京市地下区域的重建进度如何？"
+
+"Dogma is mostly repaired, though we haven't checked the very lowest levels yet, so we can't be sure. Other that, the Geofront needs some repairs to its foundation due to Unit 01 tearing up the soil, and of course the hole from the N2 bomb needs repairing, but that will take several months. With more civilians returning everyday, we may be able to speed up things if they are engineers or construction workers."  
+"多哥玛基地基本修复完毕，不过我们还没检查到最底层，所以不能完全确定。除此之外，由于零号机破坏了地基，地下区域需要一些修复工作，当然还有 N2 炸弹造成的那个大洞也需要修补，但这可能需要几个月的时间。随着越来越多的平民返回，如果有工程师或建筑工人，我们或许能加快进度。"
+
+"Things are progressing smoothly so far."  
+"目前进展还算顺利。"
+
+"If the United States facility is up and running however, we need to be careful. Seele could be taking action soon."  
+"但如果美国的设施已经启动，我们就得小心了。Seele 可能很快就会采取行动。"
+
+"What can they do from across the ocean though?"  
+"他们隔着大洋能做什么呢？"
+
+"Launch fighters with tactical nukes for starters."  
+"首先，可以发射携带战术核弹的战斗机。"
+
+"Are you suggesting we start preparing defenses for ourselves?"  
+"你是建议我们开始为自己准备防御措施吗？"
+
+"It's only a thought, but I don't think they'll go that far to destroy us."  
+"这只是个想法，但我认为他们不会走那么远来摧毁我们。"
+
+"I'll have to consider it I suppose," sighed Misato, adding it to her list of things to keep in mind. They knew they weren't the only humans on earth anymore, but humanity still had a long ways to go before it returned to its glory days.  
+"我想我得考虑一下，"米萨托叹了口气，把它加到了她需要记住的事情清单上。他们知道地球上不再只有人类，但人类要回到昔日的辉煌，还有很长的路要走。
+
+---
+
+Five days later, on the 20th of April, Misato received an urgent communications from Ritsuko. She hasn't specified what it was, only that Misato's presence was required, and that not even Kaji could come. So, before the sun had even appeared on the horizon, Misato was stepping into the jeep she frequently drove, and sped her way to the Geofront.  
+五天后，即 4 月 20 日，美里收到了律子发来的紧急通讯。她没有具体说明是什么事，只要求美里必须到场，甚至连加持都不能来。于是，在太阳尚未升起的地平线前，美里便踏上了她常开的那辆吉普车，疾驰向地底都市。
+
+Misato could tell from Ritsuko's voice that something was wrong. She hadn't said what, but the waver in her voice was undeniable. Had the United States branch tried to contact them? Had Seele been involved somehow? Questions continued erupting in Misato's mind, right up until she stepped out of the elevator and into the command center.  
+从律子的声音中，美里能感觉到出了问题。她虽未明说，但声音中的颤抖不容忽视。是美国分部试图联系他们了吗？还是 Seele 插手了？疑问在美里脑海中不断涌现，直到她走出电梯，步入指挥中心。
+
+Ritsuko was standing beside one of the main consoles, her eyes roving over the screen, and she didn't even notice Misato until she stood beside her.  
+律子正站在一台主控制台旁，目光在屏幕上扫视，直到美里站到她身边，她才注意到。
+
+"What's wrong?" asked Misato. "Is it something to do with Seele?"  
+"怎么了？" 美里问道。"是和 Seele 有关吗？"
+
+"No, and I almost wish it was. Just under an hour ago, the Magi detected an anomaly which they identified as pattern blue."  
+"不，我倒希望是。就在不到一小时前，MAGI 探测到了一个异常，它们识别为蓝色模式。"
+
+Misato froze, thinking that she had misheard. "Ritsuko, the Angels are-"  
+美里僵住了，以为自己听错了。"律子，使徒们——"
+
+"Supposed to be gone, I know, but they may not be either. Tabris was supposed to be the last one, but the Magi are correct. It was only for a brief moment, but it's been confirmed."  
+“本该消失了，我知道，但他们也可能还在。塔布里斯本该是最后一个，但贤者们是正确的。虽然只是短暂的一瞬，但已经得到了确认。”
+
+"Where at?" asked Misato, trying to keep calm.  
+“在哪里？”美里问道，努力保持冷静。
+
+"North of Kyoto about ten miles."  
+“京都以北大约十英里处。”
+
+Misato didn't say anything, running this alarming information through her head. An Angel here? But why now of all times? It didn't make any sense. And why Kyoto and not Tokyo-3?  
+美里没有说话，脑海中反复思考着这条令人震惊的消息。天使在这里？但为什么偏偏是现在？这毫无道理。而且为什么是京都而不是第三新东京市？
+
+"Ritsuko, what are we gonna do about this?"  
+“律子，我们该怎么办？”
+
+"...I was actually hoping you had an answer, because I've no idea how to handle this. No Evangelions means we haven't the power to suppress it, and even if we did, there isn't any children which fit the criteria required to pilot one."  
+“……我其实也希望你能有答案，因为我完全不知道如何应对。没有 EVA 意味着我们没有力量去压制它，即使有，也没有符合驾驶条件的孩子。”
+
+"So what do we do?"  
+"那我们该怎么办？"
+
+Sighing, Ritsuko said, "The way I see it, we have two options. We can either ignore this, pretending that it never happened and hope for the best, or we can send a specialized team to investigate this."  
+叹了口气，律子说：“依我看，我们有两个选择。要么我们对此视而不见，假装它从未发生过，并期待最好的结果，要么我们可以派遣一个专门的团队去调查这件事。”
+
+"I don't like either option. Leaving the first aside, how would we explain going to Kyoto?"  
+“这两个选项我都不喜欢。先不说第一个，我们去京都该怎么解释呢？”
+
+"Make something up of course, if we go that route. If an Angel were to come here suddenly, it would spell the end of what we've accomplished. Wide spread panic, people killing each other, though of course we may all die."  
+"当然得编个理由，如果我们走那条路的话。如果一个天使突然来到这里，那将是我们所成就的一切的终结。大规模的恐慌，人们互相残杀，虽然我们可能都会死。"
+
+"So you're saying we have no other option but to investigate this?"  
+"所以你是说我们别无选择，只能调查这件事？"
+
+"Basically," replied Ritsuko with a small smile.  
+"基本上是这样，" 赤木律子带着一丝微笑回答道。"
+
+Misato didn't know how to deal with this situation, and for the first time, wished that they still had the Evangelions. It was impossible to fight an Angel without them after all. Even so, they needed to know more about this either way, especially if it posed a threat to them.  
+美里不知道该如何应对这种情况，这是她第一次希望他们还拥有使徒。毕竟，没有使徒是不可能与天使战斗的。即便如此，他们无论如何都需要了解更多关于这个存在的信息，尤其是如果它对他们构成威胁的话。
+
+"I'll need to assemble a team then, people that have had experience during the attack and that can follow orders to the letter. It'll need to be a small team, eight people at the most, and well outfitted."  
+“那么，我需要组建一个团队，由那些在袭击中有经验并且能够严格遵守命令的人组成。团队必须小，最多八个人，并且装备精良。”
+
+"Weapons?" “武器？”
+
+"Precautionary at the most; the conventional weapons we possess won't even phase an Angel. Can you get me a list of the most experienced people that have returned?"  
+"最多只是预防性的；我们拥有的常规武器对使徒根本不起作用。你能帮我列出那些最有经验的人员名单吗？"
+
+"I'll get on it, but it sounds as though you plan on taking part in this as well."  
+"我这就去办，但听起来你似乎也打算亲自参与这次行动。"
+
+"I do. I'm not gonna bunker down here and wait to hear reports."  
+"没错。我不会躲在这里坐等报告的。"
+
+Ritsuko looked like she disapproved of this, but didn't say anything further on the subject, only nodding.  
+律子看起来对此并不赞同，但没有进一步发表意见，只是点了点头。
+
+---
+
+The following day, Misato had ten people in her tent, the eight that she had selected based on the roster that Ritsuko had drawn up, and one other person who she rather hadn't known of this.  
+第二天，美里在自己的帐篷里召集了十个人，其中八人是根据律子制定的名册挑选的，还有一个人是她之前并不知晓的。
+
+The eight men were all in there thirties, with the leader of the group nearly forty. They were all dressed casually for now, but that would change as soon as they set out. Basic combat gear had been chosen that emphasized movement over protection. They were there to investigate after all and not fight a war.  
+这八名男子年龄都在三十岁左右，小组的领导已近四十。他们目前穿着随意，但一旦出发，着装就会改变。选用的基本战斗装备侧重于机动性而非防护性。毕竟，他们的任务是调查而非作战。
+
+Misato went over the operation, giving very minute details about everything. It was strictly on a need to know basis, so all of them were in the dark until they got close to there destination. While each was given a radio, they were only used for communicating with each other or her.  
+美里详细地讲解了行动方案，每一个细节都交代得非常清楚。这是基于必要知晓的原则，所以他们直到接近目的地之前都一无所知。虽然每个人都配备了一台无线电，但它们仅用于彼此之间或与她进行通讯。
+
+After giving her orders, she told them to go wait until she was done dealing with a few things and after they left, she rounded on the other person who had been waiting for her.  
+下达完指令后，她让他们先去等待，直到她处理完一些事情。在他们离开后，她转向了另一个一直在等她的人。
+
+"What are you doing here Kaji?" asked Misato clearly irritated.  
+“你在这里做什么，加持？”美里明显带着不悦问道。
+
+"What, no thanks for tagging along?"  
+"怎么，不感谢我一路跟着吗？"
+
+"Did Ritsuko put you up to this?"  
+"是律子让你来的吗？"
+
+"You guessed right, and I can't blame her for telling me. She was worried about you, as am I."  
+"你猜对了，我不能怪她告诉我。她担心你，我也一样。"
+
+"So no matter what I say, you plan on following me?"  
+"所以无论我说什么，你都打算跟着我？"
+
+"Yeah." "嗯。"
+
+"Whatever. If you're set, then let's get going."  
+"随便你。如果你决定了，那我们就出发吧。"
+
+Leaving the tent, they stepped into Misato's jeep and started it. Misato didn't bother with combat gear like the eight soldiers, and only had a sidearm which she had stashed in the glovebox. Kaji brought a sidearm with him as well, but neither believed that they'd be required to use it.  
+离开帐篷，他们上了美里驾驶的吉普车并启动了引擎。美里没有像那八名士兵一样穿戴战斗装备，只带了一把藏在手套箱里的手枪。加持也带了一把枪，但两人都不认为会需要用到它。
+
+Leaving the campsite, they drove into what remained of downtown Tokyo-3 to the spot they had agreed to meet with the soldiers. There would be three vehicles, two of which were Humvee's with light armor plating used by the opposing soldiers during the attack on Nerv. It could stop low caliber bullets, but anything else would rip through it like paper. They had been prepared in secret so as not to alarm the rest of the population or create unnecessary questions, so they were meeting them at this undisclosed location.  
+离开营地后，他们驱车前往残存的第三新东京市中心，到达了与士兵们约定的会合地点。那里将有三辆车，其中两辆是配备轻型装甲板的悍马车，这些车在攻击 NERV 时被敌方士兵使用。它能抵挡低口径子弹，但其他任何东西都能像撕纸一样穿透它。他们秘密准备了这些车辆，以免引起其他民众的恐慌或产生不必要的疑问，因此选择在这个未公开的地点会面。
+
+As Misato drove around the corner where she had specified the location however, she immediately stopped on the brake, bringing the jeep to a sudden stop. Something was clearly wrong, and Misato didn't need to tell this to Kaji.  
+然而，当美里驾车绕过她指定的地点时，她立刻踩下刹车，让吉普车突然停了下来。显然出了问题，而美里无需向加持说明这一点。
+
+Eight vehicles were all parked on the street, but there was clearly something missing. Getting out of the jeep, Misato and Kaji walked over to the vehicles and peered passed them, when Misato suddenly swore.  
+八辆车都停在街上，但明显少了些什么。美里和加持下了吉普车，走到那些车旁，透过车隙望去，美里突然咒骂了一声。
+
+"God damn it," she groaned.  
+"该死," 她咕哝道。
+
+The two Humvee's which should have been parked waiting to leave, and the eight soldiers were no where in sight.  
+本应停在那儿等待出发的两辆悍马车，以及那八名士兵，却不见踪影。
+
+"Fuck!" Misato shouted, her voice bellowing to the sky. Where the hell were they? Running back to the jeep, she grabbed the satellite radio out of the jeep and tried contacting.  
+"操！" 美里大喊，声音响彻云霄。他们到底在哪儿？她跑回吉普车，抓起车上的卫星无线电试图联络。
+
+"This is Misato! Where the fuck are you?" Unfortunately, all she got was static.  
+“我是美里！你他妈到底在哪儿？”不幸的是，她只听到一片静电噪音。
+
+Chucking the radio back into the jeep, she grabbed the gun out of her glovebox, and using the butt, smashed the windows in of the eight vehicles that were left there, hoping to find some evidence. All the casual clothes that the soldiers had been wearing earlier were discovered, but there was no note or anything for where they had gone.  
+她把无线电扔回吉普车里，从手套箱里抓起枪，用枪托砸碎了剩下的八辆车的车窗，希望能找到一些线索。士兵们之前穿的便服都被发现了，但没有任何字条或线索表明他们去了哪里。
+
+Grabbing the radio again, she call Ritsuko multiple times until she was nearly screaming before Ritsuko finally picked it up.  
+她再次拿起无线电，多次呼叫律子，直到几乎要尖叫起来，律子才终于接听。
+
+"Misato what-" "美里，什么——"
+
+"My team is gone! Disappeared! They took the Humvee's and left!"  
+"我的团队不见了！消失了！他们开走了悍马车，就这么走了！"
+
+"Slow down Misato. Tell me what happened."  
+"慢点说，美里。告诉我发生了什么。"
+
+"Because of you pushing Kaji onto me, the eight soldiers disappeared with the Humvee's before I got here."  
+“因为你把加持推给我，那八名士兵和悍马车在我来之前就消失了。”
+
+Ignoring what Misato said about Kaji, Ritsuko asked, "Have you tried contacting them on the radio."  
+无视美里关于加持的话，律子问道：“你有没有试着用无线电联系他们？”
+
+"What do you think I just tried before I contacted you!?"  
+“你以为我联系你之前没试过吗？！”
+
+"So what are you suggesting, desertion?"  
+"那么你是在建议，逃跑吗？"
+
+"I don't know, and they can't know where to even go since I never told them."  
+"我不清楚，而且他们也不知道该去哪儿，因为我从未告诉过他们。"
+
+"Is it possible that they learned somehow?"  
+"有没有可能是他们通过某种方式得知了呢？"
+
+"I don't think so but-"  
+"我不这么认为，但是——"
+
+Misato paused, suddenly having an idea.  
+美里顿了一下，突然有了一个主意。
+
+"Ritsuko, you said before that the computers log every time that they're used. Can you check something for me?"  
+"律子，你之前说过电脑每次使用都会被记录。你能帮我查一下吗？"
+
+Understanding what she meant, Ritsuko hurriedly checked, and came back with the bad news.  
+理解了她的意思，律子急忙检查，回来时带来了坏消息。
+
+"Yesterday, at eleven at night, there was an unauthorized log. During this time, there was a communication log between someone at the command center, and an outside source. Unfortunately I can't pull it up. The other side deleted any traces of the conversation."  
+“昨天晚上十一点，有一个未经授权的登录记录。在这段时间内，指挥中心某人与外部来源之间有通讯记录。不幸的是，我无法调出记录。对方删除了对话的所有痕迹。”
+
+"We should have been more careful," said Misato in anger. "This is likely related to Seele."  
+“我们应该更小心些，”美里愤怒地说，“这很可能与 Seele 有关。”
+
+"It seems so. But what does Seele hope to gain from this?"  
+"看来是的。但 Seele 希望通过此举获得什么呢？"
+
+"I don't know, but I intend to find out. Keep digging and see if you can find anything about the source of the communication, I've got some catching up to do."  
+"我不清楚，但我打算查明真相。继续深入挖掘，看看能否找到通信来源的线索，我得抓紧时间补上进度。"
+
+"Got it," said Ritsuko. "明白了，" 赤木律子说道。"
+
+Disconnecting the call, Misato jumped into the jeep and started the car, putting the gun back in the glovebox. Kaji followed, who had been silent so far, but now he spoke his mind.  
+挂断电话后，美里跳上吉普车启动引擎，将枪放回手套箱。加持一直沉默不语，此刻他开口了。
+
+"You may want to keep that nearby as you might need it."  
+“你或许应该把它放在手边，可能会用得上。”
+
+"You don't think it'll come to that, do you?"  
+“你不觉得会到那一步，对吧？”
+
+"It's possible that all the soldiers are involved in this, or it might just be one of them. If so, the commanding officer would be the most likely. Either way, it's best not to take any chances."  
+可能所有士兵都参与了此事，也可能只是其中一人。若是后者，指挥官最有可能。无论如何，最好不要冒险。
+
+Agreeing with this judgment, Misato kept the gun on the dash of the jeep as she sped passed the abandoned vehicles.  
+同意这一判断，美里将枪放在吉普车的仪表盘上，疾驰过废弃的车辆。
+
+---
+
+There was a certain nervous energy that filled the two Humvee's as they barreled there way along the highway separating Tokyo-3 and Kyoto, something which the leader couldn't help but notice. The sergeant had been employed at the Nerv branch in Tokyo-3 for five years, and he was close to pushing forty now. He had been part of the peace keeping force within the United Nations before being reassigned to work at Nerv, and while Nerv had its own personal security team, it employed very few soldiers.  
+两辆悍马沿着分隔东京-3 和京都的高速公路疾驰，车内弥漫着一种紧张的气氛，这让领队不禁注意到。这位中士在东京-3 的 NERV 分部工作了五年，如今已接近四十岁。他曾在联合国维和部队服役，后被调至 NERV 工作。尽管 NERV 有自己的安保团队，但雇佣的士兵并不多。
+
+Glancing around the Humvee, he examined the three others that were with him. He knew them of course, though this was only with regards to their accomplishments and past. He had been part of a very small team that had defended the command center during the attack on Nerv, but had never entered combat with the people here. They didn't know him, and he didn't know them, but so was the way things played out. Still, as the commanding officer, they were required to follow him, even if they didn't agree with his decisions.  
+环顾悍马车内的四周，他审视着与他同行的另外三人。当然，他对他们有所了解，但这仅限于他们的成就和过去。他曾是那支极小的队伍的一员，在 NERV 遭受攻击时保卫了指挥中心，但从未与这里的这些人并肩作战。他们不了解他，他也不了解他们，但事情就是这样发展的。尽管如此，作为指挥官，他们必须服从他的命令，即便他们不同意他的决定。
+
+The initial problem of course came with Major Katsuragi's orders. He had to silence her somehow, at least to prevent any radio chatter. To do this, once all of them had geared up and were waiting for her to arrive, he decided to tell them the truth of this operation, that they were investigating the possibility of an Angel being found. Sometimes the truth, even if it was undesirable was the best way to gain trust. While some questioned him, he answered that the major had given him the extra details beforehand, and that she requested him to relay her orders to them once gathered. This raised some questions, but they believed their superiors orders. In doing so, he was able to turn off all the radios to prevent any of them checking this explanation of his.  
+当然，最初的问题源自葛城美里少校的命令。他必须设法让她保持沉默，至少要防止无线电通讯中的嘈杂。为此，在他们全副武装并等待她到来之际，他决定向他们透露这次行动的真相——他们正在调查发现天使的可能性。有时，即便真相不尽如人意，却是赢得信任的最佳途径。尽管有人提出质疑，他解释说少校事先向他透露了更多细节，并要求他在集合后传达她的命令。这引起了一些疑问，但他们还是相信了上级的命令。借此，他得以关闭所有无线电设备，以防他们核实他的解释。
+
+Still, investigating the possibility of an Angel wasn't something the others had expected, and they were doing whatever they could to keep there mind of it. Some chewed gum, some smoked, while some simply fidgeted in their seats. This was all fine as most soldiers, however much they would deny it, would be nervous going into combat. But a job was a job, and if they could get all the antsy feelings out beforehand, so much the better. He didn't need to deal with a mental breakdown.  
+尽管如此，调查天使存在的可能性并非其他人所预料，他们正竭尽所能不去想这件事。有人嚼口香糖，有人抽烟，还有人只是坐在座位上不安地动来动去。这都没问题，因为大多数士兵，无论他们多么否认，上战场前都会紧张。但工作就是工作，如果能事先消除那些焦虑感，那就更好了。他不需要处理精神崩溃的问题。
+
+Time was not on his side however, and he knew he only had about ten minutes to carry out the mission he had received before Major Katsuragi interfered.  
+然而，时间并不站在他这边，他知道自己只有大约十分钟来执行接到的任务，之后葛城美里少校就会介入。
+
+---
+
+Misato nearly rolled the jeep multiples time as she sped along the corners doting the highway between Tokyo-3 and Kyoto. Kaji tried to calm her down several times, but this seemed to only anger her further. She was seething at how she could have let this happen. The sergeant had something else he intended to do, some other orders that he had received. Even if Seele was involved with this, what did they hope to accomplish by viewing this Angel? It didn't make any sense!  
+美里驾驶吉普车在东京-3 与京都之间的高速公路上疾驰，几乎多次翻车。加持试图安抚她几次，但这似乎只会让她更加愤怒。她对自己如何让这种情况发生感到愤怒。这位中士还有其他打算，收到了其他命令。即使 Seele 与此事有关，他们希望通过观察这个天使实现什么目的？这毫无意义！
+
+Maybe there was something in Kyoto that Seele wanted? Was it possible that one of the Mass-Produced Evangelions had somehow ended up there, or worse, had Unit 01 finished its battle there? If that was true, then they would have seen more destruction leading to Kyoto, but the landscape was largely intact. No, it had to be something else.  
+或许京都有什么东西是 Seele 想要的？会不会是某台量产型 EVA 不知怎么到了那里，或者更糟，初号机在那里结束了战斗？如果真是那样，通往京都的路上应该会有更多破坏痕迹，但眼前的景象基本完好无损。不，一定是别的原因。
+
+She has the catch up to the Humvee's. She wasn't sure what she could accomplish with only herself and Kaji, but maybe she could persuade them to turn back from whatever they were trying to accomplish. If it came to armed combat, she wasn't sure how useful two handguns would be against soldiers that had training ingrained into their very souls.  
+她紧追着悍马车。不确定仅凭自己和加持能做些什么，但也许能说服他们放弃正在执行的任务。如果演变成武装冲突，她不确定两把手枪对上那些将训练融入灵魂的士兵能有多大作用。
+
+---
+
+More than an hour later, the two Humvee's entered the city limits of Kyoto. The last portion of the drive had been far easier than expected as the road ways were largely clear of cars that had been pushed off to the side. The sergeant wondered about this, but didn't mention it to the others.  
+一个多小时后，两辆悍马车驶入了京都市区。最后一段路程比预想的要轻松许多，道路上的车辆大多被推到了一旁。中士对此感到疑惑，但没有向其他人提及。
+
+Merging onto a different highway, they started heading north. The sergeant had the coordinates and he directed the driver, one of the other soldiers in the direction to head. Soon, civilization began to disappear behind them and farmland sprung up alongside them.  
+他们驶入另一条高速公路，开始向北行进。中士掌握着坐标，他指示司机——另一名士兵——朝指定方向前进。很快，文明景象在他们身后逐渐消失，农田开始在两侧涌现。
+
+They drove for another five minutes before the sergeant ordered the driver to turn off, taking an off ramp up and taking a right onto a two lane road. The area here was wide open, with farmland stretching on either side of them. Driving for another five minutes, they passed a sign indicating they were entering a small town.  
+又行驶了五分钟后，中士命令司机驶离主路，上了一条匝道并向右转入一条双车道道路。这里地势开阔，两侧都是农田。再行驶五分钟，他们经过一个指示牌，显示即将进入一个小镇。
+
+"Five minutes out," declared the sergeant. Sticking his hand out the window, he gestured with his hand to the Humvee behind them that they were five minutes away from the site. Including himself, the other seven soldiers started preparing, checking their automatic rifles, the gear that was strapped to them, and assisting each other as needed. The nervousness was starting to disappear, replaced with a cold calm.  
+“还有五分钟，”中士宣布道。他伸出窗外，用手势向后面的悍马车示意，他们距离目的地还有五分钟。包括他在内，其他七名士兵开始准备，检查自动步枪，检查身上的装备，并相互协助。紧张感逐渐消退，取而代之的是一种冷静沉着。
+
+Taking a left, they entered the small town, hardly paying attention to the small buildings they passed. Ascending a small hill, they entered a residential area, but quickly turned right, and up another hill. Passing under a group of trees, the houses disappeared from their sight, and trees lined them on either side, rows of them going up into the hills above them. Driving for another minute, the first Humvee turned right onto a narrow road.  
+向左一拐，他们进入了这座小镇，几乎没留意沿途的小建筑。爬上一座小山丘，他们进入了住宅区，但很快又向右转，继续上坡。穿过一片树林，房屋从视线中消失，两侧树木成排，沿着山坡向上延伸。又行驶了一分钟，第一辆悍马右转驶入一条狭窄的小路。
+
+"Thirty seconds," said the sergeant, simultaneously gesturing out the window to the Humvee behind them.  
+“三十秒，”中士说道，同时向窗外示意他们后面的悍马车。
+
+It was almost time.  
+时机将近。
+
+---
+
+Misato turned onto the highway, gunning the jeep forward and directing it northward. She hadn't seen any sign of the Humvee's, but while passing the many cars which were crunched against the guardrail on the way here, she felt that something was amiss. Even if the Humvee's had managed to push the cars off to the side, it would have slowed them down considerably. So what was the answer to this then?  
+美里驶上高速公路，猛踩油门让吉普车向前疾驰，朝北行进。她并未见到悍马车的踪影，但沿途经过许多撞上护栏的汽车时，她感到有些不对劲。即便悍马车设法将这些车辆推到一旁，也必定会大大减缓速度。那么，这背后的答案又是什么呢？
+
+"Hey Kaji?" “喂，加持？”
+
+"Hmm?" “嗯？”
+
+They had been relatively silent with each other while Misato drove, but now she wanted to talk.  
+在美里驾驶的过程中，两人相对沉默，但现在她想开口交谈。
+
+"...If something happens to one of us-"  
+"...如果其中一人出了什么事——"
+
+"Don't mention something like that. Besides, I'm starting to get a feeling of deja vu that I don't like. Just continue driving. Whatever happens, happens."  
+"别提这种事。再说，我开始有种不喜欢的既视感。继续开车吧。无论发生什么，都会发生的。"
+
+Misato glanced over at him briefly before returning her eyes to the road. They were almost there Misato knew, but she was slightly afraid of what she might find when they got there.  
+美里短暂地瞥了他一眼，随后又将目光转回路面。他们就快到了，美里心里清楚，但她对到达目的地后可能发现的事情感到一丝恐惧。
+
+---
+
+The two vehicles slowly descended the hill. The soldiers were now on heavy alert, ready for anything which might suddenly try and attack them, but the sergeant was relatively calm. His eyes were locked on a house barely visible through a group of trees at a fork at the bottom of the hill.  
+两辆车缓缓驶下山坡。士兵们此刻高度戒备，随时准备应对可能突然发起的攻击，但中士相对镇定。他的目光紧锁着山脚下岔路口处，透过一片树木隐约可见的一座房屋。
+
+They turned left slowly, seven weapons pointed out of the various windows of the Humvee's, looking through the dense trees.  
+他们缓慢地向左转去，七支武器从悍马车的各个窗户伸出，透过浓密的树木搜寻着。
+
+"I think I see something," suddenly said one of the soldiers near the sergeant.  
+“我觉得我看到了什么，”突然间，中士旁边的一名士兵说道。
+
+"Pull into the driveway here," said the sergeant checking the magazine in his rifle one final time.  
+“在这里开进车道，”警官一边说，一边最后一次检查步枪中的弹匣。
+
+The two vehicles pulled into the driveway, parking alongside each other. The house in front of them was two stories and had grey siding with two windows facing the driveway. The yard was moderate in size, but they hardly noticed these things. All eyes were locked on a figure standing in the middle of the driveway.  
+两辆车驶入车道，并排停下。他们面前的房子是两层楼，灰色的外墙，车道方向有两扇窗户。院子大小适中，但他们几乎没注意到这些细节。所有人的目光都锁定在车道中央的一个身影上。
+
+The soldiers slowly stepped out, each of their guns pointed at the figure. None of them had expected this development, none except the sergeant at least. Striding forward ahead of the other seven, he kept his gun trained at his target and asked in a loud voice that everyone in the vicinity could hear.  
+士兵们缓缓下车，每个人的枪口都指向那个身影。他们中没有人预料到这种情况，至少除了警官之外。他大步走在其他七人前面，枪口始终对准目标，用响亮的声音问道，让附近所有人都能听到。
+
+"Are you the Angel we were told to capture?"  
+"你们就是我们要抓捕的天使吗？"
+
+The person didn't respond, but the other seven soldiers tensed themselves, gripping their guns tighter. They hadn't expected the Angel to be a person, but they didn't rightfully understand what  
+那人没有回应，但其他七名士兵却紧张起来，握紧了手中的枪。他们没想到天使会是个人，但首先他们并不真正理解天使是什么。他们的脑海告诉自己，这很可能是天使伪装成人类来欺骗他们。紧张的气氛弥漫在空气中，他们盯着站在面前的身影。那身影看起来就像一个年轻人，但他们都能感觉到他有些不对劲。汗水开始从他们的脸上滴落，他们慢慢地将瞄准点调整到那身影的头部。
+
+an Angel was in the first case. It was likely trying to deceive them by posing as a human is what their minds told them. Tension filled the air as they stared at the figure standing before them. The figure looked just like a young man, but they all could tell that something was off about him. Sweat began dripping down their faces, and they slowly adjusted their aim to the figures head.  
+那人没有回应，但其他七名士兵却紧张起来，握紧了手中的枪。他们没想到天使会是个人，但首先他们并不真正理解天使是什么。他们的脑海告诉自己，这很可能是天使伪装成人类来欺骗他们。紧张的气氛弥漫在空气中，他们盯着站在面前的身影。那身影看起来就像一个年轻人，但他们都能感觉到他有些不对劲。汗水开始从他们的脸上滴落，他们慢慢地将瞄准点调整到那身影的头部。
+
+"I'll ask again," started the sergeant, "are you-"  
+"我再问一次，" 中士开口道，"你是不是-"
+
+"I'm only going to give you one chance. Leave now," spoke the figure quietly, but his voice carried in such a way that each of the soldiers knew. The figure had his hands in his pockets, but his words spoke volumes of what would happen if they tried anything.  
+"我只给你们一次机会。现在离开，" 那身影平静地说，但他的声音却传达到了每一个士兵的心里。那身影双手插在口袋里，但他的话语却预示着如果他们轻举妄动将会发生什么。
+
+Many of the soldiers paused, second guessing what they were doing. What about Major Katsuragi? Shouldn't they wait for her until they do anything?  
+许多士兵停下了脚步，开始重新考虑他们的行动。卡苏拉吉少校怎么办？他们不应该等她来了再做决定吗？
+
+The sergeant felt the other soldiers beginning to waver, but he had to give them a push forward.  
+中士感觉到其他士兵开始动摇，但他必须推动他们前进。
+
+"We can't wait for Major Katsuragi, we don't have the time to consider other options. This...thing, who knows what it could do if we let it go. Tokyo-3 will be in danger if we don't stop it here and now."  
+我们不能等待葛城少校了，我们没有时间考虑其他选项。这个...东西，谁知道如果我们放任它，它会做出什么。如果我们不立即阻止它，第三新东京市将面临危险。
+
+The sergeant knew otherwise of course. What his real purpose here was something which he couldn't tell the other soldiers. He had received orders to capture, or failing to do so, kill this thing, this human at all costs, even if it meant sacrificing everyone here.  
+当然，中士知道实际情况并非如此。他真正的任务是什么，他不能告诉其他士兵。他接到的命令是无论如何都要捕获，或者如果失败，不惜一切代价杀死这个东西，这个人，即使这意味着牺牲这里的所有人。
+
+He had heard rumors, rumors about the special existence of this thing that Nerv had done its best to conceal from the lower employees. He had other superiors however, who told him the truth. Everything was just a ruse, a fabrication that Nerv had created, but this thing was still special, that much was apparent. He was ordered to capture it, or if that proved impossible, to kill it. He had no idea what his superiors wanted this thing for, but that it was unique in someway. He had been promised a special position in the new world that they would be creating, and he was sick of his current life.  
+他曾听说过一些传闻，关于 Nerv 竭力向底层员工隐瞒的特殊存在。然而，他还有其他上级，他们向他透露了真相。这一切都只是一个幌子，Nerv 制造的假象，但这个东西确实非同寻常，这一点显而易见。他被命令要捕获它，如果这不可能，就消灭它。他不知道上级为何需要这个东西，但它显然有某种独特之处。他被许诺在新世界中将获得一个特殊位置，而他早已厌倦了现在的生活。
+
+"It seems like you won't listen," said the figure with a small sigh.  
+“看来你是不会听劝了，”那个身影轻叹道。
+
+At his words, a strong wind blew through the driveway, shaking the pine trees and bushes. His shaggy hair blew in the wind, and his eyes seemed to darken suddenly.  
+他的话音刚落，一阵强风穿过了车道，摇动着松树和灌木丛。他蓬乱的头发在风中飘扬，眼神似乎突然变得深邃。
+
+Readjusting his own rifle, the sergeant aimed his gun at the figures head. Motioning to the men behind him with a jerk of his head, eight fingers slowly depressed the trigger on eight automatic rifles and...  
+中士重新调整了自己的步枪，瞄准了那个身影的头部。他猛地一甩头示意身后的士兵们，八根手指缓缓压下扳机，八支自动步枪随即...
+
+Fired. 开火。
+
+Bullets erupted out of the cylindrical barrels of the automatic rifles, each carving a path through the air towards the figures head. In less than a second, the figures head would explode, brain matter and skull fragments scattering across the ground and painting the garage door behind him a bloody red. At least, this is what was supposed to happen.  
+子弹从自动步枪的圆筒形枪管中喷涌而出，每一颗都在空中划出轨迹，直奔那身影的头部。不到一秒钟，那身影的头部就会爆炸，脑浆和头骨碎片四溅，将他身后的车库门染成血红色。至少，这是本该发生的情景。
+
+A flash of orange exploded around the person, a dome projecting around him. The bullets instantly vaporized as they came in contact with the strange energy. The soldiers had barely fired their guns before they were given time to react to this absurd phenomenon, but the person in front of them was still standing, unscathed. He hadn't even moved, gave no inclination that he had even done anything, but the strange dome surrounded him completely; his hands were still in his pockets.  
+一团橙色光芒在人影周围炸裂，形成一个穹顶笼罩着他。子弹一接触到这奇异的能量便瞬间汽化。士兵们刚开枪不久，就有时间对这荒谬的现象做出反应，但眼前的人依旧毫发无损地站着。他甚至没有动弹，没有任何迹象表明他做了什么，但那奇异的穹顶完全包围了他；他的双手依然插在口袋里。
+
+"Don't let him faze you! Keep firing!" bellowed the sergeant.  
+“别被他吓到！继续射击！”中士咆哮道。
+
+The initial shock quickly wore off, and the soldiers continued firing, bullets whizzing through the air. For all their attempts though, it was altogether pointless. The orange dome destroyed the bullets the moment they came in contact with it.  
+最初的震惊很快消退，士兵们继续开火，子弹在空中呼啸而过。尽管他们竭尽全力，但这一切都是徒劳的。橙色穹顶在子弹接触到它的瞬间便将其摧毁。
+
+Spending all their bullets in the first magazine, they began reloading, but this was when the person struck back. Like a whip with a mind of its own, a large spear thrust out from the middle of the dome, weaving its way at high speeds until it struck its target, impaling one of the soldiers that was having difficulty reloading. His body was raised up in the air, blood dripping out from the large hole in his abdomen, and then flung almost casually away where it struck a nearby tree. His body lay motionless as blood continue flowing.  
+在第一个弹匣的子弹全部耗尽后，他们开始重新装填，但就在这时，那个人发起了反击。如同拥有自主意识的鞭子，一根巨大的长矛从穹顶中央猛地刺出，高速穿梭，直至击中目标，贯穿了一名正在艰难装弹的士兵。他的身体被高高举起，腹部的大洞中血液不断滴落，随后被随意地甩开，撞上了附近的一棵树。他的身体一动不动地躺在那里，鲜血继续流淌。
+
+"Shit!" exclaimed the sergeant. "Spread out and surround him! Don't bunch up!"  
+“该死！”中士喊道，“散开包围他！不要聚在一起！”
+
+The soldiers spread out in all directions, surrounding the person, continuing to fire their guns. A hail of bullets erupted around the figure, but the orange dome protected him from every direction.  
+士兵们向四面八方散开，包围了那个人，继续开火。子弹如雨点般在人影周围爆发，但橙色的穹顶全方位保护着他。
+
+'Shit!' thought the sergeant as he watched the impossible sight before his eyes. 'This wasn't how things were supposed to be. What the fuck were those people saying that it was all a lie!?'  
+“该死！”中士心中暗想，目睹眼前这不可思议的景象。“事情不应该是这样的。那些人说的都是谎言吗！？”
+
+As he thought this however, gaps started to appear in the dome. The soldiers briefly thought that they had finally begun wearing down the strange dome and began adjusted their guns to aim for the narrow gaps that opened up, but each time the bullets were deflected as the gaps were shorn up. It was like they were being taunted, or that the strange orange energy had a mind of his own.  
+然而，正当他这么想时，穹顶开始出现裂缝。士兵们短暂地以为他们终于开始削弱这奇怪的穹顶，开始调整枪口瞄准那些狭窄的裂缝，但每次子弹都被弹开，裂缝随即被修复。仿佛他们在被嘲弄，又或者那奇怪的橙色能量有自己的意识。
+
+Next second, the dome shifted. From the center, a circular blade similar to a saw blade whipped outward, still connected to the dome, darting its way to one of the soldiers. Screaming wildly, a flurry of bullets assaulted the orange blade, but to no avail. The blade bisected the soldiers body at the waist, cutting him cleanly in half. A fountain of blood erupted from the two halves that were cut, as his upper half went flying through the air, his finger still squeezing the trigger where it eventfully fell to the pavement with a thud. His lower body fell backwards, the legs sticking outwards, blood dribbling down the driveway.  
+下一秒，穹顶移动了。从中心向外甩出一个圆形的锯齿刀片，仍与穹顶相连，直奔其中一名士兵而去。士兵尖叫着，密集的子弹疯狂地射向橙色刀片，却无济于事。刀片从腰部将士兵的身体干净利落地一分为二。两截断体喷涌出鲜血，上半身飞向空中，手指仍紧扣着扳机，最终砰的一声落在路面上。下半身向后倒下，双腿向外伸着，血沿着车道缓缓流下。
+
+The remaining soldiers began to be panic stricken, firing wildly. This thing, this monster was picking them off without a second thought almost casually as though he didn't even view them as living beings. How were they supposed to fight something like this? How was anybody supposed to stand up and deal with this situation?  
+剩下的士兵开始陷入恐慌，胡乱开枪。这个怪物，这个恶魔，几乎毫不犹豫地一个个将他们击倒，仿佛视他们为无生命的存在，轻松得如同儿戏。他们该如何对抗这样的东西？任何人又该如何面对这样的局面？
+
+Quick as a flash, there thoughts were interrupted as a large wall surged outward from the center of the orange dome, crashing against another soldier. The gun he held in his hand was crushed instantly, and the arm which held it spiraled backwards as a sickening crunch filled the air. He didn't even have enough time to scream while the bones in his arm were crushed, since his entire body was being pulverized like a butcher flattening a piece of raw beef.  
+快如闪电，这些思绪被突然打断，一道巨大的墙壁从橙色圆顶中心向外涌出，猛烈撞击另一名士兵。他手中的枪瞬间被压碎，握枪的手臂扭曲着向后折断，令人作呕的碎裂声充斥着空气。他甚至来不及尖叫，因为手臂的骨头被碾碎，整个身体就像屠夫压平一块生牛肉一样被粉碎。
+
+The wall sent his body flying backwards, the lightweight armor he had offering no protection. His torso contorted, the organs inside him crushed under the immense pressure, and his ribcage collapsed on itself, puncturing both his lungs. Blood spilled out of his mouth, or what was vaguely recognized as a mouth since his face was nothing but a bloody husk. His skull fragmented in multiple places, the blood vessels in his eyes popping as he went reeling backwards through the air. He was dead before he hit the ground.  
+墙壁将他的身体向后抛飞，他身上的轻型装甲毫无保护作用。他的躯干扭曲，内脏在巨大压力下被压碎，肋骨塌陷刺穿了双肺。血液从他的口中涌出，或者说那勉强被认作是嘴的部分，因为他的脸已经变成了一团血肉模糊的残骸。他的头骨多处碎裂，眼球中的血管爆裂，他在空中翻滚着向后飞去。他还没落地就已经死了。
+
+The remaining five soldiers watched this in horror, unable to move or make a sound as they watched another of there comrades fall. Regaining his senses, one of the soldiers screamed in fury, and then grabbed something that was attached to his vest.  
+剩下的五名士兵惊恐地目睹了这一幕，动弹不得，也无法发出声音，眼睁睁看着又一位战友倒下。恢复理智后，其中一名士兵愤怒地尖叫起来，随即抓住了系在背心上的某样东西。
+
+"Die you fucking monster!" he screamed as he pulled the pin on of the frag grenade, reeling his arm back to throw it. Suddenly, he felt a feeling of weightlessness assault his right arm. Why should that be? He had thought he swung his arm forward intending to throw the grenade at the monster in front of him, but now he didn't feel anything from his right side.  
+“去死吧，你这该死的怪物！”他尖叫着拔掉手榴弹的保险销，挥臂准备投掷。突然，他感到右臂一阵失重。为什么会这样？他本以为自己挥臂向前，打算将手榴弹扔向面前的怪物，但现在他右半边什么感觉都没有了。
+
+His eyes caught something in the air, and he glanced upwards just in time to see something spinning through the air and then land at his feet. It was an arm and at the end was a grenade tightly clutched in a hand. Wondering where it had come from, he glanced to his right side, his face draining of color as he saw flesh and bone sticking out of his shoulder. As realization dawned on him, he opened his mouth to scream, and then the grenade went off at his feet.  
+他的目光捕捉到空中的一物，抬头一看，正好看到某样东西在空中旋转，然后落在他脚边。那是一条手臂，末端紧握着一颗手榴弹。他疑惑这手臂从何而来，转头看向右侧，脸色顿时煞白，只见肩头血肉模糊，骨头外露。意识到真相的他张嘴欲喊，随即手榴弹在他脚边爆炸。
+
+His severed arm instantly disappeared, and the flesh on his legs was ripped off, fragments of metal from the grenade peppering his entire body. Coupled with the blood flowing from his shoulder, he dropped to the ground and passed out from blood loss, dying in a matter of seconds.  
+他那被斩断的手臂瞬间消失，双腿上的肉被撕裂，手榴弹的金属碎片如雨点般洒满全身。加上从肩膀流出的鲜血，他倒在地上，因失血过多而昏迷，几秒钟内便死去。
+
+This wasn't the only casualty as a result of the grenade. The soldier who was closest to him, who stood perhaps ten feet away wasn't caught in the initial blast, but the shrapnel from the explosion peppered his body all the same.  
+这并非手榴弹造成的唯一伤亡。离他最近的士兵，或许站在十英尺外，虽未被最初的爆炸波及，但爆炸产生的弹片同样如雨点般击中他的身体。
+
+Chunks of metal cut into his arms, legs, and gouged out deep rivets in his face leaving it pockmarked. He screamed shrilly as blood began pouring down his face, turning his vision red as it got into his eyes. He dropped his gun and his hands grabbed at his neck were a deep laceration had cut into his throat; blood began bubbling out of his mouth, silencing his screams.  
+金属碎片切入他的手臂、双腿，并在脸上挖出深深的凹痕，使其布满坑洞。他尖叫着，鲜血开始从脸上倾泻而下，染红了视线，渗入眼中。他丢下枪，双手紧抓着颈部一道深切的割伤，鲜血从口中冒泡而出，他的尖叫声随之沉寂。
+
+Completely paralyzed with fear over his impending death, he didn't even notice the multiple orange blades which came whipping towards him until they had pierced his chest, destroying his internal organs and effectively putting him out of his misery.  
+在即将到来的死亡恐惧中完全瘫痪，他甚至没有注意到那些疾驰而来的多把橙色刀刃，直到它们刺穿他的胸膛，摧毁了他的内脏，有效地结束了他的痛苦。
+
+In less than five minutes since they had started shooting, the soldiers numbers had dropped from eight, to three. The sergeant couldn't believe how quickly there numbers had dwindled.  
+不到五分钟，自从他们开始射击以来，士兵的数量已经从八人减少到三人。中士无法相信他们的数量竟然如此迅速地减少。
+
+Sure, he had been prepared to lose a few, but not in this short of a time. This creature in front of him was inhuman, and he knew now that he had been lied to.  
+当然，他已准备好牺牲一些，但不是在这么短的时间内。眼前这个生物非人般的存在，他现在明白自己被欺骗了。
+
+The words 'retreat' were half formed on his lips before he heard a sudden scream come from his left. One of the soldiers had clearly lost what little mental restraint he had maintained, and had dropped his gun, running at full sprint back to the Humvee's parked at the end of the driveway. The second soldier followed without so much as a glance at him, and the sergeant admitted that the operation was a failure.  
+‘撤退’二字刚到嘴边，他便听到左侧突然传来一声尖叫。一名士兵显然已失去了仅存的心理防线，丢下枪，全速跑向停在车道尽头的那辆悍马。第二名士兵紧随其后，连看都没看他一眼，中士不得不承认这次行动失败了。
+
+Turning and running back himself, he watched the first soldier jump into the driver seat, and thought that he would immediately gun in backwards. The second soldier clambered up into the cab, swinging alongside the driver, and then the sergeant reached the vehicle, jumping in as well. There were only two seats in front, but the sergeant didn't even want to waste an extra second to open the side doors. All three of them were crammed into the front, the second soldiers sitting on the center console.  
+他转身跟着往回跑，看到第一名士兵跳进驾驶座，心想他会立刻倒车。第二名士兵爬上车，坐在驾驶座旁边，随后中士也赶到车旁，跳了进去。前排只有两个座位，但中士连浪费一秒钟去开侧门的时间都不愿意。三个人挤在前排，第二名士兵坐在中央控制台上。
+
+"Get us the fuck out of here!" screamed the sergeant to the first soldier. The words were hardly even out of his mouth when the engine started, and the Humvee jerked backwards.  
+“他妈的带我们离开这儿！”中士冲第一名士兵吼道。话音未落，引擎已经启动，悍马猛地向后一退。
+
+A shrill sound enveloped their ears however, as though someone had just taken nails to a chalk board, and the three of them stared ahead horror struck at what they saw. Though the figure hadn't bothered moving an inch even when they had scrambled to leave, the orange dome was no longer surrounding him, but a narrow blade of energy had traveled towards them at a speed they couldn't perceive, and had pierced the Humvee's engine compartment.  
+一阵刺耳的声音笼罩了他们的耳朵，仿佛有人正用指甲刮擦黑板，三人惊恐地盯着眼前的一幕。尽管那身影在他们仓皇逃离时未曾移动分毫，原本环绕他的橙色光罩已不复存在，取而代之的是一道细长的能量刃，以他们无法察觉的速度朝他们袭来，穿透了悍马车的引擎舱。
+
+"It won't move!" said the first soldier as his foot repeatedly stomped the gas.  
+“动不了了！”第一名士兵说着，脚不停地猛踩油门。
+
+The sergeant opened his mouth to say something, but he was cut short as his eardrums rumbled again, and a certain wetness assaulted the left side of his face. At first he thought his left side was sliced into and that his blood was now spraying all over the Humvee, but he was only half wrong.  
+中士张嘴想说些什么，但他的耳膜再次轰鸣，左脸颊突然感到一阵湿润。起初他以为自己的左脸被切开，鲜血正喷溅在悍马车内，但他只猜对了一半。
+
+The soldier next to him, the one who had been sitting in the center, his skull had been cloven in two, bone fragments and brain matter splattering the windshield. The top of the Humvee had been cut into, the metal sliced easily as though it was butter until the narrow blade of orange energy cut into the soldiers skull.  
+他身边的士兵，那个一直坐在中间的，头骨被劈成了两半，骨头碎片和脑浆溅满了挡风玻璃。悍马车顶被切开，金属如同黄油般轻易被划开，直到那道细长的橙色能量刃切入士兵的头颅。
+
+The sergeant felt bile coming up his throat as he saw the steady drip of blood flowing from the dead soldiers skull, but the driver had had enough. He scrambled out of the Humvee, falling face first onto the pavement and began running as far away as he could.  
+中士感到喉咙涌上一股胆汁，他看到从阵亡士兵头颅中不断滴落的血，但驾驶员已经受够了。他慌忙爬出悍马，脸朝下跌在路面上，然后开始尽可能远地逃跑。
+
+The sergeant rolled out moments later, and quickly glanced over at the second Humvee, but the engine compartment had already been destroyed at some point. Glancing back up the driveway, he saw the figure still standing there, hands deep in his pockets and a casual smirk on his lips. Air rushed by the sergeant, and he thought he felt something like a bullet narrowly miss his skull, but the figure wasn't aiming for him.  
+中士随后滚了出来，迅速瞥了一眼第二辆悍马，但引擎舱早已在某刻被摧毁。他回头望向车道，看到那身影依旧站在那里，双手深深插在口袋里，嘴角挂着随意的冷笑。一阵风掠过中士，他感觉像是子弹险些擦过他的头骨，但那身影并未瞄准他。
+
+The other soldier had long left the property of the house, running across the narrow road and into the row of trees on the other side. He zigzagged left and right, darting between trees,  
+另一名士兵早已离开房屋的领地，穿过狭窄的道路，跑进了对面的一排树木中。他左右穿梭，在树丛间疾驰，
+
+hoping that without a direct line of sight, he couldn't be injured; he didn't even notice that he had soiled his pants at some point during the past few minutes. Finally feeling that he had run far enough, he paused against a tree to catch his breath, and looked back over his shoulder. He couldn't even see a glimpse of the house or the road, and breathed a sigh of relief. Turning away from where he had come, he took one step, and then fell face forward into the dirt with a cry of pain.  
+希望在没有直接视线的情况下，自己不会受到伤害；他甚至没有注意到自己在过去几分钟的某个时刻弄脏了裤子。终于觉得跑得够远了，他靠在一棵树上喘口气，回头望去。他连房屋和道路的一丝踪影都看不见，松了一口气。转身离开来时的方向，他迈出一步，随即面朝下摔倒在泥土中，发出痛苦的叫喊。
+
+He couldn't pick himself up and didn't understand why this was until he managed to role over, and saw both his legs lying on the ground two feet away from him. He screamed again, but his voice was cut off sharply as a flash of orange erupted in front of him, and his head went sailing through the air.  
+他无法站起身来，直到勉强翻过身，才明白原因——他的两条腿躺在离他两英尺远的地面上。他再次尖叫，但声音戛然而止，一团橙色火焰在他面前爆发，他的头颅随之飞向空中。
+
+When the scream was cut of suddenly, the sergeant knew that he was the only one remaining. Slowly, he turned to face the figure who was still standing at the top of the driveway. There was no longer any dome surrounding him, almost as though he was inviting the sergeant to attack him. At this point, the sergeant knew that he would never leave here alive, but at the very most, he could do his damnedest to kill this thing.  
+当那声尖叫戛然而止时，中士明白他是唯一幸存的人了。他缓缓转身，面对着仍站在车道顶端的身影。原本环绕他的穹顶已不复存在，仿佛在邀请中士发起攻击。此刻，中士深知自己无法活着离开此地，但至少，他可以竭尽全力去消灭这个怪物。
+
+Swinging his gun around in a flurry, he squeezed the trigger, aiming only around the person without precisely aiming at his face. Flashes of orange erupted one after another as each of the bullets fired from his gun was struck down. It was almost like he was predicting the trajectory of the bullets and destroying them as such. This monster just kept defying the sergeants common sense more and more each time.  
+他急速挥动枪支，紧扣扳机，只是大致瞄准那人周围而非精确对准其面孔。橙色的闪光接连爆发，每一颗从枪中射出的子弹都被击落。这几乎像是他能预判子弹的轨迹并如此摧毁它们。这个怪物一次又一次地挑战着中士的常识。
+
+Running forward, he continued spraying bullets wildly, some of which ricocheted off the driveway, or struck the walls of the house. He was inching closer now to the figure, nearly within distance to strike with his fist. When he reached a certain distance, the orange dome came down, sealing him inside of a closed space along with the monster. Now only a mere five feet away from his target, he squeezed the trigger, believing that no being could possibly stop a bullet from this distance.  
+他向前狂奔，继续胡乱喷射子弹，有些子弹在车道上弹开，或是击中了房屋的墙壁。他正逐渐逼近那个身影，几乎到了可以用拳头攻击的距离。当他到达一定距离时，橙色的穹顶落下，将他和怪物一起封闭在一个密闭空间内。现在距离目标仅剩五英尺，他紧扣扳机，相信没有任何生物能从这个距离阻止子弹。
+
+A flash of orange came down suddenly in front of him, and his gun exploded. Before the bullet had even exited the barrel, it was sliced in two, the gun falling apart in his hands. The firing mechanism had sparked the bullet forward, but since the bullet was sliced, it exploded, and the sergeants fingers were caught in the ensuing explosion, the tips of his right hand mangled into bloody lumps.  
+突然间，一抹橙色闪现在他面前，他的枪爆炸了。子弹甚至还没离开枪管就被切成两半，枪支在他手中解体。击发机构将子弹向前推进，但由于子弹被切开，它爆炸了，中士的手指被卷入随之而来的爆炸中，右手尖端被炸成血肉模糊的肉块。
+
+The sergeant screamed, and took a step back, but adrenaline was pumping through his body with no thought to his own safety. His left hand darted down, grabbing the pistol holstered at his hip. He swung it up, intending to fire, but before he even had a chance to squeeze the trigger, it was cut in two.  
+中士尖叫着，后退了一步，但肾上腺素在他体内奔涌，全然不顾自身安危。他的左手迅速向下，抓住了挂在腰间的枪套里的手枪。他举起枪，准备射击，但还没来得及扣动扳机，枪就被切成了两截。
+
+Not relenting, he screamed in fury, threw the broken gun to the side, and swung his fist forward. His fist made contact, but it wasn't with the person in front of him. An orange wall sprang up in front of him, which his fist made contact with. Instantly, the bones in his hand fractured, and the skin surrounding the bone peeled away, blood beginning the flow from the multiple wounds.  
+他毫不退缩，愤怒地尖叫着，将破损的枪扔到一旁，挥拳向前。他的拳头击中了某物，但并非眼前的人。一道橙色的墙壁在他面前升起，他的拳头与之相撞。瞬间，他手上的骨头断裂，周围的皮肉剥离，鲜血从多处伤口涌出。
+
+Howling in pain, he instead aimed a kick high, but suddenly lost his balance and fell backwards. His equilibrium was thrown off as he kicked, and didn't realize that the leg he had been kicking with was no longer attached to his body, causing him to fall over. Screaming once again when he saw his detached leg lying beside him, he began crawling on his hands and knees away, but was of course still encased in the orange dome.  
+他痛苦地嚎叫着，改为高踢一脚，却突然失去平衡向后倒去。踢腿时他的平衡被打破，并未意识到踢出的那条腿已不再属于他，导致他摔倒在地。看到自己断腿躺在旁边，他再次尖叫，开始用手和膝盖爬行逃离，但当然仍被橙色穹顶困住。
+
+He felt searing pain in the back of his remaining leg, and saw that it was pierced by that same orange energy. Unable to move, all he could do was stare across the driveway to the humvee's and the bodies of the other soldiers. The driveway had long turned slick with blood.  
+他感到剩下那条腿的后部传来灼热的疼痛，发现已被那橙色能量刺穿。动弹不得的他只能凝视着车道对面那些悍马车和士兵的尸体。车道早已被鲜血浸透。
+
+Doing his best to turn around, he felt the muscles on his legs tearing as he turned to face the hateful monster. When he finally got turned around, he was surprised to see that the person had finally moved, and was now standing before him, looking down almost pitifully at him. This angered the sergeant immensely, thinking that this thing could even understand how he felt at this moment.  
+他竭尽全力转身，感觉到腿部肌肉在撕裂，当他终于转过身来面对那可憎的怪物时，惊讶地发现对方已经移动了位置，现在正站在他面前，几乎怜悯地俯视着他。这让中士极为愤怒，认为这东西甚至能理解他此刻的感受。
+
+"Fuck you," he managed to utter through half closed lips.  
+“去你妈的，”他勉强从半闭的嘴唇中挤出这句话。
+
+Next second several flashed appeared around him, and both his arms were pinned to the ground, orange stakes imbedded into his arms. At this point, his body was so numb with pain that he could barely feel anything at this point. His higher functions, namely his brain, we're finally shutting off.  
+下一秒，几道闪光出现在他周围，他的双臂被钉在地上，橙色的桩子嵌入他的手臂。此时，他的身体因疼痛而麻木，几乎感觉不到任何东西。他的高级功能，即大脑，终于开始关闭。
+
+He longed to spit on this persons face, but didn't think he had enough energy left. So he opened his lips to say something.  
+他渴望朝这人脸上吐唾沫，但觉得自己已没有足够的力气。于是他张开嘴唇，想说些什么。
+
+"Fuck yo-" “去你妈——”
+
+His chest was suddenly impaled, both his lungs crushed instantly, blood spewing out of his lips instead of words.  
+他的胸膛突然被刺穿，双肺瞬间被压碎，鲜血从唇间喷涌而出，代替了言语。
+
+"I did warn you to leave, though you didn't listen. So this is what happened," spoke the figure with a slight sigh as though he himself was weary with all this.  
+“我确实警告过你离开，虽然你没听。所以这就是结果，”那个身影略带叹息地说道，仿佛他自己也对这一切感到疲惫。
+
+The sergeant wasn't listening however, his eyes glazed over, death slowly approaching.  
+然而，中士并没有在听，他的眼睛呆滞无光，死亡正缓缓逼近。
+
+He didn't even feel any difference as the thin orange blade pierced his neck.  
+他甚至没有感觉到任何差异，那把细长的橙色刀刃刺穿了他的脖子。
+
+For the sergeant, darkness closed in on him. The trees fades, the house faded, even the figure in front of him faded until he was laying in a pool of his own blood surrounded only by darkness. He could only wait until he finally died, and closed his eyes, waiting for said moment. Finally, he felt white light pierce through his closed eyelids, and knew that he was dead...  
+对于这位中士来说，黑暗逐渐吞噬了他。树木模糊了，房子消失了，甚至连他面前的身影也逐渐淡去，直到他躺在一滩自己的血泊中，四周只剩下黑暗。他只能等待，直到最终死去，闭上了眼睛，等待那一刻的到来。终于，他感觉到白光穿透了他紧闭的眼睑，知道他已经死了...
+
+.
+
+..
+
+...
+
+...But his eyelids now opened. Sound and smell returned to him and while he couldn't move his body he could take in what surrounded him. But, it didn't make any sense as to why he was here. He...he had died...so why was that figure still standing there motionlessly with his hands in his pockets still?  
+...但他的眼睑现在却睁开了。声音和气味回到了他身边，尽管他无法移动身体，但他能感知周围的一切。然而，这一切都不合逻辑，他...他已经死了...那么为什么那个身影仍然一动不动地站在那里，双手插在口袋里呢？
+
+Suddenly, the sergeant vomited, while simultaneously his bladder emptied, soiling his pants. Around him, the other seven soldiers were lying on their backs or stomachs, each of them either vomiting, shitting, pissing themselves, or a combination of all three. Not a single one of them was injured, and all their guns lay forsaken on the ground beside them. The guns still had the initial magazine in them, and not a single bullet had been fired. How was this possible?  
+突然间，中士呕吐起来，同时他的膀胱也失禁了，弄脏了他的裤子。在他周围，其他七名士兵有的仰面朝天，有的趴在地上，每个人都在呕吐、拉屎、尿尿，或者三者兼有。他们中没有一个人受伤，所有的枪都丢弃在地上，枪里还装着最初的弹匣，没有一颗子弹被射出。这怎么可能呢？
+
+"So...I'll ask you once again. Leave, and don't come back," spoke the figure with a sigh.  
+"那么...我再问你一次。离开，不要再回来，" 那个身影叹息着说道。
+
+None of the soldiers had the ability to respond, each of them still remembering how they had each died.  
+士兵们没有一个能做出回应，他们每个人都还记得自己是怎么死的。
+
+"Though I suppose you won't be able to move right away. Either way, something else is coming."  
+"虽然我想你们一时半会儿也动不了。无论如何，有别的东西正在靠近。"
+
+After his words, moments later, the sound of an engine roaring could be heard from what appeared to be far away. The sound grew louder, and tires began screeching as the vehicle slowed down as it approached its destination. Seconds later, a vehicle swung into the driveway, but slammed the breaks when it saw the two Humvee's parked in front.  
+话音刚落，片刻之后，远处似乎传来了引擎的轰鸣声。声音越来越响，随着车辆减速接近目的地，轮胎开始发出刺耳的摩擦声。几秒钟后，一辆车驶入车道，但看到停在前面两辆悍马时猛地踩下了刹车。
+
+Misato and Kaji jumped out of the jeep and quickly glanced at each other, unsure what to expect. Each of them has their pistols drawn as were prepared for the worst, but something was bothering each of them. Slowly, they inched there way along the Humvee's, and then Misato saw the bodies of the soldiers sprawled on the pavement. At first she thought they were dead, but the moans that escaped there mouth disproved this. She noticed the vomit and smell of excrement, and questions began appearing in her mind, but Kaji brought her out of this.  
+美里和加持从吉普车上跳下，迅速对视一眼，不知将会遭遇什么。两人都拔出手枪，做好了最坏的准备，但心中都有所顾虑。他们缓缓沿着悍马车移动，随后美里看到了躺在人行道上的士兵们。起初她以为他们都死了，但那些从他们嘴里发出的呻吟声否定了这一点。她注意到呕吐物和粪便的气味，心中涌现出许多疑问，但加持将她拉回了现实。
+
+"...Misato..." mumbled Kaji, his gaze directed up the driveway, while his gun hung limply at his side.  
+“……美里……”加持低声说道，目光投向车道上方，手中的枪无力地垂在身侧。
+
+Slowly, Misato followed his gaze up, passed the collapsed soldiers, and to the person who stood at the top looking down on them with a slight frown on his face.  
+慢慢地，美里顺着他的目光向上看去，越过倒地的士兵，望向站在顶端俯视他们的人，那人脸上带着一丝皱眉的表情。
+
+"...Shin...ji...?" spoke Misato, not believing what she was seeing. But no, this couldn't be him, this person was far older, taller, and more mature it seemed. Shinji was only fifteen years old after all.  
+“...真...治...？”美里说道，不敢相信自己的眼睛。但不对，这个人看起来要年长得多，更高大，也更成熟。毕竟，真治才十五岁。
+
+"How do you know my name?" the person spoke suddenly.  
+“你怎么知道我的名字？”那人突然开口问道。
+
+"...Shinji...its me...Misato?" Some sort of expression seemed to pass over his face, but Misato couldn't tell what it was.  
+"...真嗣...是我...美里？" 某种表情似乎掠过他的脸庞，但美里无法分辨那是什么。
+
+"Are you with these soldiers?" he gestured to the men lying on the ground nearly comatose.  
+"你和这些士兵在一起吗？" 他示意那些躺在地上几乎昏迷的士兵。
+
+Misato opened her mouth to say something, but closed it slowly. She got the idea that Shinji had done something to these soldiers to make them like this, but she didn't know what. She still couldn't believe that Shinji was here, or why he was older, but she understood that Shinji was wary about them. Had the soldiers tried to do something?  
+美里张嘴想说些什么，但又慢慢闭上了。她隐约觉得真嗣对这些士兵做了什么，才让他们变成这样，但她并不清楚具体是什么。她仍然无法相信真嗣会在这里，或者为什么他看起来更年长，但她明白真嗣对他们有所戒备。是士兵们试图做了什么吗？
+
+The sergeant was listening in to this conversation even though his body still hurt to much to move. The Major knew this person, who she called Shinji, but he didn't seem to recognize her. He didn't understand what was happening between them, but he did potentially see a way out. In his peripheral vision however, he caught movement in the upstairs window, and saw the curtain flutter briefly. Was somebody else in the house?  
+尽管身体疼痛到无法动弹，中士仍在偷听这段对话。少校认识这个她称之为真嗣的人，但他似乎没有认出她。他不明白他们之间发生了什么，但他确实看到了一个可能的出路。然而，在他的余光中，他注意到楼上窗户有动静，窗帘短暂地飘动了一下。房子里还有其他人吗？
+
+"I'll ask again. Are you with these soldiers?"  
+“我再问一次。你和这些士兵是一伙的吗？”
+
+There was something stifling in the air now as the person spoke, and Misato felt like she was teetering on the edge of a cliff. What was wrong with Shinji? Why didn't he recognize her?  
+当那人说话时，空气中弥漫着一种压抑的气氛，美里感觉自己仿佛站在悬崖边上。真嗣怎么了？为什么他不认识她？
+
+"I'm going to assume from your silence, that you are, which means that you're just the same as them," he said gesturing to the soldiers. "I'll give you time to gather them up and leave, but if you try and approach me, or even talk to me, I'll-"  
+"我将从你的沉默中假设，你是，这意味着你和他们一样，"他边说边向士兵们示意。"我会给你时间召集他们离开，但如果你试图接近我，甚至和我说话，我就会-"
+
+He stopped short as the sound of a sliding door opened and closed sharply from the side of the house, and then running feet announced the presence of somebody else. Misato felt herself inhale sharply as she saw a woman with long red hair round the corner and march straight towards the man standing in the driveway.  
+他话音未落，侧边房子的滑动门突然打开又猛地关上，紧接着是急促的脚步声，预示着有其他人到来。Misato 感到自己倒吸了一口气，只见一个长发红发的女子绕过拐角，径直向站在车道上的男子走去。
+
+"What are you doing?" she asked pointedly towards the man, giving a brief glance in Misato's direction.  
+"你在做什么？"她直截了当地问那男子，顺便向 Misato 的方向瞥了一眼。
+
+"I thought I told you to stay inside until it was safe," he said with a frown.  
+"我以为我告诉过你，要待在屋里直到安全为止，" 他皱着眉说。
+
+"Things have changed," she said again pointedly.  
+"情况变了，" 她再次一针见血地说。
+
+"But what about-" "但那关于——"
+
+The woman with red hair silenced him with a look, and then glanced down the driveway towards Misato and Kaji standing there dumbstruck at the two arguing with each other. Slowly, the woman began walking towards them, giving a wide berth to the soldiers who still lay on the ground, but the man hadn't finished talking yet.  
+红发女子一个眼神就让他说不出话来，随后她瞥向车道尽头，看到美里和加持站在那里，目瞪口呆地看着两人争吵。女子缓缓向他们走去，绕开了仍躺在地上的士兵，但那男子还没说完话。
+
+"Asuka!" “明日香！”
+
+"Cool it Shinji. I'm fine," the woman spoke as she drew near to Misato.  
+“冷静点，真嗣。我没事，”女子走近美里时说道。
+
+She approached Misato, ignoring the man behind her who was still staring at Misato and Kaji. As she reached them, Misato saw that they were close to the same height now, and this somehow put it all in perspective. Even though she was older however, the face, the blue eyes, and the vivid red hair was all very familiar to her.  
+她走向美里，无视身后那个男人依旧盯着美里和加持的目光。当她走到他们面前时，美里发现她们现在几乎一样高了，这不知为何让一切变得清晰起来。尽管她年纪更大，但那张脸、那双蓝眼睛和那头鲜红的头发对她来说都非常熟悉。
+
+"It's good to see you again...Misato," spoke Asuka with a wide smile.  
+“再次见到你真好...美里。”明日香带着灿烂的笑容说道。
+
+Misato couldn't do anything but hug her, feeling tears form at the corners of her eyes, so pleased to see Asuka again.  
+美里除了拥抱她别无他法，感到眼角泛起泪花，再次见到明日香让她无比高兴。
+
+Behind them, Shinji frowned, but then let out a low sigh, scratching his shaggy black hair. Well, it seemed like they knew each other, so it wasn't a problem. Besides, Shinji thought Asuka had mentioned Misato's name before, and he had a vague memory of something he had seen in the past long ago.  
+在他们身后，真嗣皱了皱眉，随即发出一声低叹，挠了挠他那蓬乱的黑发。好吧，看来他们彼此认识，所以这不算问题。况且，真嗣记得明日香之前提过美里这个名字，他隐约记得很久以前似乎见过些什么。
+
+The sergeant took all this in from the moment the newest woman, Asuka, had appeared to now. Somehow, they all knew each other, but it didn't make any sense to him. One thing he did notice, was that his body had started moving however. Slowly, he could begin to feel life returning to his arms and legs, and anger started to surge through him. He had been humiliated beyond belief, and now only wanted to cause harm to the person who had done this. His rifle was too far away to reach, but he still had the pistol at his hip.  
+从最新的女人明日香出现的那一刻起，美里就一直观察着这一切。不知为何，他们似乎都互相认识，但这在他看来毫无逻辑。他注意到的一件事是，他的身体开始动起来了。慢慢地，他感觉到手臂和双腿恢复了知觉，愤怒也开始涌上心头。他感到前所未有的羞辱，现在只想对那个让他如此难堪的人进行报复。他的步枪太远了够不着，但他腰间还有一把手枪。
+
+Sitting up suddenly, he grabbed the pistol from his waist, and pointed it at Shinji. Misato and Kaji froze, and then Asuka turned around to see this spectacle, but didn't feel any fear, and simply watched how things would play out.  
+他突然坐起身，从腰间拔出手枪，指向真嗣。美里和加持僵住了，明日香转过身来看到这一幕，却并未感到恐惧，只是静静地观察事态的发展。
+
+"You do realize that is pointless," frowned Shinji as the sergeant pointed the gun at him.  
+"你难道不明白这是徒劳的吗？" 真嗣皱着眉头，当警官用枪指着他时。
+
+"That may be so, however-"  
+"或许如此，然而——"
+
+He swung the pistol around, and pointed it at Asuka who was behind him.  
+他挥动着手枪，转向身后，指向了站在他背后的明日香。
+
+"What about now?" he asked. "Even if I can't harm you in one way, I can certainly harm you in another way."  
+"那现在呢？" 他问道。"即使我不能以一种方式伤害你，我当然可以用另一种方式伤害你。"
+
+Shinji didn't move, but he felt a seething anger beginning to develop in his chest.  
+真嗣没有动，但他感到胸中开始酝酿一股愤怒。
+
+Asuka didn't move either, even though she was being threatened. After all, she trusted Shinji.  
+明日香也没有动，尽管她正受到威胁。毕竟，她信任真嗣。
+
+"Just one false move and I'll-"  
+"只要稍有差池，我就会——"
+
+The sergeant didn't get any further: the gun was split in two as,, coming apart in his hands. A flash of orange had erupted in front of him as Shinji had effortlessly used his AT-field to disarm him. The sergeant gaped wordlessly as the weapon crumbled, not believing what had happened.  
+中士话音未落，手中的枪便被一分为二，在他手中解体。一道橙光在他面前闪现，真嗣轻松地用 AT 力场将枪支拆解。中士目瞪口呆地看着武器化为碎片，难以置信所发生的一切。
+
+Kaji felt angry as well, and took half a step forward before Asuka held out her arm to stop him.  
+加持也感到愤怒，向前迈了半步，却被明日香伸出手臂拦住。
+
+"Let Shinji deal with this," she mumbled.  
+"让真嗣来处理这件事吧，"她咕哝道。
+
+Shinji did so, walking forward towards the sergeant, all sense of forgiveness disappearing from his eyes. When he was directly in front of the sergeant who was trying to move away from him, even though his legs didn't work, he let out a heavy sigh and said-  
+真嗣照做了，他向前走向那位中士，眼中所有的宽恕之意都消失了。当他直接站在试图从他身边挪开的中士面前时，尽管中士的腿并不听使唤，他还是重重地叹了口气，说道——
+
+"I can forgive you for threatening me, because honestly, you can't do anything to me. However," and here, his eyes flashed a deadly scarlet, "it's an entirely different thing if you threaten a person I love."  
+"我可以原谅你威胁我，因为老实说，你对我无可奈何。然而，"说到这里，他的眼睛闪过一丝致命的猩红，"如果你威胁到我爱的人，那就完全是另一回事了。"
+
+A flash of orange appeared in front of Shinji, and then like a guillotine, swung down to meet the sergeant. The sergeant screamed, and then fell backwards, his head hitting the driveway as his eyes rolled upwards into his head.  
+一道橙色闪光出现在真嗣面前，随即如断头台般猛地斩下，直击中士。中士尖叫一声，向后倒去，头部重重撞在车道上，双眼翻白，陷入昏迷。
+
+Silence engulfed the area, and even the other soldiers were silent after watching this unfold.  
+四周陷入一片死寂，就连其他士兵也在目睹这一幕后噤若寒蝉。
+
+"Shinji, you didn't," Misato finally spoke.  
+“真嗣，你不会真的……”美里终于开口道。
+
+"No, I didn't kill him, just knocked him out. Though I imagine his dreams are rather unpleasant right now."  
+“不，我没杀他，只是把他打晕了。不过我想他现在的梦一定相当不愉快。”
+
+Relaxing slightly, Shinji glanced over at Asuka. She was smiling at him slightly, and then walked over to him. When there eyes met, Misato could tell that many things had happened between them, and that they were far closer now then when they were only teenagers, but she was surprised when Asuka kissed Shinji briefly. Even Kaji had his mouth agape slightly at this.  
+稍微放松了一些，真嗣瞥向明日香。她正对他微微一笑，然后朝他走来。当他们的目光相遇时，美里能感觉到他们之间发生了许多事，如今他们比只是少年时亲近得多，但当明日香短暂地吻了真嗣时，她还是感到惊讶。甚至连加持都微微张大了嘴巴。
+
+"Thanks," said Asuka. “谢谢，”明日香说道。
+
+Shinji nodded, and then glanced back to where Misato and Kaji stood.  
+真嗣点点头，然后回头看向美里和加持所在的地方。
+
+"I suppose there are a lot of things to share, but for now we should-"  
+"我想有很多事情可以分享，但眼下我们应该——"
+
+He was about to mention what to do with the soldiers, but he was interrupted by the sound of the sliding door alongside the house opening again.  
+他正要说如何处理士兵们，却被房子旁边滑动门再次打开的声音打断了。
+
+Both Shinji and Asuka's eyes whipped over to the corner of the house, and then Asuka glanced quickly at Shinji before trotting away to where the sound had come from.  
+真嗣和明日香的眼神立刻转向房子的角落，随后明日香迅速瞥了真嗣一眼，便小跑着朝声音传来的方向去了。
+
+Misato and Kaji didn't know what to make of this, but Misato saw that Shinji's expression had turned rather stony.  
+美里和加持对此不知所措，但美里注意到真嗣的表情变得相当冷硬。
+
+Shortly, Asuka came around the corner, but she wasn't alone this time. As what came into view quickly appeared in Misato and Kaji's eyes, they both realized what they were seeing.  
+不久，明日香转过拐角，但这次她并非独自一人。当视线中的景象迅速映入美里和加持的眼帘时，他们立刻明白了眼前所见。
+
+In Asuka's arms was a small child of four years, that had shoulder length red hair and brown eyes.  
+在明日香的怀中是一个四岁的小孩，有着齐肩的红发和棕色的眼睛。
+
+Standing beside Shinji now, Asuka glanced over at him slightly worried, but the child in her arms was staring wide eyed at the soldiers lying on the ground, and Misato and Kaji who were standing several feet away from them.  
+此刻站在真嗣身旁，明日香略带忧虑地瞥了他一眼，但她怀中的孩子却睁大了眼睛，盯着躺在地上的士兵，以及站在几英尺外的美里和加持。
+
+Finally, Misato broke the silence and asked, "Shinji...Asuka...is that?"  
+最终，美里打破了沉默，问道：“真嗣...明日香...那是？”
+
+"Yes," said Asuka not looking at Misato, but now staring at the child clutched lovingly in her arms. "This is mine and Shinji's child, Alena."  
+“是的，”明日香没有看向美里，而是凝视着她怀中紧紧抱着的孩子，“这是我和真嗣的孩子，阿莲娜。”
+
+Shinji nodded wordlessly, his eyes focusing on the two people beside him, the two that he cared most about in the entire world.  
+真嗣默默地点头，目光聚焦在他身边的两个人身上，这是他在整个世界上最为关心的人。
+
+Across from them, Misato and Kaji stood motionlessly, letting this slowly sink in, but in a far corner of Misato's mind, she felt a sudden dread welling up inside her that she couldn't explain.  
+在他们对面，美里和加持一动不动地站着，让这一切慢慢沉淀，但在美里心灵的某个角落，她感到一种无法解释的突然恐惧在内心涌起。
+
+---
+
+**In the words of Deckard Cain, "Stay awhile and listen!" (Cause I'm gonna ramble)  
+正如迪卡德·凯恩所说，“稍待片刻，且听我言！”（因为我即将开始长篇大论）**
+
+**First off, Welcome to those of you joining in for the first time with this chapter. For those that have stuck with me through these past few years, Welcome Back. The second part of Two of Us is just starting, and I hope everyone got a decent shock about several things from this chapter.  
+首先，欢迎首次加入本章阅读的朋友们。对于那些多年来一直陪伴我的读者，欢迎回来。《我们俩》的第二部分刚刚开始，希望大家在这一章中对几件事情感到相当震惊。**
+
+**To put this in perspective, the initial workings of this chapter first began to formulate in my mind back in 2010 when I was writing Sorrowful Winter, and for those that have read that, yes Alena is the name I used for Shinji and Asuka's daughter back then, and it's the name that I stuck with all the way to this point.  
+为了让大家更好地理解，这一章最初的构思始于 2010 年，当时我正在写《悲伤的冬天》，对于读过那本书的人来说，是的，Alena 是我当时为真嗣和明日香的女儿取的名字，而且我一直沿用这个名字直到现在。**
+
+**As I began writing this however, the more and more I began to realize the scope in which this chapter would cover, as little things started cropping up through the cracks. I initially wanted Misato to learn about the passage of the seven years from seeing Shinji and Asuka, which would have been a much greater shock, but the thing with the computers and technology that was left over didn't seem realistic to just gloss over. Maybe it had something to do with me rereading The Stand in tandem to writing parts of this, but I'll leave it at that.  
+然而，随着我开始写作，我越来越意识到这一章所涵盖的范围，因为一些小事情开始从裂缝中冒出来。我最初想让美里通过看到真嗣和明日香来了解这七年的流逝，这本应是一个更大的震惊，但关于遗留下来的电脑和技术问题，似乎不太现实地一笔带过。也许这与我在写这部分时同时重读《穹顶之下》有关，但我就说到这里。**
+
+**This chapter is long, and some may call it absurdly long, but I ended up not finding a satisfactory spot to cut it in half, and I've had the ending planned out for months, which seems proper to have it end as it does. I can honestly say that I'll never have a chapter be this long again.  
+这一章很长，有人甚至会说它长得离谱，但我最终没找到一个满意的断点将其一分为二，而且我几个月前就计划好了结尾，觉得这样结束恰到好处。老实说，我以后再也不想写这么长的章节了。**
+
+**Anyway, I'll end things here, and go to sleep since I have to work tonight.  
+总之，我就此搁笔，去睡觉了，因为今晚还得上班。**
+
+**(As a side note, this chapter was written almost entirely on my phone, and while I've proofed it several times, it's very likely that it still has some great autocorrect errors (My favorite being dome to some)).  
+（顺便一提，这一章几乎全是在手机上完成的，虽然我校对过多次，但很可能还残留着一些令人捧腹的自动纠错错误（我最喜欢的例子是把'dome'错写成'some'）。）**

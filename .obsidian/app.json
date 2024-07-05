@@ -9,10 +9,11 @@
   "vimMode": false,
   "readableLineLength": true,
   "pdfExportSettings": {
+    "includeName": true,
     "pageSize": "A4",
     "landscape": false,
-    "margin": "1",
-    "downscalePercent": 65
+    "margin": "2",
+    "downscalePercent": 55
   },
   "rightToLeft": false
 }
