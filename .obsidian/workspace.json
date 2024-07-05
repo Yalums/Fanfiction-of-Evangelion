@@ -31,7 +31,8 @@
               }
             }
           }
-        ]
+        ],
+        "currentTab": 1
       }
     ],
     "direction": "vertical"
@@ -97,7 +98,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "TailoftheDevil - Angel.md",
+                "file": "kira862 - Spawn of Adam.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -114,7 +115,7 @@
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "TailoftheDevil - Angel.md",
+                "file": "kira862 - Spawn of Adam.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               }
@@ -137,7 +138,7 @@
             "state": {
               "type": "outline",
               "state": {
-                "file": "TailoftheDevil - Angel.md"
+                "file": "kira862 - Spawn of Adam.md"
               }
             }
           }
@@ -158,11 +159,11 @@
       "workspaces:管理工作区布局": false
     }
   },
-  "active": "854625221470a1b3",
+  "active": "d3b8f650bf594b32",
   "lastOpenFiles": [
+    "TailoftheDevil - Angel.md",
     "kira862 - Spawn of Adam.md",
     "kira862 - ❤️Two of Us.md",
-    "TailoftheDevil - Angel.md",
     "Tashikawa - Shinji, Asuka and The Last Angel.md",
     "AgentKaji - ❤️The Asuka Variations.md",
     "Bardic Jester - ❤️This Way.md",
