@@ -1,8 +1,9 @@
-[Panther2G](https://m.fanfiction.net/u/4474090/)
+[Panther2G](https://fanfiction.net/u/4474090/)
 
-天使战争已经结束。慎二和明日香因为彼此的帮助而活了下来。
-现在，他们正享受着拯救世界带来的好处： 能生活在这个世界上 但明日香还有最后一个不可告人的秘密......这个秘密将使他们更加紧密地联系在一起。
-这个秘密会让他们更加紧密地联系在一起
+The Angel War is over and past. Shinji and Asuka survived thanks to each other, and now are enjoying the benefits of saving the world: Getting to live in it. But Asuka has one last deep secret to reveal... one that will bind them together even more.  
+服装与游戏 天使战争已成为过去。真嗣和明日香因彼此而幸存，现在正享受着拯救世界的成果：得以在其中生活。但明日香还有一个深藏的秘密要揭露……一个将使他们更加紧密相连的秘密。
+
+---
 
 It had started with little things.  
 一切都是从小事开始的。
