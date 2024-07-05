@@ -1552,4 +1552,1667 @@ Her lips felt soft. That seemed to be the only thought that was running through 
 “我知道即使我说这不是看上去的那样你们也不会相信，但至少能相信是她先开始的吗？”
 
 ---
-### 
+### Chapter 7: Do You Remember Love?  
+第七章：你还记得爱吗？  
+
+Sitting, or rather, chained to a chair in the lowest level of the research laboratory's labyrinthian maze of corridors, Mana Kirishima was beaming. By all accounts, many other people would be, for want of a better phrase, crapping themselves.  
+坐在椅子上，更确切地说，是被锁在研究实验室迷宫般走廊的最底层，雾岛 Mana 正笑容满面。按常理，许多人可能会用一个更贴切的词来形容，那就是吓得屁滚尿流。
+
+But not Mana. And she wondered why he had always seen her as a bit of an oddball.  
+但 Mana 不是这样。她不禁好奇，为什么他总认为她有点古怪。
+
+"I suppose you're still in blissful shock over how good of a kisser I can be, huh?"  
+"我想你还在为我的吻技之高超而陶醉得目瞪口呆吧？"
+
+"Mana!" "真嗣！"
+
+"What? It's true isn't it? Why else are you bright red and trying your hardest not to to look at me in the eyes. Why is there a pyramid in your trousers, and why do Asuka and Rei look like they want to disembowel me from behind the bulletproof glass?"  
+"怎么了？这不是事实吗？不然你为什么满脸通红，还拼命不直视我。你裤子里怎么像藏了个金字塔，还有为什么明日香和丽在防弹玻璃后面看起来像要把我开膛破肚似的？"
+
+"Can we please stay on topic? I'm supposed to be here to interrogate you..." Shinji sheepishly mumbled, wondering if this really was a good idea.  
+“我们能请您保持话题吗？我应该在这里审问你的……” 真嗣尴尬地低声说道，心里怀疑这个主意是否真的靠谱。
+
+But if Misato, his parents and the tech crew all agreed that it was, then apparently they saw something in him that he wasn't seeing.  
+但如果美里、他的父母和科技团队都一致认为这是个好主意，那么显然他们在他身上看到了他自己未曾察觉的东西。
+
+The two sets of eyes watching his every move that were not particularly pleased he was locked in a room with Mana were making him feel incredibly uncomfortable though.  
+那两双紧盯着他一举一动的眼睛，尤其是当他与玛娜共处一室时，让他感到极度不自在。
+
+"What the hell is he doing?" Asuka forced through gritted teeth. She pressed a button next to a microphone in front of her.  
+“他到底在搞什么鬼？”明日香咬牙切齿地说道。她按下了面前麦克风旁边的一个按钮。
+
+"_CAN YOU PLEASE GET ON WITH IT STUPID SHINJI!? I'VE GOT BETTER THINGS TO DO TODAY THAN WATCH YOU FLIRT WITH THAT EXPLODING ASSHAT!_"  
+“你能不能快点，愚蠢的真嗣！？我今天还有更重要的事要做，没空看你和那个爆炸混蛋调情！”
+
+Looking less than amused, Shinji sighed deeply before continuing his failing interrogation. But before he even had the chance to open his mouth, Mana was straight back on the attack.  
+真嗣看起来并不怎么高兴，他深深地叹了口气，继续他那毫无进展的审问。但还没等他有机会开口，真奈就立刻展开了反击。
+
+"You know Shinji, all you gotta do is say those three magical words that every girl wants to hear, and I tell you absolutely everything."  
+"你知道吗，真嗣，你只需要说出那三个每个女孩都想听的神奇字眼，我就会毫无保留地告诉你一切。"
+
+"Like who you're working for?"  
+"比如你为谁工作？"
+
+"Who I'm working for, my three sizes, what I would be doing to you right now if it was you tied to this chair and how you would love every second of it..."  
+"我为谁工作，我的三围，如果现在是你被绑在这椅子上我会对你做什么，以及你会如何享受每一刻......"
+
+"_I'M GONNA RIP HER FACE OFF AND FRAME IT IN MY BEDROOM-Ack..._" He could distinctly hear Rei wrestling Asuka away from the microphone behind him, and sighed deeply again. If you lost a piece of happiness every time you sighed out loud, he should have been a depressed wreck years ago.  
+"我要把她脸撕下来挂在我卧室里-哎呀..." 他能清楚地听到丽在背后把明日香从麦克风前拉开，又深深地叹了口气。如果每次叹气都失去一份幸福，他多年前就该是个抑郁的废人了。
+
+"Mana... Today, you managed to basically blow up my school, almost killed two of my best friends-"  
+"真那... 今天，你基本上把我的学校炸了，差点害死我两个最好的朋友-"
+
+"_OH NO YOU DON'T! WE ARE NOT GETTING RELEGATED TO THE FRIEND ZONE THIS EARLY IN THE GAME!_" Somehow Asuka had managed to get back to the microphone.  
+"哦不，你休想！我们可不会这么早就被降级到朋友区！" 不知怎么的，明日香又回到了麦克风前。
+
+"_I agree with Soryu this time. We are_ _**more**_ _than just friends Shinji._"  
+"这次我同意惣流。我们不仅仅是朋友，真嗣。"
+
+Turning around to face the window the girls were irritating him from, Shinji glared at them both.  
+真嗣转过身，面对着那些让他心烦的女孩们所在的窗户，瞪了她们两个一眼。
+
+"Girls, I will do whatever you want me to for a week if you can let me finish what I'm supposed to be doing here. At some point, I would like to go home and eat something before some ungodly hour in the morning. Go and buy me a coffee or something."  
+"女孩们，如果你们能让我在这里完成我该做的事，我愿意为你们做任何事一周。在某个时候，我想回家吃点东西，而不是在凌晨某个不合理的时刻。去给我买杯咖啡什么的吧。"
+
+"_He likes Cafe au Lait, let's go Rei!_" And like that, the two girls sped off to the nearest vending machine in the facility, all smiles and evil giggles.  
+"他喜欢法式拿铁，我们去吧，丽！" 就这样，两个女孩笑着，带着一丝狡黠的窃笑，飞快地向设施里最近的自动售货机跑去。
+
+"Finally, some peace..." His thought process enjoyed the blissful seconds of quiet, before his mind reminded him he had something important to do.  
+"终于，有些宁静了..." 他的思绪享受着这宁静的几秒钟，直到他的脑海提醒他还有件重要的事情要做。
+
+Turning back around to face Mana on the chair, he wasn't expecting her to suddenly look so... depressed.  
+他转过身来再次面对椅子上的玛娜，没想到她突然显得如此...沮丧。
+
+Just like she had in those last few moments in the gym storage room.  
+就像她在体育馆储物间最后那几刻所做的那样。
+
+"Shinji..." Cerulean eyes looked up at him, almost pleading with him as she spoke.  
+"真嗣..." 天蓝色的眼睛抬头望着他，几乎是在恳求般地对他说话。
+
+"Do you remember eight years ago?"  
+"你还记得八年前的事吗？"
+
+---
+
+"Shinji!" "真嗣！"
+
+A six-year-old Mana Kirishima came flying at him, not five seconds after he had stepped foot inside her parents apartment.  
+他刚踏进她父母公寓不到五秒钟，六岁的小满就飞奔向他。
+
+"I'm sorry to bother you like this..." Yui apologized to Mana's mother.  
+""这样打扰你们真是抱歉..."" 绫波向小满的母亲道歉道。
+
+It was clear who Mana got her crimson hair from, as her mother's own red locks flowed around as she shook her head. A long ponytail dangled a considerable length down her back as Natsuru Kirishima's green eyes practically sparkled as she ruffled six-year-old Shinji's hair.  
+很明显，Mana 的深红色头发遗传自她的母亲，她母亲的红发在她摇头时飘扬四周。一条长长的马尾辫垂在背后，长度相当可观，而 Natsuru Kirishima 的绿眼睛闪闪发光，她轻轻地揉着六岁 Shinji 的头发。
+
+"No, it's fine Yui! I'd happily look after this adorable ball of fluff anyday!"  
+“不，Yui，没关系！我很乐意每天照顾这个可爱的小毛球！”
+
+Yui smiled at her long time friend.  
+Yui 对她的多年好友微笑着。
+
+"This takes me back to when we were in school together."  
+"这让我想起了我们一起上学的时候。"
+
+"Ah, when we were talking about the day we would eventually have children and that we'd make sure they were the best of friends."  
+“啊，当我们谈论着终有一天会有孩子，并确保他们成为最好的朋友。”
+
+"I'm pretty sure it was more of a contest over who would have kids first, if I remember correctly." Yui giggled at the memories.  
+“我记得那更像是一场关于谁会先有孩子的比赛，如果我没记错的话。” 回忆起往事，Yui 轻声笑了起来。
+
+"We used to fight over just about everything, huh? Natsuru Takahashi and Yui Ayanami, the friendliest rivals you'd ever meet." Natsuru smiled as she glanced over towards a photo on a nearby mantelpiece, portraying their graduation memory.  
+“我们过去几乎为每件事争吵，对吧？Natsuru Takahashi 和 Yui Ayanami，你见过的最友好的对手。” Natsuru 微笑着瞥向附近壁炉架上的一张照片，那是她们毕业时的留影。
+
+Yui was standing next to a smiling Gendo, holding her hand out in a cheesy peace sign, complete with a goofy grin, whilst Natsuru hung off the neck of her soon to be husband.  
+Yui 站在微笑的 Gendo 旁边，伸出手做着俗气的和平手势，脸上挂着傻笑，而 Natsuru 则搂着她即将成为丈夫的脖子。
+
+"I guess at some point we became 'Kirishima' and 'Ikari', but otherwise, not much has changed, has it?"  
+"我想在某个时刻我们变成了'桐岛'和'碇'，但除此之外，变化不大，对吧？"
+
+"Apart from you becoming a hermit mangaka and me going into mad science as our chosen professions." Yui pointed out cheekily.  
+"除了你成了隐居的漫画家，而我选择了疯狂科学家的职业。" 优衣俏皮地指出。"
+
+"Hey, you can't call the author of your beloved series a hermit!"  
+"嘿，你不能把你心爱的系列的作者称为隐士！"
+
+"Speaking of which, hurry up and finish the next volume! I could have killed you for leaving the last book on a cliffhanger!"  
+"说到这个，快点把下一卷写完！上一本书留了个悬念，我差点想杀了你！"
+
+"Haha, I'm sorry! It was a necessary evil, but..." Going over to her desk, Natsuru picked up a book and brought it over to Yui.  
+"哈哈，对不起！那是必要的恶，不过..." 走到她的书桌旁，夏树拿起一本书，递给了优衣。"
+
+"It's not supposed to be on sale until the day after tomorrow but consider this a promotional copy." She grinned as she thrust the sequel to her series into a stunned Yui's hands.  
+"这书原本后天才开始发售，但你就当这是提前的宣传版吧。" 她笑着将系列续集塞进目瞪口呆的唯手中。
+
+"D-d you mean it? Are you serious?"  
+"你-你是认真的吗？你是说真的？"
+
+"It's the least I can do for my biggest fan, especially as you've given me an even more precious treasure all these years."  
+"这是我能为我的头号粉丝做的最起码的事，尤其是这些年你给了我更加珍贵的宝藏。"
+
+"What have I given you that even compares to this?" A stunned Yui asked.  
+"我给了你什么能与这个相比的？" 震惊的唯问道。
+
+Natsuru smiled fondly as she turned to the two playing children in her front room.  
+夏树微笑着转向她前厅里玩耍的两个孩子，眼中满是宠溺。
+
+"You gave my daughter her very first and most treasured friend."  
+"你给了我的女儿她人生中的第一个也是最珍爱的朋友。"
+
+---
+
+Half an hour passed by, with the adults lost in reminiscing the past. Whilst the adults were busy, Mana had gone to her room and brought some toys back.  
+半小时过去了，大人们沉浸在往昔的回忆中。与此同时，大人们忙碌时，真奈已经回到自己的房间，带回了一些玩具。
+
+"Shinji, let's play with these next!"  
+"新司，我们接下来玩这些吧！"
+
+Mana had brought four robot-looking objects with her, each a different colour, and with an individual number on them.  
+Mana 带来了四个机器人模样的物体，每个都是不同的颜色，并且各自带有一个编号。
+
+A white model with two zero's. A purple-green model with zero-one. A red model with zero-two and the last was a mix of black and dark blue, with zero-four embellished on it.  
+一个白色模型，上面有两个零。一个紫绿色的模型，编号是零一。一个红色模型，编号零二，最后一个是黑色和深蓝色的混合，上面装饰着零四。
+
+Looking at them, Shinji felt a little scared by their intimidating forms. Even if they were only the size of his forearm.  
+看着它们，Shinji 感到有些害怕，它们的威严形态令人心生敬畏。尽管它们的尺寸只有他的前臂那么大。
+
+"W-what are they?" "这-这是什么？"
+
+"They're called Evangelions!"  
+"它们被称为福音战士！"
+
+"E-evan... gelions?" “伊文……杰里昂？”
+
+"Yeah!" Mana stood up and thrust her chest out proudly. "I'm writing a book, with a little bit of Mama's help, and these super-cool Evangelions save the world in it!"  
+“耶！”玛娜站起来，自豪地挺起胸膛。“我在写一本书，有妈妈的一点帮助，书里这些超酷的福音战士拯救了世界！”
+
+"I designed them, and Mama did some magic with the 3D printer, after she fixed some of my scribbles, and they came out looking awesome, don't you think?!"  
+“我设计的，妈妈用 3D 打印机施了点魔法，她修正了我的一些涂鸦，结果它们看起来超棒，你不觉得吗？！”
+
+Shinji sat in awe as he watched Mana explain her somewhat roundabout plot about evil Angels attacking humanity, and how kids had to get into these robots to fight them and save the world. As he listened, he began to feel less intimidated by them.  
+真嗣坐在那里，惊叹地看着玛娜解释她那略显曲折的情节，关于邪恶的天使如何攻击人类，以及孩子们如何必须进入这些机器人中与它们战斗并拯救世界。听着听着，他开始感到不那么害怕了。
+
+"They sound so cool!" Mana giggled as she heard his enthusiastic approval.  
+"听起来真酷！" Mana 咯咯笑着，听到他热情的赞同。
+
+"Well then... How would you like to be the pilot of Unit One?"  
+"那么...你想成为初号机的驾驶员吗？"
+
+"W-what?" "什-什么？"
+
+"I'll write you into the story! You'll be the one who saves the world, whilst rescuing me from a nasty Angel! And then everyone can party, and be happy ever after!"  
+"我会把你写进故事里！你将成为那个拯救世界的人，同时从邪恶的天使手中救出我！然后大家就可以开派对，从此幸福快乐地生活下去！"
+
+As Shinji cheered along with Mana, Yui suddenly gasped from the table as she looked at her watch.  
+当真嗣和玛娜一起欢呼时，坐在桌边的唯突然看着手表倒吸了一口气。
+
+"Is that the time!? I gotta go, Gendo is going to kill me!" She quickly stood up as she gathered her things. "Thanks for the coffee Natsuru!" She turned back as she ran to the front door.  
+"已经这个时间了！？我得走了，源堂会杀了我的！" 她迅速站起身来收拾东西。"谢谢你的咖啡，夏树！" 她转身向门口跑去。
+
+"Shinji, make sure you behave! And no playing doctor or anything silly, you hear me!"  
+"真嗣，你要乖乖的！不许玩什么医生游戏或者任何傻事，听到了吗！"
+
+"Yes mama..." Shinji mumbled sheepishly at his embarrassing mother.  
+"知道了，妈妈……" 真嗣尴尬地低声回应着令人难堪的母亲。
+
+"Thanks for looking after him Natsuru!" Yui said as she fumbled with her shoes at the entrance.  
+"谢谢你照顾他，夏树！" 优衣在门口手忙脚乱地穿鞋时说道。
+
+"It's no problem at all Yui! Be safe!" Natsuru giggled as she watched her friend scamper. "Dear god, she can be so scatterbrained sometimes."  
+"一点儿也不麻烦，优衣！路上小心！" 夏树咯咯笑着，看着她的朋友匆匆离去。"天哪，她有时候真是丢三落四的。"
+
+---
+
+"I love my wife, but dear god she sure knows how to keep a man waiting." Gendo mumbled from his desk. A familiar woman was standing behind him, holding a clipboard and going through her notes, whilst trying not to giggle and failing.  
+"我爱我的妻子，但天哪，她确实知道如何让一个男人等待。" 源堂从书桌旁咕哝道。一个熟悉的女人站在他身后，拿着剪贴板，翻阅着笔记，同时尽量忍住不笑，却失败了。
+
+"I'm sure she got caught up in her memories of the past with her friend. They barely get to meet these days, you can't be too hard on her."  
+"我敢肯定她陷入了与朋友的过去回忆中。他们最近很少见面，你不能对她太苛刻。"
+
+"That's fine and all Dr. Soryu, but humanity isn't going to save itself and this research seems to be the key to our survival. Which is going nowhere, fast!"  
+"话虽如此，草薰博士，但人类不会自救，这项研究似乎是我们生存的关键。但现在进展缓慢，毫无头绪！"
+
+"Relax. Humanity has pulled through worse scrapes before, we can do it again. And this research will be ready in time, I can guarantee it." Dr. Kyoko Soryu smiled softly. If not for her, then she would make sure the future was safe for her child. Her precious little Asuka.  
+"放松点。人类以前经历过更糟糕的困境，我们能再次挺过去。这项研究会及时完成的，我保证。"" 草薰响子博士温柔地笑了。如果不是为了她自己，那么她也会确保她孩子的未来是安全的。她珍爱的宝贝明日香。"
+
+"Yeah, but...!" Gendo jumped as Yui suddenly scrambled into existence behind him, wheezing.  
+"是啊，但是...！" 源堂吓了一跳，因为唯突然气喘吁吁地出现在他身后。
+
+"Sorry... Late... Natsuru... Bleargh, I'msounfit." Yui caught her breath and stood up.  
+"对不起...迟到了...夏树...呃，我太不健康了。" 唯喘过气来，站直了身子。
+
+"At some point, we are going to a gym and sorting out our cardio, Gendo."  
+"总有一天，我们要去健身房，好好锻炼一下心肺功能，源堂。"
+
+"We have a gym though..."  
+"我们这里不是有健身房吗……"
+
+"Since when?!" "什么时候的事？！"
+
+"Since you designed the majority of the architecture of this place. I seem to remember you saying something along the lines of, "We may be super-genius scientists, but we also need to keep our health at its optimal levels." Gendo sighed. "You do remember we have like a swimming pool and an indoor hot spring on the base too, right?"  
+"自从你设计了这里的大部分建筑结构。我记得你好像说过类似这样的话，“我们虽然是超级天才科学家，但也需要保持最佳健康状态。”碇源堂叹了口气。“你别忘了，基地里还有游泳池和室内温泉吧？”
+
+Yui's shocked face was a sight to behold, causing Kyoko to giggle once again.  
+优依震惊的表情颇为引人注目，让京子再次忍不住笑出声来。
+
+"But enough about the facilities, _which I can see your absolutely dying to try now that you've remembered about them_. We have a job to do."  
+“不过设施的事就说到这儿吧，看你那样子，现在肯定迫不及待想试试了。我们还有任务要完成呢。”
+
+"You're such a party pooper Gendo..." Yui pouted as she sat down at her desk, firing up her computer whilst watching her gloomy expression on the monitor's reflection.  
+"你真是扫兴，源堂..." 唯噘着嘴坐在桌前，启动电脑的同时通过屏幕的反射观察着他阴沉的表情。
+
+"Don't fret Yui, we can enjoy the indoor baths together if you'd like?" Kyoko said as she sat down next to the depressed Ikari.  
+"别担心，唯，如果你愿意的话，我们可以一起去享受室内温泉。" 京子说着，坐在了情绪低落的碇旁边。
+
+"I'm gonna hold you to that." Yui typed in her login with practiced ease as she slid a sidelong look to the blond doctor.  
+"我可记住你这话了。" 唯熟练地输入登录信息，同时斜眼瞥了一眼金发的医生。
+
+"By the way, how's Shinji doing?"  
+“对了，真嗣最近怎么样？”
+
+"He's okay. I left him having fun with Mana, and he was all smiles and giggles when I was leaving."  
+他没事。我离开时他正和玛娜玩得开心，满脸笑容和欢笑。
+
+"Oh my! Asuka won't be too happy when she hears that. All that girl ever talks about is Shinji, and when will she get to play with him again."  
+"哎呀！明日香听到这个可不会太高兴。那女孩整天念叨的就是真嗣，什么时候才能再和他一起玩呢。"
+
+"I feel like Shinji's going to grow up with no clue how to deal with them when they start fighting over him." Yui laughed. "At least I know he's going to have two beautiful girls fighting over him when they get older."  
+"我觉得真嗣长大后肯定不知道怎么应付她们争风吃醋。"" 绫笑了。""至少我知道，他将来会有两位美丽的女孩为他争风吃醋。"
+
+"Three." Gendo mumbled behind his clasped hands. "It seems he has bonded very quickly with Rei as well."  
+"三个。"" 源堂在双手交握的背后咕哝道。""看来他和丽也很快建立了深厚的感情。"
+
+"He's not even ten years old and he's already set-up with his own harem."  
+他还不满十岁，就已经有自己的后宫了。
+
+"I didn't plan it that way Kyoko!" Yui groaned, suddenly realizing she may have inadvertently made Shinji's teenage years a living hell before they had even begun.  
+"我没想到会变成这样，绫子！" 优叹息道，突然意识到自己可能无意中让真嗣的青春期变成了活生生的地狱，而这一切甚至还没开始。
+
+"I have faith my little Asuka will be the one to steal his heart away, like the little phantom thief she is." Kyoko grinned. "I'm looking forward to the day they bring me a grandchild."  
+"我相信我的小明日香会偷走他的心，就像她那小怪盗一样。" 绫子咧嘴笑道，"我期待着他们带给我一个孙子的那一天。"
+
+"_They're not even out of grade school yet Kyoko..._" Yui thought to herself, grimacing at the prospect that she'll be a fair bit older when that time did eventually come around.  
+"他们还没小学毕业呢，绫子..." 优心里想着，一想到那一天真的到来时自己会老不少，不禁皱起了眉头。
+
+---
+
+Several hours passed by with the three scientists making good progress on the day's work. When break time finally rolled around, Yui decided her system was in a severe lack of caffeine and made her way to the canteen.  
+几个小时过去了，三位科学家在当天的工作中取得了良好的进展。当休息时间终于到来时，Yui 觉得她的系统严重缺乏咖啡因，便向食堂走去。
+
+"I mean, I'm looking forward to kids too. But definitely still too early to be thinking of them now... right?" Yui said to herself, whilst simultaneously imagining what the kids would look like, depending on who Shinji eventually chose. The kettle was bubbling away happily as Yui switched on the television.  
+"我的意思是，我也期待有孩子。但肯定现在想这些还太早了...对吧？" 优一边自言自语，一边同时想象着孩子们会是什么样子，这取决于真嗣最终选择了谁。水壶正愉快地冒着泡，优打开了电视。
+
+She made her coffee quickly, and was enjoying its aromatic flavour just as the afternoon news flickered on.  
+她迅速冲好咖啡，正享受着它那芳香的滋味，午间新闻的画面闪烁起来。
+
+_"Breaking news! As of 2.30pm this afternoon, a level nine earthquake has decimated a residential area in Tokyo-3's fourth district. Substantial damage has been caused to many of the buildings in the area, with many feared dead. There is currently no news on potential fatalities-..."  
+"突发新闻！今天下午 2 点 30 分，东京-3 第四区发生了一场九级地震，摧毁了一个居民区。该地区的许多建筑物遭受了严重破坏，许多人恐已遇难。目前尚无关于潜在伤亡的消息-..."_
+
+_CRASH_
+
+The coffee cup went flying, destroying itself all over the canteen floor as Yui ran back to the lab as fast as she could. The footage on the news had shown the area that Yui had been at only a few hours beforehand.  
+咖啡杯飞了出去，在食堂地板上摔得粉碎，而结衣则以最快的速度跑回实验室。新闻中的画面显示的正是几个小时前结衣所在的地方。
+
+And she saw something else. A sight that had sent every nerve in her body into meltdown.  
+而她看到了别的东西。一个景象，让她的每根神经都陷入了崩溃。
+
+Her best friends apartment block, in ruins.  
+她最好朋友的公寓楼，已成废墟。
+
+"SHINJI!" "真嗣！"
+
+---
+
+_Two updates to this story in less than a month!? What madness is this!?  
+不到一个月内更新了两次这个故事！？这是什么疯狂的事！？_
+
+_Having finally sorted out some life issues, writing has got considerably easier, so hopefully this means more frequent updates!  
+终于理顺了一些生活琐事，写作变得轻松许多，希望这意味着更新频率能有所提升！_
+
+**_No promises though! 不过不作承诺哦！_**
+
+_If you like my stories, check out the links in my profile! Always got more for you there!  
+如果你喜欢我的故事，不妨查看我档案中的链接！那里总有更多精彩等你发现！_
+
+---
+### Chapter 8: Did You Forget About Fate?  
+第八章：你忘了命运吗？  
+
+The district was utterly destroyed.  
+这片区域被彻底摧毁了。
+
+Yui should have been hearing the deafening rush of the helicopter's propeller blades, but all she couldn't hear a thing. Just a ringing numbness that threatened to crush her very soul.  
+优衣本该听到直升机螺旋桨震耳欲聋的轰鸣，但她却什么也听不见。只有一阵阵刺耳的耳鸣，仿佛要将她的灵魂碾碎。
+
+The pilot took the broken scientist and her husband down to ground level. She could vaguely hear Gendo and the pilot yelling at each other over the sounds of the flying vehicle. Something about the building still being unstable or something.  
+飞行员带着受伤的科学家和她丈夫降落到地面。她隐约能听到源堂和飞行员在飞行器的噪音中互相吼叫。似乎是关于建筑仍然不稳定之类的事情。
+
+But she didn't care. 但她不在乎。
+
+She had to find them. She had to find Shinji.  
+她必须找到他们。她必须找到真嗣。
+
+As soon as they were close enough to the ground, Yui jumped out, closely followed by a rarely-seen, utterly panicked Gendo.  
+当他们离地面足够近时，Yui 跳了出去，紧随其后的是难得一见、完全惊慌失措的 Gendo。
+
+"YUI! DON'T GO NEAR, IT'S TOO DANGEROUS!"  
+“YUI！别靠近，太危险了！”
+
+But she couldn't hear him. She couldn't hear anything anymore.  
+但她听不见他的声音。她再也听不到任何声音了。
+
+Only the sounds of a soul-destroying numbness.  
+只有灵魂毁灭般的麻木声响。
+
+---
+
+"S-shin...ji..." “新...二...”
+
+It was dark. Cold. And he was sure he was inhaling more dust than air by now.  
+四周一片黑暗。寒冷。他确信自己吸入的灰尘比空气还多。
+
+"Shin...ji..." "真...嗣..."
+
+Who was that? Who kept calling his name?  
+那是谁？谁一直在呼唤他的名字？
+
+"Shinji... p-please... I need you to... wake up..." He felt something grab his hand. It was warm, but seemed to be getting colder and colder.  
+"真嗣...请...我需要你...醒来..."他感觉到有什么握住了他的手。那温暖，却似乎越来越冷。
+
+"Shinji..." He definitely knew that voice. His head was ringing. But there could have been a full-scale orchestra deafening his ability to think and he'd recognize that voice anywhere.  
+“真嗣……”他绝对认得这个声音。他的脑袋嗡嗡作响。但即便有一整支管弦乐队在震耳欲聋地干扰他的思考，他也能在任何地方辨认出那个声音。
+
+"Please... save me..." “请……救救我……”
+
+His eyes shot open, only to be met by darkness. Only a sliver of light trickled through a tiny gap in the debris of what had been Mana's living room. Turning to his side, he saw whatever had been holding his hand had indeed been Mana.  
+他的眼睛猛地睁开，却只见到一片黑暗。只有一丝光线透过曾是玛娜客厅的废墟中的一个小缝隙透进来。他侧过身去，发现握着他手的确实是玛娜。
+
+Bloodied, bruised, but well and truly alive.  
+血迹斑斑，伤痕累累，但确确实实还活着。
+
+They were trapped under the table. Mana's mother had thrown them both under the table the second the earthquake sirens started going off, and the terrifying shaking had started.  
+他们被困在桌子底下。地震警报一响起，Mana 的母亲立刻将他们俩推到桌子下，随即开始了令人恐惧的摇晃。
+
+Grabbing her blood-drenched hand, he squeezed it tightly.  
+他紧紧握住她沾满鲜血的手。
+
+"It's okay Mana... we're gonna be _*cough*_ ...be okay..."  
+"没事的，Mana... 我们会... *咳嗽* ...会没事的..."
+
+She nodded, providing a little sound in agreement. They were going to make it.  
+她点点头，发出轻微的同意声。他们一定能挺过去的。
+
+Trying to sit up was an incredible effort, but somehow he made it into a sitting position, and tried looking around him.  
+试图坐起来需要极大的努力，但他还是设法坐直了身子，并尝试环顾四周。
+
+He sorely wished he hadn't.  
+他真希望自己没这么做。
+
+From their position under the table, he could see blood trickling over the side. Along with a hand poking over the edge. Trembling in utter fright, Shinji gently crawled out from under the table, stood up, and looked back.  
+从桌子底下的位置，他可以看到血正沿着边缘滴落。还有一只手从边缘伸出来。因极度恐惧而颤抖着，真嗣小心翼翼地从桌子底下爬出来，站起身，回头看去。
+
+No six-year-old should have had to have seen it. Not many adults would have had the stomach to look at something like that.  
+没有一个六岁的孩子应该看到这样的场景。没有多少成年人能承受看到这样的东西。
+
+But Shinji Ikari saw the unmistakeable sight of Natsuru Kirishima lying on the table, skewered by what looked like a fallen girder from the destroyed ceiling, straight through the torso. By some miracle, it hadn't penetrated through the table. They had been saved, but...  
+但碇真嗣看到了不容置疑的一幕：夏树红白躺在桌上，被一根看似是从毁坏的天花板上掉落的横梁贯穿了躯干。奇迹般地，它并没有穿透桌子。他们得救了，但是……
+
+"ahh...uuhh..." He could feel his mind, his sanity evaporating. He wanted to cry, he wanted to scream, he was so close to losing his mind...  
+“啊……呃……”他感觉到自己的理智正在蒸发。他想哭，他想尖叫，他几乎要失去理智……
+
+"S-shinji... is... everything... alright?"  
+“真……真嗣……一……一切都还好吗？”
+
+She couldn't know. She can't know. She can't see this.  
+她不可能知道。她不能知道。她不能看到这个。
+
+"E-everything's o-o-o-okay... Mana..." His voice was cracking, he was on the knife's edge of retaining his senses.  
+"一-一切都-还-还-还好...麻奈..." 他的声音在颤抖，他正处于保持理智的边缘。
+
+"That's... good..." Mana looked up at the clearly shaken boy.  
+"那...那就好..." 麻奈抬头看着明显受到惊吓的男孩。
+
+"Where's Mama?" “妈妈在哪里？”
+
+The terror had upgraded to an apocalyptic version of panic. He could feel the crescendo of extreme stress building on top of what was already an uncontainable meltdown.  
+恐惧已升级为世界末日般的恐慌。他能感受到极度压力的高潮正在叠加，原本已是无法控制的崩溃。
+
+"She...s-she... I don't know... I can't see...her..." If Mana could see the reflection in his eyes, of what he could see right now, of Natsuru Kirishima's torn body, her blood soaking into her hair, turning it into an even deeper shade of crimson, her limbs splayed in weird angles...  
+“她...她...我不知道...我看不见...她...”如果麻奈能看到他眼中的倒影，那他现在所见，夏目奈津的残破身躯，鲜血浸透了她的头发，染成更深的猩红，四肢以怪异的角度散开...
+
+He didn't think Mana could ever recover from that.  
+他没想到 Mana 能从那件事中恢复过来。
+
+"We...we need to get out of here..." Shinji bent under the table, trying his hardest to put on a brave face. "We need to find an exit, and make sure we tell people we're okay."  
+“我们...我们需要离开这里...” 真嗣蜷缩在桌子下，竭尽全力装出勇敢的样子。“我们需要找到出口，并确保告诉人们我们没事。”
+
+"...but Mama..." “...但是妈妈...”
+
+"Please Mana... Yo-you're hurt... we need to get you to a doctor right away!"  
+"求你了，Mana... 你受伤了... 我们得马上送你去看医生！"
+
+"I can't move Shinji..." "我动不了，真嗣..."
+
+It appeared Mana had both her legs broken. Anytime she tried putting movement into them, the pain was enough to make her scream in agony.  
+看来 Mana 的双腿都骨折了。每当她试图移动它们时，剧痛足以让她痛苦地尖叫。
+
+He would never forget those screams. It was like they had been etched into his very soul.  
+他永远不会忘记那些尖叫声。仿佛它们已深深烙印在他的灵魂深处。
+
+"SHINJI! IT HURTS... IT HURTS SO MUCH..." Mana began bawling, thumping the ground in front of her with her tiny fists. Tears were flooding down her face as she looked up to the terrified Shinji.  
+"真嗣！好痛...好痛啊..." 玛娜开始嚎啕大哭，用她的小拳头猛捶着面前的地面。泪水如泉涌般顺着她的脸颊流下，她抬头望向惊恐的真嗣。
+
+"I'll... I'll save you!" After explaining that it was going to hurt, Shinji managed to pull the broken Mana from out under the table. She was is no fit state to look around her, and eventually, it looked like the pain was getting to her.  
+"我会...我会救你的！"在解释说这会很痛之后，真嗣设法将受伤的麻奈从桌子底下拉了出来。她现在的状态根本无法环顾四周，最终，看起来疼痛正在加剧。
+
+"Shinji... please... save me." As Mana lapsed into unconsciousness, he began to panic again.  
+"真嗣...请...救救我。"随着麻奈陷入昏迷，他又开始慌乱起来。
+
+"Don't! D-d-d-don't die Mana... please!" He began sobbing as he watched the little girl's eyes closed. But he quickly noticed that she was still breathing.  
+"不要！别...别死，麻奈...求你了！"他看着小女孩闭上眼睛，开始抽泣。但他很快注意到她仍在呼吸。
+
+Lifting the sleeping girl in his arms, he took one last look back at the corpse of the woman who had looked after him. Who had saved his life. And cried.  
+他抱起熟睡的女孩，最后一次回头看向那位照顾他、救了他性命的女人的尸体。泪水滑落。
+
+He was still crying as he somehow made his way out of Mana's miraculously still-standing front door.  
+当他设法走出玛娜奇迹般依旧屹立的前门时，泪水仍在他的脸颊上流淌。
+
+The first thing he noticed was the setting sun, illuminating the wreckage from the outside. The stairwell going downstairs was also destroyed. Wiping his face on the top of his arm, his expression changed to that of pure determination. He needed to save his friend!  
+他首先注意到的是夕阳，它从外部照亮了废墟。通往楼下的楼梯也已被摧毁。他用手臂擦去脸上的泪水，表情变得坚定无比。他必须救他的朋友！
+
+After ten agonizing minutes of carrying a fairly heavy Mana, he had managed to make it to the roof of the apartment block. He was only six, he wasn't designed to carry anything heavier than a teacup at his age.  
+经过十分钟痛苦的挣扎，他终于将相当沉重的玛娜搬到了公寓楼的屋顶。他才六岁，按理说这个年纪连比茶杯重的东西都不该拿。
+
+Collapsing on his knees, he noticed helicopters buzzing around. Holding the injured Mana close to him, he took in as much air as he could in a single breath. And screamed as loud as he could to the world.  
+他双膝一软跪倒在地，注意到直升机在四周盘旋。他紧紧抱住受伤的玛娜，深吸一口气，然后对着世界竭尽全力地尖叫起来。
+
+"MAMAAAAAAAAAAAAAAAAAAAAAAAAAAA!"  
+“妈咪啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊！”
+
+---
+
+"I would never forget that."  
+"我永远不会忘记那件事。"
+
+A determined Shinji responded. Mana gently smiled.  
+真嗣坚定地回答。麻奈温柔地笑了。
+
+"Me too." "我也是。"
+
+An awkward silence filled the room, broken only by Mana shifting uncomfortably on her chair, the chains on her hands rattling, the sound reverberating around the room.  
+房间里弥漫着尴尬的沉默，只有玛娜在椅子上不安地挪动，手上的链条叮当作响，声音在房间里回荡。
+
+"Have you ever heard of Seele?"  
+“你听说过 Seele 吗？”
+
+Shaking his head, he must of looked as confused as he felt. Who were Seele?  
+他摇了摇头，看起来一定和他感觉一样困惑。Seele 是谁？
+
+"They're an organization. They research things similar to what your parents are doing. But to be perfectly honest, they're stealing your parents ideas and trying to take over humanity."  
+他们是一个组织。他们研究的东西和你父母正在做的类似。但老实说，他们在窃取你父母的想法，并试图接管人类。
+
+She couldn't look at his perplexed gaze.  
+她无法直视他那困惑的眼神。
+
+"After... after my mom died, a lot of things happened. My father... committed suicide. He couldn't take the grief of what happened and just... disappeared. Not long after that, I found myself in an orphanage."  
+"在我妈妈去世后，发生了许多事情。我父亲...选择了自杀。他无法承受所发生的一切带来的悲痛，就这样...消失了。不久之后，我发现自己被送进了孤儿院。"
+
+"I remember the orphanage, but you never mentioned your father died!" He was taken aback by the new information. He had been aware that her father had passed away somehow, but... suicide?  
+"我记得那家孤儿院，但你从未提过你父亲是自杀的！" 他对这个新信息感到震惊。他知道她的父亲以某种方式去世了，但...自杀？
+
+"I was so thankful that you came to visit me at that orphanage Shinji. I think I would have met a similar fate, had I been left all alone."  
+"我很感激你那时来孤儿院看我，真嗣。我想如果我一个人被留下，我可能也会遭遇类似的命运。"
+
+"Was that why...?" He couldn't voice the remainder of that thought. At the orphanage, Mana had never played with any of the other kids, but every time his parents had brought him over to play with her, she would turn into a hyperactively ecstatic crazy child. Over time, her affection got more and more intense, but he still came to play with her as often as he could. Some of the games they would play had left him more than a little traumatized though.  
+"那是为什么...？" 他无法说出那个想法的其余部分。在孤儿院，Mana 从未和其他孩子玩耍，但每次父母带他去找她玩时，她就会变成一个极度兴奋的疯狂孩子。随着时间的推移，她的感情越来越强烈，但他仍然尽可能频繁地去找她玩。尽管如此，他们玩的一些游戏还是让他留下了不少心理阴影。
+
+"You were the only one I could talk to. You almost died that same day I had. When Mama... did." Mana sniffled, a single tear falling down her face. "So I had to latch on. I had to keep you close. Or I'd be all alone..."  
+"你是唯一能和我说话的人。就在我那天差点死去的时候，你也差点死了。当妈妈...去世的时候。" Mana 抽泣着，一滴眼泪从她的脸颊滑落。"所以我必须紧紧抓住你。我必须让你靠近我。否则我就会孤身一人..."
+
+More tears began to fall. Mana was silently crying in front of him. He had no idea what to do.  
+更多的泪水开始滑落。麻奈在他面前默默哭泣。他完全不知道该怎么办。
+
+"I read something in a book once. _'Loneliness is a disease that can easily lead to death.'_ " She looked up at him, her cerulean eyes red from crying. "You saved me twice back then. Once from the earthquake. And once again. From myself."  
+“我曾在书上读到过一句话，‘孤独是一种极易导致死亡的疾病。’”她抬头望着他，湛蓝的眼眸因哭泣而泛红。“那时你救了我两次。一次是从地震中。再一次，是从我自己手中。”
+
+Her crying had escalated. Mana was full-on bawling her eyes out. Shinji felt numb just imagining what she had gone through back then. So he did the only thing he could think to do.  
+她的哭泣愈演愈烈。麻奈已经哭得泪眼婆娑。真嗣只是想象她当时经历的一切就感到麻木。于是他做了唯一能想到的事情。
+
+He placed his arms around her, and hugged her tightly. And Mana continued to cry into his shoulder.  
+他伸出双臂环绕着她，紧紧地拥抱。而玛娜继续在他的肩头哭泣。
+
+"Please don't leave me. Don't leave me again. You're the only one keeping me sane right now. You're... my entire reason for living right now."  
+“请不要离开我。不要再离开我了。现在只有你能让我保持理智。你……是我此刻活下去的全部理由。”
+
+"I won't leave you again. I'll do whatever it takes to stay close to you Mana."  
+“我不会再离开你了。我会尽一切努力留在你身边，玛娜。”
+
+"You gotta promise me! Before those Seele bastards take me away from you again."  
+“你得答应我！在他们那些 Seele 混蛋再次把我从你身边带走之前。”
+
+"I won't let them." "我不会让他们得逞的。"
+
+"But you have no idea Shinji! These guys... they're insanely powerful. They took me away from that orphanage, trained me to be a spy, and... and..." She started to cry again, wetting his shirt to the point where he was starting to think he needn't bother wearing it anymore.  
+"可是你不知道，真嗣！这些人...他们强大得不可思议。他们把我从孤儿院带走，训练我成为间谍，而且...而且..." 她再次哭泣起来，泪水浸湿了他的衬衫，以至于他开始觉得或许不必再穿它了。
+
+_*Click*  *咔嚓*_
+
+"W-what're you doing?" “你、你在干什么？”
+
+Shinji pulled back a little, dangling Mana's handcuff keys in front of her. Her cuffs fell to the ground with a loud clang.  
+真嗣稍稍后退，将手铐钥匙在麻那面前晃了晃。她的手铐应声落地，发出一声响亮的哐当声。
+
+"I trust you Mana. I trust every word you say." His eyes were full of a kind determination. His smile was infectious, causing Mana to smile through her tear-ridden visage.  
+“我相信你，麻那。我相信你说的每一句话。”他的眼中充满了坚定的决心。他的笑容极具感染力，让麻那泪眼朦胧的脸上也露出了微笑。
+
+"We'll protect you. Just tell everyone what you were telling me, and we can start again, wipe the slate clean. And protect humanity from this... Seele. We need your help Mana." Shinji held out his hand.  
+"我们会保护你。只需告诉大家你刚才告诉我的那些，我们就能重新开始，洗清一切。并保护人类免受这个...Seele 的威胁。我们需要你的帮助，Mana。" 真嗣伸出了手。
+
+"Will you help us?" "你会帮助我们吗？"
+
+Ignoring his hand completely, Mana leapt from her chair and tackled Shinji to the ground with a tight bearhug. Crying again, she snuggled into his chest as Shinji ruffled her hair, chuckling to himself.  
+完全无视他的手，Mana 从椅子上跳起来，紧紧地用熊抱将 Shinji 扑倒在地。再次哭泣的她，依偎在他的胸前，而 Shinji 则轻揉她的头发，自顾自地轻笑。
+
+"If its you... _*sniff *_ If its you Shinji. I'll do anything. Just stay by my side. Forever."  
+“如果是你... *抽泣* 如果是你 Shinji。我什么都愿意做。只要留在我身边。永远。”
+
+They stayed in that position for a long time. The CCTV cameras on the wall were silently watching them, being fed to the main control centre. If Shinji had any clue that Misato, his parents, the entire tech staff and Kyoko Soryu were all watching his 'moment', he might have died from embarrassment there and then.  
+他们就这样保持了很久。墙上的监控摄像头默默地注视着他们，画面被传送到主控中心。如果 Shinji 知道 Misato、他的父母、全体技术人员以及 Kyoko Soryu 都在观看他的‘时刻’，他可能会当场羞愧而死。
+
+"...He gets that from you dear."  
+"...他这点是遗传你的，亲爱的。"
+
+"What do you mean Yui!? I'd never do something..."  
+"你什么意思，唯！我绝不会做那种事..."
+
+"First year of grad school, when I was convinced I was going to fail at life, a certain someone came into my dorm room and gave me a hug very similar to what I'm seeing right now-..."  
+"研一那年，我以为自己要一事无成，某个特别的人走进我的宿舍，给了我一个拥抱，和现在看到的这个非常相似-..."
+
+"**OKAY**, okay, enough of that."  
+“好了，好了，到此为止。”
+
+"I never knew you and your son had such ways with women Gendo."  
+"我从来不知道你和你儿子在女人面前有这般手段，源堂。"
+
+"Clam it Soryu!" Misato was laughing hysterically at the arguing adults. It was quickly replaced with an evil grin as she eyed a different monitor.  
+"闭嘴，惣流！" 美里狂笑着看着争吵的大人们。她的目光很快被另一个监视器吸引，露出了邪恶的笑容。
+
+"Hey guys. Should we warn Shinji now or should we just let that unfold?" She was pointing to the monitoring room with the bulletproof glass and microphone that Asuka and Rei had just returned to.  
+"嘿，伙计们。我们应该现在警告真嗣，还是就让事情这样发展下去？" 她指着装有防弹玻璃和麦克风的监控室，那里刚刚返回了明日香和绫波。
+
+"Let it happen Katsuragi."  
+"让它发生吧，桂木。"
+
+"Gendo! They might kill him!"  
+"源堂！他们可能会杀了他！"
+
+"And what, pray tell, are we supposed to do about it from here?" Yui grimaced at her husbands words. Turning back to the monitor, she put her hands together as though praying at a shrine.  
+"那么，请问，我们接下来该怎么做呢？" 优对丈夫的话皱起了眉头。她转回监视器，双手合十，仿佛在神社前祈祷。
+
+"We can pray real hard!"  
+"我们可以真心诚意地祈祷！"
+
+"SHINJI BAKAMORONASSHOLEJERFACE IKARI! WHAT IN THE NAME OF FUCK ARE YOU DOING!?"  
+"真嗣，你这个混蛋！你在搞什么鬼！？"
+
+"Once again, she started it... waitwait_WAIT ASUKA PUT DOWN THE BRACELET!_"  
+又一次，她开始了……等等等等等等，明日香放下那条手链！
+
+_Some say, if you work at the laboratory late at night, when nobody else is around, you can still hear the screams of Shinji Ikari reverberating around the building.  
+有人说，如果你在深夜独自一人待在实验室里，四周空无一人时，仍能听见碇真嗣的尖叫声在整栋楼里回荡。_
+
+---
+
+"Oh yeah..." Misato opened the door to the apartment gingerly, perplexing Asuka, Rei and Shinji sitting on the couch, watching television.  
+"哦，是啊..." 美里小心翼翼地打开公寓的门，让坐在沙发上看着电视的明日香、绫波和真嗣感到困惑。
+
+"Are you going somewhere Misato?" Asuka piped up. "If you're going to the convenience store, can you pick me up some chips? I need something to munch."  
+"美里，你要去哪儿吗？" 明日香插话道，"如果你要去便利店，能帮我带些薯片吗？我需要点东西嚼嚼。"
+
+"Asuka, you can summon crisps now, or did you forget?"  
+"明日香，你现在可以召唤薯片了，还是你忘了？"
+
+"I thought you were the one getting all anal about the morals of summoning free crap Shinji?"  
+"我以为你才是那个对召唤免费东西的道德问题斤斤计较的人呢，真嗣？"
+
+"I still think you shouldn't. You'll have no room left for dinner!"  
+"我还是觉得你不该这么做。你晚饭都没地方放了！"
+
+*Ahem* Misato cleared her throat loudly. "I'm actually going to pick someone up."  
+*咳咳* 美里大声清了清喉咙。 "我其实是去接个人。"
+
+For some reason, she looked incredibly nervous. Something Shinji had spied immediately, and was reunited with the familiar feeling of dread in his stomach. This could not go well, whatever it was.  
+出于某种原因，她看起来异常紧张。这让真嗣立刻察觉到了，随之而来的是胃里那熟悉的恐惧感。无论是什么事，情况都不会太好。
+
+"Due to extenuating circumstances..." Misato pulled on her shoes by the front door faster than anyone had ever seen before. Except before she was going on a beer run or a pub crawl.  
+"由于特殊情况..." 美里在门口迅速穿上鞋子，速度之快前所未见。除了她要去买啤酒或参加酒吧爬行活动的时候。
+
+All three teenagers stood up, now finally beginning to realize what had Misato so spooked. All three raised their bracelets, and pointed them at the poor, terrified woman as she pressed the button to open the front door. The bracelets began to charge with a terrifying energy as Misato looked about ready to cry.  
+三个少年都站了起来，终于开始意识到是什么让美里如此惊慌。三人举起手环，指向那位可怜、惊恐的女人，她正按下按钮打开前门。手环开始充能，散发出令人恐惧的能量，美里看起来几乎要哭了。
+
+"_...it'sbeendecidedManaisgoingtolivewithusPLEASEDON'TKILLME!_" Misato screamed as she ran out of her house as the front door decided to choose that very moment to spontaneously explode.  
+"...已经决定真奈会和我们一起住请不要杀我！" 美里尖叫着跑出家门，而前门恰好在那一刻自行爆炸了。
+
+As soon as she was out of firing range, the three of them fixed the door, strengthened it to the point it could withstand a nuclear blast and unanimously decided that the girls would take turns keeping Shinji guarded that night, lest he get molested in his sleep by a certain crimson headed seductress.  
+一脱离射程范围，三人便修好了门，加固到能抵御核爆的程度，并一致决定当晚由女孩们轮流守卫真嗣，以防那位红发妖姬趁他熟睡时对他图谋不轨。
+
+---
+
+_Another update!? A day after the last one!? I'm ill, I must be...  
+又更新了！？上次更新才过了一天！？我一定是病了..._
+
+_But yes, it's true! I'm pretty sure this makes this the third update in two weeks. Most of the time, I have trouble updating once a year. Roll on more story!  
+但没错，这是真的！我敢肯定这已经是两周内的第三次更新了。大多数时候，我连一年更新一次都难。快来更多故事吧！_
+
+_And possibly more Rei next time. I feel like she's being left out.  
+下次或许可以多一些丽的内容。我感觉她被忽略了。_
+
+_And check the profile for links to facebook pages and stuff! Always more for you there!  
+别忘了查看个人资料链接，里面有脸书页面和其他内容！那里总有更多精彩等着你！_
+
+---
+### Chapter 9: After-School Shenanigans!  
+第九章：放学后的恶作剧！  
+
+Rei Ayanami was bored. 绫波零感到无聊。
+
+One could say she had got very used to this state of mind, but in all actuality, nobody could get used to it. How do you enjoy boredom?  
+可以说她已经非常习惯这种心态了，但实际上，没有人能习惯。你如何享受无聊呢？
+
+Most people settled for daydreaming. Either becoming a hero piloting supergiant robots defeating evil aliens, or imagining various fantastical situations with that one person they felt a certain 'flutter' for.  
+大多数人满足于白日梦。要么成为驾驶巨大机器人英雄击败邪恶外星人，要么想象与那个让他们心动的人的各种奇幻情景。
+
+Who would've guessed that in her boredom, Rei Ayanami's eyes were occasionally flickering towards the boy she was more or less engaged to.  
+谁能想到，在无聊之中，绫波零的目光偶尔会飘向那个她或多或少订了婚的男孩。
+
+"...ei." "...零。"
+
+But he hadn't yet given her a straight answer. Not that he could be blamed. The girl who had single-handedly almost destroyed the school was sitting on his left, somehow having ejected the previous occupant of that desk with little to no effort. Rei could only imagine how nervous Shinji was sitting next to the one girl in class who scared him more than Asuka.  
+但他还没有给她一个直截了当的回答。这不能怪他。那个几乎单枪匹马差点毁了学校的女孩，不知怎么地，几乎没有费什么力气就把原来坐在他左边的人赶走了，现在正坐在那里。丽只能想象真嗣坐在班上唯一一个比明日香更让他害怕的女孩旁边有多紧张。
+
+Most people were currently giving Mana Kirishima a wide berth after discovering her 'explosive' personality yesterday.  
+大多数人现在都离真希波·真理·石川远远的，昨天发现了她那‘爆炸性’的性格之后。
+
+"Rei..." “丽……”
+
+But a strange feeling was beginning to bubble inside Rei's chest. What was it? It felt slightly... irritating.  
+但一种奇怪的感觉开始在丽胸中涌动。这是什么？感觉有点...恼人。
+
+"Earth to Miss Ayanami..."  
+"地球呼叫绫波小姐..."
+
+She often felt this strange emotion whenever she saw Asuka and Shinji together too. What in the world had her so... mad?  
+每当看到明日香和真嗣在一起时，她也常常感到这种奇怪的情绪。到底是什么让她如此...生气？
+
+"I get he's the current favorite for Mr. Tokyo-3, but I sort've need you to answer this question Rei..." Sighing deeply, Misato smiled at the lovestruck teenage girl. It's not like Misato couldn't see what was going through the young girl's mind. All you had to do was take one quick look at her face and it was obvious. Frowned expression, flushed face, what else could it be?  
+"我知道他是目前第三新东京市的宠儿，但我需要你回答这个问题，绫波..." 深叹一口气，美里对着这位陷入爱河的少女微笑。美里并非看不出这年轻女孩的心思。只需快速瞥一眼她的脸，便一目了然。皱眉的表情，泛红的脸颊，还能是什么呢？
+
+Walking over to Rei's desk, Misato stood there for a good thirty seconds, wondering if the girl would take any notice of her. The rest of the class was giggling at the apparently oblivious girl, but Rei kept glaring at Shinji, as though if she did for long enough, her angry gaze would laser it's way into his brain and burn him into turning around.  
+美里走到绫波的课桌旁，站在那里足足三十秒，想知道女孩是否会注意到她。班上的其他同学都在窃笑这位显然心不在焉的女孩，但绫波依旧瞪着真嗣，仿佛只要她瞪得够久，她愤怒的目光就能像激光一样穿透他的大脑，迫使他转过身来。
+
+"And this, ladies and gentlemen, is why most teachers get annoyed with teenage relationships. How are you supposed to be learning anything if..." Misato gently tapped the top of Rei's head with a rather heavy English dictionary. "...your mind is totally focused on love instead of the wonderful world of Shakespearean literature?"  
+"女士们先生们，这就是为什么大多数老师对青少年恋情感到恼火的原因。如果你..." 美里轻轻地用一本相当厚重的英语词典敲了敲绫波的头顶。"...满脑子都是爱情而不是莎士比亚文学的奇妙世界，你该怎么学习呢？"
+
+"Ow!" Rei, suddenly shocked out of her jealousy-fuelled reverie, sounded cute even when experiencing a jolt of pain. She looked up at Misato, the corner of her eyes watering, looking for all the world like Misato just kicked a puppy. "Why would you do that Sensei?"  
+"哎哟！" 丽突然从嫉妒引发的沉思中惊醒，即便是在经历一阵疼痛时，她的声音听起来也很可爱。她抬头看着美里，眼角泛着泪光，看起来就像美里刚刚踢了一只小狗。"老师，你为什么要这么做？"
+
+She could've felt regret for her actions, but instead, Misato grinned evilly at the confused looking girl.  
+她本可以为自己的行为感到后悔，但相反，美里对那个困惑的女孩露出了邪恶的笑容。
+
+"Shinji." “真嗣。”
+
+"Yes, Misa-... I mean, yes Sensei?"  
+"是的，美里... 我是说，是的，老师？"
+
+"It's your turn for clean-up duty after school today, is it not?"  
+"今天轮到你放学后打扫卫生了，不是吗？"
+
+"It is!? I thought it was Toji!?"  
+"是吗！？我还以为是真嗣呢！"
+
+"Toji, do you mind awfully swapping with Shinji for today? Rei's going to need some help after school, and I'm sure this will give you perfect opportunity to take Hikari out shopping or something."  
+"真嗣，你介意今天和真希换一下吗？丽放学后需要一些帮助，我相信这会给你一个完美的机会带光去购物什么的。"
+
+"SENSEI!" Both Toji and Hikari shouted out in surprise. One of them didn't sound too upset by it however.  
+"老师！" 冬二和光同时惊讶地喊道。不过其中一人的声音听起来并不太沮丧。
+
+"So it's decided. And now that you have at least an hour alone with him after school, do you mind awfully reading this passage out for me Rei?"  
+"那么就这么定了。既然你现在放学后至少有一个小时单独和他在一起，你介意帮我读一下这段话吗，丽？"
+
+A sly grin snaked its way onto Rei's face.  
+丽脸上露出了狡黠的笑容。
+
+"It would be my pleasure, Katsuragi-sensei."  
+"非常荣幸，葛城老师。"
+
+---
+
+Asuka Langley Soryu was fuming.  
+惣流·明日香·兰格雷气得要命。
+
+It wasn't like her regular irritated moods, she quite literally wanted to strangle people. Specifically, four people in particular.  
+这不像她平时那种普通的烦躁情绪，她真的想掐死人。特别是，有四个人特别让她想这么做。
+
+And after the events in English class, she realized that the last thing she wanted to happen was to allow that idiot Shinji to spend more than a minute alone in an empty classroom with the girl who was probably undressing him with her eyes earlier.  
+而在英语课上的那些事后，她意识到她最不希望发生的事情就是让那个白痴真嗣和那个可能刚才一直在用眼神剥他衣服的女孩在空无一人的教室里独处超过一分钟。
+
+Temporarily distracted with the idea of a slightly undressed Shinji, Asuka stomped her way to the classroom, face flushed.  
+一想到稍微有些衣衫不整的真嗣，明日香就气呼呼地走向教室，脸颊泛红。
+
+_I had him first! What the hell happened to my high-school romance!?  
+明明是我先来的！我的高中浪漫史到底是怎么了！？_
+
+---
+
+The classroom was deadly silent. Apart from the various sounds of brooms, chalkboard erasers getting spanked and the occasional cough Rei would let out as chalk dust threatened to suffocate her.  
+教室里死一般寂静。除了各种扫帚声、黑板擦被拍打的声音，还有偶尔在粉笔灰威胁下，丽会发出的咳嗽声。
+
+_"I'm grateful to Katsuragi-sensei but..."_ Rei cast a sidelong glance at the boy who seemed to have overtaken most of her mental thinking capacity. _"What am I supposed to do now!?"_  
+“我很感激桂木老师，但是……”丽斜眼瞥向那个似乎占据了大部分她思绪的男孩。“我现在该怎么办！？”
+
+With her thoughts meandering on borderline panic, she continued to bash the erasers together, causing more dust to enter her breathing tubes. It didn't take long for Rei to get overcome with a spat of coughing.  
+她的思绪在近乎恐慌的边缘徘徊，继续用力拍打黑板擦，更多的灰尘进入了她的呼吸道。没过多久，丽就被一阵咳嗽击倒了。
+
+"Rei, you're doing it all wrong."  
+"丽，你完全做错了。"
+
+Out of nowhere, Shinji's hands had snaked their way around her, clasping her hands and forcing her to stop. Her coughing had subsided, but she suddenly felt feverish and even closer to a nervous breakdown.  
+突然间，真嗣的手不知从何处伸了过来，环绕在她周围，握住她的手迫使她停下。她的咳嗽已经平息，但她突然感到一阵发烧，甚至更接近于崩溃的边缘。
+
+"S-shinji!" "真-真嗣！"
+
+"You're supposed to be doing it like this."  
+“你应该这样做的。”
+
+She wasn't even watching his hands. All that was on her mind right now was how close they were. She could feel his torso pressing up against her back, and she could have sworn she felt a heartbeat that was equally as stressed as hers was.  
+她甚至没有看他的手。此刻她脑海中唯一的念头就是他们靠得有多近。她能感觉到他的胸膛紧贴着她的后背，她几乎可以肯定，那心跳与她一样紧张。
+
+Was Shinji nervous? 真嗣他紧张吗？
+
+_"I need to make sure..."_ The out-of-character thoughts were making sense to her now, but later on, she would wonder what was going on through her mind at the time as she leant in closer to him. She felt completely enveloped by him, and wanted nothing more than to make this moment last for as long as she could. Forever, if possible.  
+"我需要确认一下..." 这些不合时宜的想法现在对她来说变得合理了，但后来她会疑惑当时自己的脑海里究竟在想些什么，因为她向他靠得更近了。她感到自己完全被他包围，只希望这一刻能尽可能长久地延续下去。如果可能的话，永远。
+
+"A-are you alright Rei?" "丽，你还好吗？"
+
+"I feel a little lightheaded. I think I inhaled too much dust."  
+"我感觉有点头晕。我想我吸入了太多灰尘。"
+
+"Do you wanna sit down for a moment?"  
+"你想坐下来一会儿吗？"
+
+"No. I'll be alright... Just..." She mustered as much courage as she could to slowly turn her head to meet his gaze. "Hold me like this... for a little longer."  
+"不用了。我会没事的...只是..." 她鼓起所有勇气，缓缓转头迎上他的目光。"就这样抱着我...再久一点。"
+
+He looked redder than the sun, and she could feel his nerves spasming throughout his body. He was just as nervous as she was.  
+他看起来比太阳还要红，她能感觉到他的神经在他全身抽搐。他和她一样紧张。
+
+But he also felt incredibly warm. And had a really nice scent of coconut and jojoba. Was that the type of shampoo he used?  
+但他也感到无比温暖。还有一股椰子和荷荷巴的宜人香气。那是他用的洗发水类型吗？
+
+Several minutes passed, with Rei enjoying the moment, and Shinji wondering if this was an appropriate time to pass out. His own thought process was malfunctioning, and he was seriously starting to wonder if Rei could feel the tightness in his pants as much as he could. He was really hoping she couldn't.  
+几分钟过去了，丽享受着这一刻，而真嗣则在想这是否是昏倒的合适时机。他自己的思维已经紊乱，他开始认真怀疑丽是否能感受到他裤子里的紧绷感，就像他自己感受到的那样。他真的希望她感觉不到。
+
+"Shinji." “真嗣。”
+
+"Y-yes!?" “是、是的！？”
+
+"How do you..." She shuffled uncomfortably against him, causing the poor teenage boy further skinship distress. It seemed like her sentence had got lost somewhere in her mind however, as she looked up at him again as she struggled to find her words.  
+"你怎么..." 她在他身边不安地挪动，让这个可怜的少年更加不知所措。她的句子似乎在脑海中迷失了方向，因为她再次抬头看向他，努力寻找着合适的词语。
+
+"...about me... howdoyou... I mean... oh, I sound so silly right now... Umm... give me a second..."  
+"...关于我... 你怎么... 我是说... 哦，我现在听起来好傻... 嗯... 给我一点时间..."
+
+Credit where it was due, even a faltering Rei sounded absolutely adorable to him right now. True, he didn't have much of a lid on his own haywire emotions himself right now but...  
+该承认的还是要承认，即便雷的声音有些颤抖，此刻在他听来也绝对可爱至极。确实，他自己现在也难以控制那些乱七八糟的情绪，但是……
+
+It was going to make for a really nice memory.  
+这将是一个非常美好的回忆。
+
+---
+
+Asuka was ready to kill. She had been secretly eavesdropping on the rendezvous in the classroom for a while now, and was deciding whether to run in and break it up before things got too hot in there.  
+明日香已经准备好大开杀戒了。她已经偷偷监听了教室里的会面好一阵子，正在考虑是否要冲进去阻止，以免事情变得无法收拾。
+
+But before she could make up her mind, she jumped out of her skin as she felt somebody tap her on the shoulder.  
+但还没等她下定决心，就吓得跳了起来，因为她感觉到有人拍了拍她的肩膀。
+
+"JEEZUSMARYMOTHERAND- MANA!?"  
+"天哪，玛丽妈妈和——玛娜！？"
+
+"Ssssshhh!" Mana put her finger to her lips. "They're going to hear you!"  
+"嘘——！" 玛娜将手指放在唇边。"他们会听到你的！"
+
+"Why are you here!?" Asuka whispered through gritted teeth.  
+“你为什么在这里？！”明日香咬牙切齿地低声问道。
+
+"For the same reasons you are."  
+“和你一样的原因。”
+
+"I'm here to make sure idiot Shinji doesn't take advantage of the situation."  
+“我来确保笨蛋真嗣不会趁机占便宜。”
+
+"Then... so am I!" Mana had nothing but a cheesy grin to offer an already enraged Asuka.  
+“那么...我也是！”玛娜除了一个尴尬的笑容，无法给已经怒火中烧的明日香任何安慰。
+
+"It doesn't take two of us, go home!"  
+"不需要我们俩都在这儿，回家吧！"
+
+"I don't wanna. I want to be there to help pick up the pieces after Ayanami inevitably turns him down."  
+"我不想去。我想在那之后帮忙收拾残局，毕竟绫波肯定会拒绝他。"
+
+"I don't think that's happening anytime soon..." Asuka sighed. "You can see just as well as I can what's going on in there. And did we ever mention that Rei is basically engaged to him?"  
+"我觉得这不会很快发生……" 明日香叹了口气。"你和我一样清楚里面发生了什么。而且我们有没有提过，绫波基本上已经和他订婚了？"
+
+It was a thing of beauty to see the ever-chipper Mana looked shocked, but she couldn't revel in it's beauty for too long. Mana had stood up from their crouched postion outside of the slightly cracked open classroom door and was ready to crash the party.  
+看到总是乐观的麻奈露出震惊的表情，真是美妙的一幕，但她不能沉浸在这美景中太久。麻奈已经从教室门外微微裂开的门缝中蹲着的位置站了起来，准备闯入聚会。
+
+"What are you doing!?" Asuka grabbed the back of the girl's shirt as Mana tried opening the door.  
+"你在干什么！？" 明日香抓住了女孩的衬衫后摆，而真奈正试图打开门。
+
+"We have to stop them before it's too late!"  
+"我们必须在他们来不及之前阻止他们！"
+
+"Shinji is going to be pissed!"  
+"真嗣会生气的！"
+
+"I'm pissed!" "我气炸了！"
+
+"So am I, but what if he starts hating you!"  
+"我也是，但如果他开始讨厌你怎么办！"
+
+The two girls continued to bicker outside the door. But one strong lunge forward from Mana, and both of them tumbled through the classroom together, giving both Shinji and Rei a more than unwelcome surprise.  
+两个女孩在门外继续争吵。但 Mana 一个猛冲向前，两人一起跌进了教室，给 Shinji 和 Rei 带来了一个相当不受欢迎的惊喜。
+
+"W-wha...! Asuka!? Mana!?"  
+“什-什么...！Asuka！？Mana！？”
+
+"I know you won't believe me if I told you this wasn't what it looks like, but at least believe me when I say she started it!" Asuka glared at Mana as both girls got up from the floor, looking sheepish.  
+“我知道就算我说这不是看上去的那样你也不会相信，但至少相信我，是她先挑起的！”Asuka 瞪着 Mana，两个女孩从地板上站起来，看起来有些尴尬。
+
+"I didn't start anything! I was on my way home when I saw a certain someone crouched in front of the door, looking suspicious!"  
+"我什么都没开始！我正走在回家的路上，就看到某个人蹲在门前，看起来很可疑！"
+
+"You traitorous sonofa-... _Rei? What are you doing?_"  
+"你这个叛徒……丽？你在干什么？"
+
+Electrical energy sparked around the enraged blue-haired girl as Shinji quickly backed away. He had seen this pattern often enough, and his instincts were all screaming at him to run. For good measure, he enveloped himself in his bracelet's shield first.  
+愤怒的蓝发女孩周围电光闪烁，真嗣迅速后退。他对此情景已司空见惯，本能告诉他快跑。为了保险起见，他先给自己套上了手镯的护盾。
+
+"**What are you doing here?**"  
+"你在这里做什么？"
+
+"SHE'S GONNA BLOW!" Asuka lifted her bracelet arm and covered herself with her own shield, as Mana followed suit.  
+"她要爆炸了！" 明日香举起戴着手环的手臂，用自身的护盾保护自己，而真奈也紧随其后。
+
+"Rei, calm down!" "丽，冷静下来！"
+
+"I AM CALM SHINJI" He decided that Rei screaming at him wasn't as cute as Rei stuttering at him.  
+"我冷静得很，真嗣。" 他觉得丽对他尖叫没有丽结巴着对他说话那么可爱。
+
+"SHINJI DO SOMETHING SHE'S GOING TO KILL US!" Asuka screamed as the electrical rage coming from Rei was starting to poke holes into the classroom around them.  
+“真嗣，快做点什么，她要杀了我们！” 明日香尖叫着，来自绫波的电气狂怒正开始在教室周围凿出孔洞。
+
+"But what can I...?" He suddenly thought of something that might work, but it was risky. Not just now, but for the potential aftermath.  
+“但我能做什么...？” 他突然想到一个可能奏效的办法，但风险很大。不仅是现在，还有可能的后果。
+
+Leaping in front of Rei, Shinji stood with his arms out, his shield deactivated.  
+真嗣跃到绫波面前，张开双臂，他的盾牌已关闭。
+
+"**GET OUT OF MY WAY SHINJI!**"  
+"让开，真嗣！"
+
+"I'm sorry Rei. But I can certainly do this for you instead." Rushing forward before Rei had the chance to fire whatever attack she had charged up, he wrapped his arms around her own, took one quick glance at her suddenly shocked crimson eyes, and kissed her.  
+"对不起，绫波。但我可以替你来做这件事。" 在绫波有机会发射她蓄力的攻击之前，他冲上前去，用双臂环抱住她的手臂，迅速瞥了一眼她突然震惊的深红眼睛，然后吻了她。
+
+"_Why are girls lips so soft?_" He thought to himself, as he felt the supernatural energy in the room deflate faster than light. His eyes were closed, but Rei's were wide open in shock.  
+"为什么女孩子的嘴唇这么柔软？" 他心中暗想，同时感觉到房间里的超自然能量以比光速还快的速度消散。他的眼睛闭着，但绫波的眼睛却震惊地睁得大大的。
+
+"_He... what is he... Shinji..._" She closed her own eyes as she allowed Shinji to continue whatever he was doing. "_Thank you Shinji._"  
+"他...他在做什么...真嗣..." 她闭上自己的眼睛，任由真嗣继续他的动作。"谢谢你，真嗣。"
+
+A few minutes later, Rei was passed out on the ground, a happy grin plastered over her face as Shinji slowly backed away from the two, now incredibly angry females that had watched his daring move.  
+几分钟后，丽已经昏倒在地，脸上挂着幸福的笑容，而真嗣则缓缓从那两位目睹了他大胆举动、此刻怒火中烧的女性身边退开。
+
+"Y-you told me to do something and this was all I could think of to stop her!"  
+"你让我做点什么，我只想到了这个办法来阻止她！"
+
+"I DIDN'T MEAN A SMOOCH IDIOT! WHAT WERE YOU THINKING!?"  
+"我不是让你亲她，你个笨蛋！你到底在想什么！？"
+
+"I wasn't really thinking at all to be honest..."  
+"说实话，我当时根本没怎么想……"
+
+"I COULD'VE TOLD YOU THAT, IDIOT!"  
+"我本可以告诉你的，白痴！"
+
+"Asuka, calm down..." "明日香，冷静点..."
+
+"I AM CALM, ASSHOLE!" "我很冷静，混蛋！"
+
+"I think I deserve a kiss next. I could forgive you for that." Mana raised her hand as she giggled, jumping on the terrified Shinji.  
+"我想我下次应该得到一个吻。我可以原谅你这一点。" 玛娜笑着举起手，跳向惊恐的 Shinji。
+
+"OH NO YOU DON'T! I'VE WAITED FAR TOO LONG FOR YOU TO JUMP AHEAD."  
+"哦不，你休想！我等了太久，你不能抢先。"
+
+As Shinji suddenly found himself entangled between the two warring girls, part of his mind wondered what he should make for dinner that night.  
+当真嗣突然发现自己夹在两个争吵的女孩之间时，他脑海中的一部分却在琢磨那晚该做些什么晚餐。
+
+Fish sounded good. If only the smell of fish on his breath might stop his mouth getting molested as much as it had lately.  
+吃鱼听起来不错。如果鱼腥味能阻止他的嘴像最近那样频繁被侵犯的话。
+
+---
+
+Her clock was telling her it was somewhere around two in the morning.  
+她的时钟显示现在大概是凌晨两点左右。
+
+Asuka hadn't had an easy time getting to sleep that night. Her mind was full of angry thoughts about what had happened earlier on that day.  
+那天晚上，明日香睡个好觉可不容易。她的脑海里充满了对当天早些时候发生的事情的愤怒思绪。
+
+"I'm falling behind... He's leaving me behind..." Small sobs began to fall on her pillow.  
+"我落后了...他把我甩在后面了..." 小小的啜泣声开始落在她的枕头上。
+
+This wasn't like her! She never cried for anyone, let alone that idiot! Pushing herself up from her bed, glaring angrily at everything around her, she made her decision.  
+这不像她！她从不为任何人哭泣，更别提那个笨蛋了！她从床上坐起来，愤怒地瞪着周围的一切，做出了决定。
+
+"I'm not losing him to anybody, especially not those two!" She stood up, her vest top and panties gently illuminated from the moonlight from her window. Creeping over to her bedroom door, she gently opened it whilst trying not to make a sound.  
+"我不会让他被任何人抢走，尤其是那两个人！" 她站起身，月光从窗户洒进来，轻轻照亮了她的背心和内裤。她蹑手蹑脚地走到卧室门口，轻轻地打开门，尽量不发出声音。
+
+The rest of the house seemed fast asleep. Which is exactly what she needed right now. She couldn't have anyone else interfering.  
+屋子的其他部分似乎都已沉睡，这正是她此刻所需要的。她不能让任何人来干扰。
+
+Luckily for her, his room was basically next door to her own.  
+幸运的是，他的房间几乎就在她自己的隔壁。
+
+Gently cracking open Shinji's bedroom door, she peeked in. He was fast asleep, one leg hanging off the side of his bed.  
+轻轻推开真嗣的房门，她探头望去。他正熟睡着，一条腿悬在床沿外。
+
+"_Thanks for leaving me some room, idiot._" She mentally cursed as she tiptoed her way to the side of his bed, and gently slid herself in.  
+"谢谢你给我留了点空间，傻瓜。" 她心里暗骂着，踮着脚尖走到他的床边，轻轻地滑进他的床铺。
+
+"You're such an idiot." She whispered, poking her crush carefully on the cheek. Wrapping her leg around one of his, she snaked her arms around him as she cuddled up to his warmth.  
+"你真是个傻瓜。" 她低声说道，小心翼翼地戳了戳她暗恋对象的脸颊。她用腿缠住他的一条腿，双臂环绕着他，依偎在他的温暖中。
+
+"You're mine, stupid Shinji. I won't let those two harlots steal you away from me." She glared at him, as though he could hear what she was saying. Instead, she found herself shocked as Shinji decided to turn around in his sleep, and face her directly. His own arms found their way around her, pulling her into a tighter cuddle then before.  
+"你是我的，笨蛋真嗣。我不会让那两个狐狸精把你从我身边抢走。" 她瞪着他，仿佛他能听到她的话。然而，她惊讶地发现真嗣在睡梦中转过身来，直接面对着她。他的手臂也找到了自己的位置，将她拉得更紧，比之前更加亲密。
+
+"H-hey, stupid Shinji! What are you doing!?"  
+“嘿，笨蛋真嗣！你在干什么！？”
+
+"Asuka..." Her whole world froze as she heard the sleepy boy mumble.  
+"明日香..." 听到那睡意朦胧的男孩喃喃自语，她的整个世界仿佛凝固了。
+
+"Are... are you awake Shinji..." The apparent answer was no, as the still sleeping Shinji proceeded to bury his head into her breasts, nuzzling happily.  
+"醒...醒了吗，真嗣..." 显然答案是否定的，因为仍在熟睡中的真嗣继续将头埋进她的胸口，幸福地蹭来蹭去。
+
+"W-wha!" Taken aback by his sudden, if unconsciously-based forwardness, she was at a loss. She, by all rights, should beat the living snot out of him for this, but...  
+"什-什么！" 对于他突如其来的，尽管是无意识的行为，她感到措手不及。按理说，她应该狠狠揍他一顿，但...
+
+If he was asleep... Then maybe it was okay. For a little while.  
+如果他已经入睡...那么或许暂时无妨。就一会儿。
+
+"A...su...ka..." The perverted idiot continued to nuzzle into her. "You smell really nice."  
+"A...su...ka..." 那个变态白痴继续在她身上蹭来蹭去。"你闻起来真香。"
+
+A faint smile crossed her face as she tightened her grip around him, giving Shinji a quick kiss on the cheek.  
+她脸上掠过一丝淡淡的微笑，紧紧抱住他，迅速在真嗣的脸颊上亲了一下。
+
+"You're welcome, Shinji. I hope you enjoy your surprise in the morning."  
+"不用谢，真嗣。希望你早上会喜欢那个惊喜。"
+
+---
+
+_Another day, another chapter.  
+又是一天，又是一章。_
+
+_I told you something was up, I don't **do** consecutive daily updates!  
+我告诉过你肯定有事，我可不常连续每天更新！_
+
+_But apparently I do, so yeah, hopefully I can keep this streak going. At this rate, I'll have 'Angel' finished in two weeks!  
+但显然我现在在这么做，所以，希望我能保持这个势头。照这样下去，我两周就能把《天使》写完了！_
+
+_Also, keep an eye on the facebook links in my profile. Always more for you there, including a Persona 5 playthrough I'm planning to do on Twitch real soon!  
+另外，请留意我个人资料里的脸书链接。那里总有更多内容等着你，包括我计划不久后在 Twitch 上直播的《女神异闻录 5》游戏实况！_
+
+_Until then! 到那时见！_
+
+---
+### Chapter 10: You Are Definitely (Not) Alone!  
+第十章：你绝对（不）孤单！  
+
+_What would you do if your hot childhood friend turned up in your bed wearing nothing but a vest top and panties?  
+如果你的青梅竹马穿着背心和内裤突然出现在你的床上，你会怎么办？_
+
+Shinji Ikari was a man.  
+碇真嗣是个男人。
+
+A man with morals. 一个有道德的男人。
+
+He wasn't one of those crazy perverts who'd end up masturbating over a sleeping girl, hell no.  
+他可不是那种会因为一个熟睡的女孩而自慰的变态，绝对不是。
+
+He was a _gentleman._ 他是个绅士。
+
+At least... That was the argument his conscious was trying to shove down his throat at seven thirty-three in the morning, after opening his eyes to literal boobs.  
+至少...这是他的良心在早上七点三十三分试图塞进他喉咙的论点，当时他睁眼就看到了真实的胸部。
+
+Forget morning wood. He was almost the victim of a morning knockout!  
+别提晨勃了。他差点成了晨间击倒的受害者！
+
+Have you ever seen those old cartoons, or even those anime that have the main protagonist, his conscious represented by an angel on one shoulder, and his desires or lust represented by a devil on the other?  
+你见过那些老卡通片，或者那些动漫吗？主角的良心由一个天使代表，站在一个肩膀上，而他的欲望或欲望则由另一个肩膀上的恶魔代表。
+
+Shinji's devil and angel side were currently in the midst of a _war._  
+真嗣的恶魔与天使两面此刻正陷入一场战争。
+
+"If she wakes up, she'll castrate us! _WITH OUR INTESTINES!"_  
+“如果她醒了，她会用我们的肠子把我们阉了！”
+
+"I'll castrate you with your damn halo, bitch boy. Look at that cleavage and tell me you don't fancy yourself indulging in some carnal desire."  
+“我会用你那该死的光环把你阉了，婊子养的。看看那乳沟，告诉我你不想沉溺于肉欲之中。”
+
+"If it was Rei, I wouldn't be here thinking up my excuses to Saint Peter!"  
+"如果是丽，我就不会在这里想着怎么向圣彼得解释了！"
+
+"Oh, so because Rei wouldn't fight back, you'd go for it!? You sick fuck, abusing defenseless girls like that."  
+"哦，所以因为丽不会还手，你就敢动手了？！你这个变态，对无助的女孩做出这种事。"
+
+"N-n-no, I didn't mean it like that!"  
+"不，不，不，我不是那个意思！"
+
+As Shinji looked between the metaphorical representations of his subconscious, he was beginning to wonder who was the real devil in their midst.  
+当真嗣在象征着他潜意识的比喻之间徘徊时，他开始怀疑他们中间谁才是真正的魔鬼。
+
+"...nnnngghh... Shinjiiii~" Asuka groaned in her sleep. "izz cooollllllld. Hug me tighter, idiooot~."  
+“...嗯嗯嗯...真嗣~”明日香在睡梦中呻吟着。“好冷啊。抱紧我，笨蛋~。”
+
+All mental fighting immediately ceased. A treaty was instantaneously signed, and the borders had been drawn on the map.  
+所有的心理斗争立刻停止了。一个条约瞬间签订，地图上的边界也已划定。
+
+Angel, Devil and Regular Shinji all shut up, nodded, and proceeded to do exactly what the redheaded demoness had ordered them to do. It may end in death and suffering, but in the end, you just can't run away from death.  
+天使、恶魔和普通真嗣都闭上了嘴，点头后便按照红发女恶魔的命令行事。这可能会以死亡和痛苦告终，但最终，你无法逃避死亡。
+
+All you can do is enjoy the chaos and carnage before the apocalypse turned the world upside down.  
+你能做的只是在末日将世界颠覆之前，享受这场混乱与屠戮。
+
+_And is was just a hug for Christ's sake!  
+这只不过是一个拥抱，看在上帝的份上！_
+
+He hadn't had many opportunities to hug her. Sure, there had been times in the past, but he never forgot her sweet scent. He would never understand how girls could still smell like flowers, even after sweating it out in midsummer Japan in a bed with a dude who just jumped off the BO train.  
+他其实没多少机会拥抱她。当然，过去也有过几次，但他从未忘记她那甜美的香气。他始终无法理解，女孩们如何在仲夏日本的闷热中，与一个刚从“臭烘烘”的火车上跳下来的家伙同床共枕后，还能散发出如花朵般的芬芳。
+
+But she just felt so soft. So warm. Her boobs felt fantastic as well, even if she was currently suffocating the poor teenage boy in an unconscious death hug into a well-endowed bosom.  
+但她就是那么柔软。那么温暖。她的胸部感觉也很棒，尽管她现在正无意中用她那丰满的胸脯给这个可怜的少年一个窒息般的拥抱。
+
+But hey, if it was his time, he at least wanted to die in the softest pillow the world had to offer.  
+不过，嘿，如果这是他的末日，他至少希望自己能死在这个世界上最柔软的枕头上。
+
+---
+
+It was around eight twenty five in the morning.  
+大约是早上八点二十五分。
+
+Asuka was wide awake, her face redder than a traffic signal, looking down at the boy she called her childhood friend who she had apparently crushed in her sleep against her own body. Never mind she was in his bed wearing nothing but a vest hanging off one shoulder and her favorite pair of panties and-  
+明日香完全清醒了，她的脸红得比交通信号灯还亮，低头看着那个她称之为青梅竹马的男孩，显然她在睡梦中紧紧地压在了自己身上。更别提她只穿着一件吊带衫，肩带滑落，以及她最喜欢的那条内裤，就躺在他的床上——
+
+_"ohmygod WHAT WAS I THINKING!?"  
+“我的天啊，我到底在想什么！？”_
+
+This was slightly different to that one time she had tried waking him up with a kiss. At least then she had been slightly more modest, but right now, she was practically in the nude. Give or take two more moves, but she was more preoccupied with what excuse she was giving Shinji when/if he woke up.  
+这次与她上次试图用亲吻唤醒他的那次略有不同。至少那时她还稍微矜持些，但现在，她几乎一丝不挂。再有两步也就差不多了，但她更在意的是，当/如果真嗣醒来时，她该找什么借口。
+
+It seemed like a much better idea last night, when she was mad at the world and was slightly _very lustful_ for whatever reasons her pubescent hormones had decided.  
+昨晚这主意似乎好得多，那时她对世界满腔怒火，又因青春期的荷尔蒙作祟而欲望难耐，至于具体原因，她自己也说不清。
+
+Though it didn't look like he would be waking up anytime soon. Shinji was still snoozing away, a stupid grin plastered over his face as he dreamt of whatever it was teenage boys do.  
+不过看起来他一时半会儿还醒不了。真嗣仍在酣睡，脸上挂着傻笑，梦里不知在做什么青春期男孩常做的事。
+
+_"Bet it's boobs."_ Asuka mused with a grin as she poked him in the cheek.  
+"肯定是胸部。" 明日香带着一丝坏笑，用手指戳了戳他的脸颊。
+
+"Shi~nji." She whispered his name in a sing-sing voice, albeit slightly riddled with nerves.  
+"真~嗣。" 她用一种轻快的语调低声呼唤他的名字，尽管略带紧张。
+
+"Shinji~... Are you waking up~?" She continued to poke him, her heartbeat starting to pump faster. When it appeared the dreaming boy was still far away in an erotic dreamland, she went for it.  
+"真嗣~... 你醒了吗~?" 她继续戳着他，心跳开始加速。当她发现梦中的男孩似乎还沉浸在某个色情的梦境中时，她决定采取行动。
+
+Turning him on his back, Asuka found herself on top of him, her face practically glowing with all the blood being pumped to her face.  
+将他翻过身来，明日香发现自己压在他身上，脸上因血液涌上而显得容光焕发。
+
+"S-shi-nji... D-do-do-do-don't wake up prettypleaseokay." Her voice was trembling as she had the boy straddled to his own bed, her hands pushing her up from either side of his face as her orange hair fell over her shoulders and face, sparkling in the early morning sunrise.  
+“真-真-真嗣...请-请-请-请不要醒来，好吗。”她的声音颤抖着，将男孩压在自己的床上，双手撑在他脸的两侧，橙色的头发垂落在肩上和脸上，在清晨的阳光下闪闪发光。
+
+_"Please don't wake up..."_ She silently begged as she leaned in closer. She couldn't wait anymore. She gently pressed her lips to his, holding it for as long as she dared.  
+“请不要醒来...”她默默祈祷着，身体更靠近了些。她再也等不及了。她轻轻地将自己的唇贴上他的，尽可能久地保持着这个吻。
+
+It felt like forever had just passed her by in the blink of an eye. Her own eyes were closed, and her pulse had been thumping so hard she couldn't hear a thing except for the sound of her own insanity.  
+仿佛一眨眼间，永恒就从她身边溜走了。她的双眼紧闭，心跳如此剧烈，以至于除了自己疯狂的心跳声，她什么也听不见。
+
+So naturally, she didn't have a clue the bedroom door had opened behind her.  
+所以自然而然，她完全没有意识到卧室的门已经在她身后打开了。
+
+---
+
+"This is impossible." “这不可能。”
+
+Misato Katsuragi glared up at her ceiling. Turning on her futon, she looked at her alarm clock.  
+葛城美沙斗瞪着天花板。她翻开被褥，看向闹钟。
+
+The digital digits gleefully told her it was currently eight twenty five in the morning.  
+数字显示屏欢快地告诉她，现在是早上八点二十五分。
+
+"You'd need all seven Dragonballs and summon Shenron to make this happen." She sat up in her bed, in her usual sleeping attire of vest and panties, much like a certain someone else, and scowled at the room around her.  
+“你需要集齐七颗龙珠召唤神龙才能让这发生。”她坐在床上，穿着她惯常的背心和内裤，与某人颇为相似，她皱眉环视四周。
+
+She was awake early, on a Saturday. And not a hangover in sight.  
+她在周六早早醒来，眼前没有宿醉的迹象。
+
+_"This cannot bode well."_ She thought to herself as she stood up, stretching out the kinks in her muscles. _"This has got to be a bad omen of some kind."_  
+“这可不妙。”她自言自语，站起身来，舒展着肌肉的僵硬。“这肯定是什么不祥的预兆。”
+
+"And I'm hungry too. Maybe I can drag Shinji out of bed and make me some breakfast, if he isn't already awake." Misato giggled as she entertained the thought of waking him up as she was dressed now. It was always funny to tease the boy, and it wasn't like she basically walked around showing as much skin as possible whenever she was at home anyway.  
+“而且我也饿了。也许我可以把真嗣从床上拽起来，给我做点早餐，如果他还没醒的话。”美里咯咯笑着，想象着像现在这样叫醒他的情景。捉弄那个男孩总是很有趣，而且她在家时也经常这样穿着，并不介意展示更多肌肤。
+
+Walking out of her room, she tiptoed towards Shinji's door, an evil grin on her face.  
+走出房间，她踮着脚尖朝真嗣的房门走去，脸上挂着一抹邪恶的微笑。
+
+_"Time for your morning service Monsieur Ikari!"_ She opened the door, only to discovered she had been beaten by a certain other roommate.  
+“该给你早上的服务了，一尅先生！”她推开门，却发现已经被某个室友抢先一步。
+
+Asuka Langley Soryu was straddling her prey, her mouth melded onto his, with what looked like no apparent intention of letting go.  
+惣流·明日香·兰格雷正跨坐在她的猎物上，嘴巴紧贴着他的，看起来完全没有松开的打算。
+
+By all rights, as their guardian, she should have got mad at Asuka for doing something so sneaky. But considering she was about to surprise Shinji with her own underwear show, Misato thought of an evil plan instead.  
+按理说，作为他们的监护人，她应该对明日香这种鬼鬼祟祟的行为感到愤怒。但考虑到自己正打算用内衣秀给真嗣一个惊喜，美里反而心生一计。
+
+Tiptoeing back to her own room, she opened a drawer, rummaged around and found what she had been looking for. She grinned at her treasure, and tiptoed back to Shinji's room.  
+她踮着脚尖回到自己的房间，打开抽屉，翻找了一番，终于找到了她要找的东西。她对着自己的宝贝咧嘴一笑，又踮着脚回到了真嗣的房间。
+
+As suspected, Asuka was still preoccupied. Somehow, Misato had managed to get as close as she could to the bed and leant on her knees, holding the 'treasure' in between two fingers in front of her as she prepared to give the hormonal teenagers the shock of a lifetime.  
+不出所料，明日香仍沉浸在自己的世界里。美里设法尽可能靠近床边，跪在地上，用两根手指夹着那件‘宝贝’，准备给这两个青春期的少年一个终生难忘的震撼。
+
+"I think you might have forgotten something Asuka."  
+"我想你可能忘了什么，明日香。"
+
+---
+
+Have you ever heard that sound?  
+你听过那种声音吗？
+
+You know, the one that sounds like ringing in your ears after a bomb exploded nearby, or the occasional flash of temporary tinnitus that seems to pop into your life every now and again?  
+就是那种，像炸弹在附近爆炸后耳朵里的嗡鸣声，或是偶尔闪现的暂时性耳鸣，似乎时不时就会闯入你的生活？
+
+That was all Asuka could currently hear as she opened her shellshocked eyes, mouth still glued to Shinji's as she turned her face ever so slightly to see the 'adult' of the house, grinning like a madwomen, holding what looked very much like a condom package in between them.  
+那是明日香目前唯一能听到的声音，当她睁开惊魂未定的眼睛时，她的嘴仍然紧贴着真嗣的嘴，她微微转过头去，看到家里的'大人'，像疯女人一样咧嘴笑着，手里拿着一个看起来很像避孕套包装的东西。
+
+"Whilst I don't exactly condone this kind of behavior, if you're going to do it secretly, at least be prepared for any unexpected consequences."  
+“虽然我并不完全赞同这种行为，但如果你们要偷偷摸摸地做，至少要做好应对意外后果的准备。”
+
+---
+
+"I SAID I WAS SORRY ASUKA, WHAT MORE DO YOU WANT FROM ME!?"  
+“我说了对不起，明日香，你还想从我这里得到什么！？”
+
+All Asuka could do was scream in retaliation to Misato's question as the apartment was once again turned into a warzone.  
+面对美里的问题，明日香只能尖叫以对，公寓再次变成了战场。
+
+Due to some technical issues, Misato's administrator bracelet had been taken in for maintenance. So the purple-haired teacher was currently cowering in fear behind Mana and Rei as Asuka proceeded to firebomb everything in sight.  
+由于一些技术问题，美里的管理员手环被送去维修了。因此，这位紫发教师此刻正躲在真奈和绫波身后，害怕得瑟瑟发抖，而明日香则开始对眼前的一切进行狂轰滥炸。
+
+"Really Sensei. Waving a condom in front of her face probably wasn't the best idea in the circumstances." Mana chuckled as she raised her shields to the maximum, deflecting a fireball into Shinji's wardrobe, setting all of Shinji's clothes on fire.  
+“真的，老师。在这种情形下，拿着避孕套在她面前晃悠恐怕不是个好主意。”真奈笑着说，同时将护盾开到最大，将一颗火球弹向真嗣的衣柜，点燃了他所有的衣服。
+
+"What I really want to know is why Soryu was in Shinji's room to begin with. I'll be sure to interrogate her once she has calmed down." Rei said nonchalantly as her shields were also raised, defending the stricken Misato as she watched her apartment burn in fire and fury.  
+“我真正想知道的是，为什么索留最初会在真嗣的房间里。等她冷静下来，我一定会审问她。”绫波淡然地说道，同时她的防御也已展开，保护着受伤的美里，她眼睁睁地看着自己的公寓在火与怒中燃烧。
+
+Both Mana and Rei had come running out of their rooms when they heard Misato's cry for help as the whole apartment had shook. It was as though an earthquake had targeted just their floor as the walls blew dust throughout the damaged structure.  
+玛娜和绫波听到美里的呼救声后，都从各自的房间冲了出来，整个公寓都在震动。仿佛地震只瞄准了她们这一层，墙壁上的灰尘随着受损结构的爆裂四处飞扬。
+
+Because it was deemed an emergency, they had not had a chance to change, and Shinji had woken up to what could only be described as the war of the panties. Mana and Rei didn't even have the luxury of shirts. But at least Mana had a bra on...  
+由于被认定为紧急情况，她们没有机会换衣服，真嗣醒来时看到的只能形容为内裤大战。玛娜和绫波甚至连衬衫都没穿。但至少玛娜还戴着胸罩……
+
+Sitting on the remains of his bed, a deadpan expression on his face, Shinji firmly decided he was going to buy a lock for his door. And he was definitely having fish today, if not for every meal he'd have for the rest of his life.  
+坐在床的残骸上，脸上毫无表情，真嗣坚定地决定要给自己的房门买把锁。而且他今天一定要吃鱼，如果不是每顿饭都吃鱼的话，那他这辈子剩下的日子都要吃鱼了。
+
+---
+
+_Decided on a shorter chapter. I feel like this could almost be an omake in a way.  
+决定写个短章节。我觉得这几乎可以算是个番外了。_
+
+_But yeah, if you liked the latest shenanigans, leave a review!  
+不过，如果你喜欢最新的那些胡闹，别忘了留下评论！_
+
+_Also, check out the links in my profile for more craziness!  
+另外，查看我个人简介中的链接，了解更多疯狂内容！_
+
+---
+### Chapter 11: Return To The Origin  
+第十一章：回归本源  
+
+Shinji Ikari woke up with a start. Thankfully, his room was empty for once, his recently repaired bedroom dimly lit in the rising sun's lazy light. Pulling on his usual attire, he noticed a strange feeling. He knew what it was, but he couldn't quite put it into words.  
+碇真嗣猛地醒来。幸运的是，他的房间这次空无一人，最近修好的卧室在初升太阳的慵懒光线中昏暗地照亮着。他穿上平时的衣服，注意到一种奇怪的感觉。他知道那是什么，但无法用言语表达。
+
+Opening the door of his bedroom, he was beginning to confirm his earlier emotions. The house was eerily quiet. Misato, Rei, Mana... and Asuka. Nobody was home.  
+打开卧室的门，他开始确认之前的情绪。房子异常安静。美里、绫波、玛娜……还有明日香。家里一个人也没有。
+
+No. It was even quieter than that. Misato's tiny little apartment looked as though nobody had lived in it for years. Braving himself, Shinji walked around all the bedrooms in the apartment, knowing full well that if the girls were hiding in some corner, at least one of them would punch him into next Tuesday.  
+不，这里比那还要安静。美里的小小公寓看起来仿佛多年无人居住。深吸一口气，真嗣在公寓的各个卧室间徘徊，他心里清楚，如果女孩们藏在某个角落，至少会有一个会把他揍到下周二。
+
+But he found nothing. 但他什么也没找到。
+
+Misato's room was bare. No furnishings or furniture. It was as though nobody had lived there at all. He found a similar story going into Asuka's room. Not a soul had ever touched foot in that room, he was sure of it. Rei and Mana's rooms didn't even exist, which confused him even more. It had been necessary to use the power of their bracelets to make a sort of makeshift renovation for the girls to move in.  
+美里的房间空空如也，没有任何家具。仿佛从未有人居住过。他走进明日香的房间，情况如出一辙。他确信，从未有人踏足过那个房间。丽和玛娜的房间甚至不存在，这让他更加困惑。为了女孩们能搬进来，他们不得不借助手环的力量进行了一次临时的改造。
+
+But where their bedroom doors should have been was the unmistakable sight of the apartment's bland colored walls. No door. No handle. No Rei. No Mana.  
+但本应是卧室门的地方，却是公寓那单调色彩墙壁的清晰景象。没有门。没有把手。没有丽。没有真奈。
+
+Panic was beginning to take hold. He didn't have a clue what was going on. Where was everybody?  
+恐慌开始占据心头。他完全不知道发生了什么。大家都在哪儿？
+
+Running to the apartment door, he swiped his keycard. The door's automatic systems were offline. Grabbing the manual release, Shinji shifted the surprisingly heavy door open and took a look outside.  
+他跑到公寓门前，刷了下钥匙卡。门的自动系统已离线。抓住手动释放装置，真嗣用力推开了异常沉重的门，向外望去。
+
+...Or what was left of it.  
+...或是它残存的部分。
+
+A destroyed world greeted his view. A blood-red sky illuminated destroyed apartment buildings and collapsed skyscrapers over what should have been the view of Tokyo-3. Looking around the building he was currently in, he was genuinely surprised Misato's apartment block was still standing. Everything bar their apartment was in total ruins. Girders were pointing out of huge holes in the structure, as though a huge bullet or something similar had torn chunks out of the architecture. But the most disturbing thing was easily the huge, alien looking hand that was resting on a good portion of the building. That entire side of the building the giant, severed limb was resting on was caked in what looked like a ton of _blood_.  
+一个毁灭的世界映入他的眼帘。血红色的天空照亮了被摧毁的公寓楼和倒塌的摩天大楼，本应是东京-3 的景象。环顾四周，他所在的建筑，他真的惊讶于美里小姐的公寓楼居然还屹立不倒。除了他们的公寓，其他一切都是废墟。巨大的钢筋从建筑结构上的大洞中伸出，仿佛是被巨大的子弹或其他类似的东西撕裂了建筑。但最令人不安的，无疑是那只巨大的、看起来像外星生物的手，它正压在建筑的大部分上。那只巨型断肢所压的那一侧建筑，覆盖着看起来像是一大滩血的东西。
+
+But what scared him more than anything else, was that he vaguely recognized that hand from somewhere.  
+但比任何事情都更让他害怕的，是他隐约觉得那只手在某个地方见过。
+
+His whole body shaking, he picked his way closer to the hand, across the external balcony of their apartment building. Dodging countless holes and debris was difficult, but he made it to the other side, trying his hardest not to breathe in the smell of death and rot the blue and slightly black, robotic looking hand was giving off. Leaning over the edge of the balcony, he peered over to see if the hand was connected to anything.  
+他全身颤抖着，小心翼翼地穿过公寓楼的外阳台，向那只手靠近。避开无数的洞口和碎片十分艰难，但他还是设法到达了另一边，竭尽全力不去吸入那只蓝色略带黑色、机器人般的手所散发出的死亡与腐烂的气味。他俯身探出阳台边缘，试图查看那只手是否连接着什么。
+
+And saw Mana's Evangelion Unit 00, albeit it being easily taller than the apartment building, and looking as though _something had been eating it_.  
+然后他看到了真嗣的零号机，尽管它比公寓楼还要高得多，看起来像是被什么东西啃食过一样。
+
+"_W-what the hell is going on?_" Shinji whispered, horrified by the titanic, robotic corpse in front of him. "_What... why... Why is an Evangelion... here!?_"  
+“这...这到底是怎么回事？”真嗣低声惊呼，眼前巨大的机器人尸体让他感到恐惧。“为什么...为什么零号机会在这里！？”
+
+After somehow making his way out of the building, he slowly walked over to the head of the downed beast. Or what was left of it at least. Half of what he could assume was a skull was protruding from the giant robots helmet. It apparently used to have a single, cyclopedic eye too, though god only knew where that had gone, leaving a black, gaping abyss in its place.  
+经过一番周折，他终于走出了那栋建筑，缓缓地走向那倒地巨兽的头部。或者说，至少是它残存的部分。他猜测那应该是半个头骨，从巨型机器人的头盔中突出来。它原本似乎还有一只巨大的、百科全书般的眼睛，但天知道那只眼睛去了哪里，只留下一个漆黑、空洞的深渊。
+
+Some distance away, Shinji noticed something else. A long, somewhat thin, cylindrical tube was lying on the ground, easily enough to fit a human inside, if not a few. Some sort of hatch was open on the tube. A terrifying sense of dread raced through him, as his feet slowly dragged his way towards the tube. He was more scared than he had ever been in his life. Partly due to the fact that he felt an incredible amount of familiarity when he saw the strange object.  
+在稍远的地方，真嗣注意到了别的东西。一根细长的圆柱形管子躺在地上，足够容纳一个人，甚至几个人。管子上有一个舱门是打开的。一股强烈的恐惧感袭来，他的脚步不由自主地拖着他向那根管子走去。他从未如此害怕过。部分原因是当他看到这个奇怪的物体时，感到一种难以置信的熟悉感。
+
+Like he had seen it before somewhere.  
+仿佛他曾在某个地方见过它。
+
+But even though his memories from eight years ago were kind of fuzzy, he could clearly remember Mana hadn't shown him anything else with her toy Evangelions. He certainly didn't remember a tube-like object from back then. So why did he feel he knew what it was?  
+但尽管八年前他的记忆有些模糊，他仍能清楚地记得 Mana 没有用她的玩具福音战士给他展示过其他东西。他当然不记得当时有这样一个管状物体。那么，为什么他觉得自己知道它是什么？
+
+The hatch had opened facing the sky. After some difficulty, Shinji managed to pile some debris together, enough to help him make a stand to clamber on top of the metallic tube. Even touching it as he clambered on top left him with that same horrifying sense of familiarity. How on earth did he... recognize this thing!?  
+舱门是朝天空开的。经过一番努力，真嗣设法堆起了一些碎片，足够让他站稳脚跟，爬上金属管的顶部。即使在他爬上去时触摸到它，也让他感到那种可怕的熟悉感。他到底是怎么......认出这东西的！？
+
+Standing on top it the metal hunk, keenly aware that he felt like a tightrope walker taking tentative steps towards his own doom, Shinji slowly made his way forward, aware that a strong gust of wind was threatening to blow him off lest he make any kind of haste. He eventually made it to the opened hatch, and took a very long time convincing himself to look inside.  
+站在那块金属上，真嗣敏锐地意识到自己就像一个走钢丝的人，小心翼翼地走向自己的厄运，他慢慢地向前移动，意识到一阵强风随时可能将他吹落，除非他加快速度。最终，他到达了打开的舱门，花了很长时间才说服自己往里面看。
+
+It was dark, and he noticed a strange liquid pooled at the bottom of the container. Intricately designed machinery was inside, but it was still a little too dark for him to see anything clearly. Taking a deep breath, Shinji climbed into the hatch and let himself down, an audible splash echoing as he landed in whatever the strange liquid was under his feet. His breath was ragged, and he was only faintly aware his pulse was hammering through his chest. He looked up and his breath suddenly got caught in his throat.  
+四周一片漆黑，他注意到容器底部积聚着一种奇怪的液体。内部是精巧设计的机械装置，但光线实在太暗，他看不清任何东西。深吸一口气，真嗣爬进舱口，让自己滑下去，随着一声响亮的溅水声，他落入了脚下那不知名的液体中。他的呼吸急促，只能隐约感觉到心跳如鼓点般在胸腔中回响。他抬头望去，呼吸突然一窒。
+
+Lying in a chair, curled into a fetal position, was another corpse, although it was easy to see that this person had once been human. A skeleton, wrapped in a strange, yet-once-again somewhat familiar suit of white that clung to the body tightly, highlighted with black in certain areas. And from what little he could see of the torso from where he stood, he could easily see the numbers '00' embellished just under the collar.  
+椅子上躺着一具蜷缩成胎儿姿势的尸体，尽管不难看出这个人曾经是人类。一具骷髅，包裹在一件奇怪却又有些熟悉的白色紧身衣中，某些部位用黑色点缀。从他所站的位置看去，他可以清楚地看到胸口下方绣着数字“00”。
+
+He should have been running. Run somewhere far, far away. But his whole body was frozen, his eyes unmoving from the corpse, the corpse of someone he was sure he knew.  
+他本该逃跑的。逃到很远很远的地方去。但他的整个身体僵住了，目光一动不动地盯着那具尸体，那具他确信自己认识的尸体。
+
+"W-who are you..." His trembling voice echoed around the inside of the metallic walls.  
+"你、你是谁..." 他颤抖的声音在金属墙内回荡。
+
+_"She was somebody I failed."  
+"她是我未能保护的人。"_
+
+Whirling around, Shinji looked at where the strange, disembodied voice had come from, his pulse skyrocketing as he searched for whoever had just talked behind him.  
+转身望去，真嗣寻找着那奇怪的、无实体声音的来源，心跳加速，试图找出刚刚在他背后说话的人。
+
+"WHO ARE YOU!? W-WHERE ARE YOU!?"  
+"你是谁！？你在哪儿！？"
+
+_"I am you. And I am right beside you."  
+"我就是你。我就在你身边。"_
+
+"DON'T BULLSHIT WITH ME. I CAN'T SEE YOU." Shinji looked around him in a panic. He couldn't see anything. What the hell was going on? And that voice... sounded just like...  
+"别跟我胡扯。我看不见你。" 真嗣惊慌地环顾四周。他什么也看不见。这到底是怎么回事？还有那个声音...听起来就像...
+
+Standing on top of the hatch above him, he finally noticed the ghostly-looking boy looking down at him. A boy he instantly recognized, but could barely recognize at all.  
+站在他头顶的舱口上，他终于注意到了那个幽灵般的男孩正俯视着他。一个他立刻认出，却又几乎无法辨认的男孩。
+
+The ghost of Shinji Ikari was talking to the living, breathing Shinji Ikari. The ghost was wearing a suit similar to the skeleton was, except it had a purple color scheme, with highlights of green and red.  
+碇真嗣的幽灵正在与活着的、呼吸着的碇真嗣交谈。幽灵穿着一套与骷髅相似的西装，只是颜色方案是紫色的，点缀着绿色和红色的高光。
+
+"W-who... are you?" “你...你是谁？”
+
+_"Come with me, and I'll show you."  
+"跟我来，我会展示给你看。"_
+
+Clambering out of the hatch, living Shinji once again found himself in the bask of the blood-red sky looming over what was left of Tokyo-3. Ghost Shinji was standing next to him, a tired expression worn over a stretched face. He had dark circles under his eyes, and his suit was torn in several places. What on earth happened?  
+从舱口爬出，活着的碇真嗣再次发现自己置身于笼罩着残破的第三新东京市的血红色天空之下。幽灵真嗣站在他旁边，脸上带着疲惫的表情，面容显得有些憔悴。他的眼圈下有黑眼圈，西装也在多处破损。到底发生了什么？
+
+_"I am you. Although it would be a lie to say I am the same you."  
+"我就是你。虽然说我就是你，这话并不完全准确。"_
+
+"That doesn't make a hell of a lot of sense."  
+"那根本说不通。"
+
+The ghost gave a weak chuckle. It was a depressing sort of noise, full of mirth and depression. It was like looking into a shattered mirror. Warped, and nothing like what Shinji could even imagine. He was looking at a broken version of himself.  
+幽灵发出了一声微弱的轻笑。这是一种令人沮丧的声音，充满了欢乐与忧郁。就像凝视着一面破碎的镜子，扭曲变形，与真嗣所能想象的完全不同。他正看着一个支离破碎的自己。
+
+_"I'm not going to lie, it gets a fair bit weirder from here on out."_ _Broken_ Shinji still seemed to have a sense of humor, although it was still riddled with a lack of sanity and warmth.  
+"我不打算撒谎，从这里开始会变得更加奇怪。""破碎的真嗣似乎仍保有一丝幽默感，尽管其中依然充斥着疯狂与冷漠。
+
+The ghost and Shinji left the metallic tube and starting walking into the ruins of the city. Not a soul was to be found, save for the schoolboy and the literal soul pacing around.  
+幽灵和真嗣离开了那个金属管，开始走向城市的废墟。除了四处徘徊的校园男孩和那个字面意义上的灵魂，再无一人踪影。
+
+"You still haven't really answered my question."  
+“你还是没有真正回答我的问题。”
+
+_"Before I answer that, there is something I need to show you. But before I do that, I need to ask you a very important question."_ The ghost stopped in the middle of a downtown high street, riddled with craters and destroyed buildings. Turning to face the living, the ghost looked grim.  
+“在我回答之前，有些东西我需要给你看。但在那之前，我需要问你一个非常重要的问题。”幽灵停在了市中心一条满是弹坑和毁坏建筑的大街上，转身面对着活人，神情严峻。
+
+_"Do you believe in God?"  
+"你相信上帝吗？"_
+
+---
+
+They continued to walk. Shinji was beginning to recognize parts of the city, at least from what was left of it. But there were some parts he didn't. Putting aside the destroyed remnants of huge artillery guns stationed at various parts of the city, and what looked like destroyed military tanks and VTOLs littering the streets, there were also signs pointing to evacuation shelters. Looking around him answered quite plainly that at some point they had been necessary, but in his Tokyo-3, he'd never seen any of those signs. Aside from earthquake-related shelters, but they didn't look anywhere near as hi-tech as some of the destroyed shelters they'd walked past. It was as though they were built to repel nuclear blasts, or some other weapon of mass destruction. And had failed.  
+他们继续前行。真嗣开始辨认出城市的某些部分，至少是从残留的部分来看。但有些地方他并不熟悉。撇开散布在城市各处被毁坏的重型火炮残骸，以及街道上看似被摧毁的军用坦克和垂直起降飞机不谈，还有指向疏散避难所的标志。环顾四周，很明显这些避难所在某个时刻曾是必要的，但在他的第三新东京市，他从没见过这些标志。除了与地震相关的避难所外，但它们看起来远没有他们经过的一些被毁避难所那么高科技。仿佛它们是为了抵御核爆炸或其他大规模杀伤性武器而建，却失败了。
+
+"This is seriously messed up... What the hell happened..." Shinji murmured as they picked their way through the destroyed city.  
+"这真是乱套了...到底发生了什么..." 真嗣喃喃自语，他们小心翼翼地穿过这座被毁的城市。
+
+The ghost was silent, walking towards whatever unknown destination he had in mind. It was frightening, but Shinji had no other choice but to follow his ethereal doppelgänger to wherever this madness ended.  
+幽灵沉默着，朝他心中未知的终点走去。这情景令人恐惧，但真嗣别无选择，只能跟随这位飘渺的分身，直到这场疯狂终结。
+
+Eventually, they reached what looked like a station. A station leading underground. Written in big letters above the entrance was the words 'GEOFRONT ENTRANCE B-2'. There was also a smaller notice underneath.  
+最终，他们到达了一个看似车站的地方。一个通往地下的车站。入口上方用大字写着‘GEOFRONT 入口 B-2’。下方还有一则较小的告示。
+
+_Entrance strictly prohibited to NERV personnel only. Unauthorized access will lead to prosecution.  
+仅限 NERV 人员进入。未经授权的访问将导致起诉。_
+
+NERV.
+
+"NERV." Shinji whispered. He was sure he had never said the name in his life, but the word fell off his tongue effortlessly. Like it was used to it.  
+"NERV。" 真嗣低声说道。他确信自己一生中从未提及过这个名字，但这个词却毫不费力地从他舌尖滑落。仿佛早已习惯。
+
+_"Let us go."_ _Ghost_ Shinji said somberly as he walked into the station.  
+"我们走吧。" 幽灵真嗣肃穆地说着，走进了车站。
+
+"B-but the sign...!" "但指示牌...！"
+
+_"It's alright. There is nobody there now."  
+“没事的，现在那里没人。”_
+
+Shinji didn't know whether he should feel relieved or even more scared by that. Where was everybody?  
+真嗣不知道自己是该感到松一口气，还是更加害怕。大家都去哪儿了？
+
+The inside felt like some sort of crazy military base. Metallic walls, riddled with what looked like gunshots and bloodstains continued down towards a broken sliding door, embellished with what looked like a logo of some kind. It was hard to make out from all the beating the door had taken, but he could clearly make out 'NERV' in red, along with something like a slogan circled around it.  
+内部看起来像是个疯狂的军事基地。金属墙壁上布满了像是枪击和血迹的痕迹，一直延伸到一扇破损的滑动门，门上装饰着某种标志。虽然门遭受了重创，难以辨认，但他清楚地看到了红色的“NERV”字样，周围似乎还有一圈标语。
+
+"Gods in his heaven..." Shinji voiced with trembling nerves.  
+"神在他的天堂..." 真嗣颤抖着声音说道。
+
+_"...All's right with the world. Ha."_ The ghost finished with a bitter laugh. _"Nothing's right with the world. Nothing..."_  
+"...世界一切安好。哈。" 幽灵以苦笑结束。"世界没有一处是好的。没有..."
+
+They walked a little further in, and came across what looked like a tram, with it's tracks leading deeper into the underground. It was surprisingly a lot less damaged than the rest of what Shinji had seen so far. Entering into the train, Shinji followed his ghost, looking apprehensively at the vehicle around him.  
+他们又往里走了一段，遇到了一辆看起来像是有轨电车的东西，轨道延伸至更深的地下。这比真嗣迄今所见的大部分地方都要完好得多。进入列车后，真嗣紧随幽灵，不安地环顾四周的车辆。
+
+_"I bet there's no power left, but maybe we'll be lucky. Grab that lever for me."  
+"我敢打赌电力已经耗尽了，但或许我们能走运。帮我拉一下那个操纵杆。"_
+
+"What? Why me?" "什么？为什么是我？"
+
+_"It'll be kind of hard to make this thing move when I can no longer touch anything."_ The ghost demonstrated his point by trying to grab the lever, and his hand simply passing through it. With his point taken, Shinji grimaced and pulled the lever. After a moment's uncertainty, there was a jolt as the train's deep slumber was interrupted, it's internals groaning in protest as the train began a slow descent into the darkness.  
+"当我连碰都碰不到任何东西的时候，要移动这玩意儿可有点困难。" 幽灵用行动证明了他的观点，试图抓住操纵杆，但手直接穿了过去。意识到这一点后，真嗣皱了皱眉，拉下了操纵杆。片刻的不确定后，列车猛地一震，仿佛从沉睡中被唤醒，内部发出抗议般的呻吟，缓缓驶入黑暗之中。
+
+_"What do you know, apparently there is some power left. I hope there's enough for a return trip."_ The ghost laughed mirthlessly, giving Shinji another reason to panic.  
+"你知道吗，显然还有一些能量剩下。希望足够我们返程。" 幽灵冷笑一声，这让真嗣又多了一个恐慌的理由。
+
+"Don't joke about that! Where are we going anyway!?" The laugh left the ghosts face quickly, and something like anger flashed over his face.  
+"别开这种玩笑！我们到底要去哪儿！？" 笑声很快从幽灵的脸上消失，取而代之的是一种类似愤怒的表情。
+
+_"Into the heart of everything. Where everything began, and everything ended."  
+"进入一切的核心。一切开始的地方，也是一切结束的地方。"_
+
+Light flashed past the windows as the view suddenly expanded from jet-black. Shinji gasped in terror at what should have been a beautiful sight, but was now a wasteland. Greenland was now dyed red from huge amounts of blood, there was destruction and debris everywhere, and Shinji saw the remnants of what looked like a pyramid erected in the center.  
+光线掠过车窗，视野突然从漆黑一片中展开。本应是美景的景象，如今却成了一片荒芜，让真嗣惊恐万分。格陵兰岛被大量鲜血染成了红色，到处是破坏和残骸，真嗣看到中央似乎矗立着一座金字塔的遗迹。
+
+But what caught his attention was the sight of another gigantic Evangelion. It was bright red, and had an embellished number of 02. Half of it's head was missing, several of it's remaining eyes had been gouged out, leaving only a single green eye remaining. It's arms and legs had been severed and even from the considerable distance they were, Shinji could still make out a meaty cross-section from the severed limbs. The quick glance he had seen suddenly made his stomach lurch, and he was almost thankful the destroyed scenery had been blotted out as the train made its way through another tunnel.  
+但吸引他注意的是另一台巨大的 EVA。它鲜红夺目，编号 02 装饰华丽。它的头部缺失了一半，剩下的几只眼睛被挖出，仅剩一只绿色的眼睛。它的四肢被切断，即使相隔甚远，真嗣仍能清晰地看到断肢处的血肉横截面。那一瞥让他胃里一阵翻腾，他几乎庆幸列车驶入另一个隧道，破坏的景象被暂时遮蔽。
+
+_"Heh. I don't think you'll be holding on to your lunch anyway, we'll need to go see Unit 02 up close."  
+“呵，我看你午餐是保不住了，我们得去近距离看看 02 号机。”_
+
+"Are you joking!? Why?!" "你在开玩笑吧！？为什么！"
+
+_"We need to go visit the grave of another I failed."  
+"我们得去拜访另一个我未能救赎的墓地。"_
+
+_"Aren't you a ball of sunshine."_ Shinji thought grimly as the train pulled into a stop. After a considerably long walk across the destroyed ruins outside, Shinji looked up to realize he could see the sky, even though they had travelled what felt like miles underground.  
+"你真是个阳光灿烂的家伙。" 真嗣阴郁地想着，火车缓缓停下。经过一段相当长的步行穿越外面的废墟后，真嗣抬头发现他竟然能看到天空，尽管他们似乎已经在地下行进了数英里。
+
+_"You never used to be able to see the sky. But after the Geofront was destroyed, well..."_ Ghost Shinji didn't have to explain. The blood-red sky peering at them from their giant hideaway hole was answer enough.  
+"你以前从未能看见天空。但在地底都市被摧毁后，嗯..." 幽灵真嗣无需多言。从他们巨大的藏身洞穴中窥视着他们的血红色天空，已经足够说明一切。
+
+After a short while, they made it to the corpse of the red giant. _Corpse_ felt like fitting word for a robot that apparently had blood, muscles and bones, like the ones Shinji could visibly see sticking out from the red Unit 02. He looked at his own terrified reflection from the single, lifeless eye left on the towering robot.  
+不久后，他们来到了红色巨人的残骸前。对于一具显然拥有血液、肌肉和骨骼的机器人来说，"残骸"这个词再合适不过了，真嗣可以清楚地看到红色二号机上突出的这些东西。他从那只仅存的、无生命的巨大眼睛中看到了自己惊恐的倒影。
+
+_"What happened to you..."_ Shinji's mind echoed the question, along with the million other questions he needed answering about the state of the world he was in. The only one who could answer his questions had walked away, towards another tube-like object that he had found earlier. This time the hatch was open on it's side, allowing the ghost Shinji to simply walk inside.  
+"你发生了什么..." 真嗣的脑海中回荡着这个问题，以及他需要解答的关于这个世界的无数其他问题。唯一能回答他问题的人已经走开，朝他之前发现的另一个管状物体走去。这次舱门是侧开的，幽灵真嗣可以直接走进去。
+
+Not looking forward to it, living Shinji followed him in.  
+不情愿地，活生生的真嗣跟着他进去了。
+
+And found another corpse. This time not in the fetal position, but lying back on the chair, it's hands still grabbing the two joysticks, the skull's morbid smile grinning at the terrified boy. Shinji spotted the same '02' markings as was on the Evangelion's body outside. But the number was quickly forgotten as he paid more attention to the skeleton's face, and noticed a pair of crimson head accessories where the hair should have been. Head accessories that looked an awful lot like the ones...  
+又发现了一具尸体。这次不是蜷缩的胎儿姿势，而是仰靠在椅子上，双手仍然紧握着两个操纵杆，骷髅那病态的笑容对着惊恐的男孩咧开。真嗣注意到了与外面 Eva 机体上相同的'02'标记。但这个数字很快就被他遗忘，因为他更关注骷髅的面孔，并注意到本该是头发的地方有一对鲜红的头饰。这些头饰看起来非常像……
+
+_"A-Asu...ka...?!"_ A scared whimper escaped from him as Shinji took a step backwards, the liquid on the floor splashing loudly.  
+“绫……绫波……？！”一声恐惧的呜咽从他口中逃出，真嗣后退一步，地板上的液体溅起响亮的声音。
+
+_"That is correct. The second girl I failed."_ His ghost was looking at the corpse, an unreadable expression on his face.  
+“那是正确的。第二个女孩，我失败了。”他的幽灵凝视着尸体，脸上表情难以捉摸。
+
+_"Asuka Langley Soryu. The Pilot of Evangelion Unit 02."  
+“惣流·明日香·兰格雷。EVA 二号机的驾驶员。”_
+
+Shinji was beyond shocked. His mind was getting closer and closer to a nervous breakdown, but he still had one, excruciatingly painful question to ask.  
+真嗣震惊至极。他的精神越来越接近崩溃边缘，但还有一个痛苦至极的问题要问。
+
+"W-was that other... c-c-_corpse_ we saw e-earlier...?"  
+"那-那是我们之前看到的另...另...另一具尸体吗...？"
+
+_"Rei Ayanami. The Pilot of Evangelion Unit 00."  
+"绫波零。EVA 初号机的驾驶员。"_
+
+_"N-no... Asuka... Rei... NO!"_ Shinji wanted to scream, he wanted to throw up, he wanted to curl up in a ball, or run away or anything to stop this nightmare unravelling around him.  
+"不...明日香...绫波...不！" 真嗣想要尖叫，想要呕吐，想要蜷缩成一团，或是逃跑，或是做任何事情来阻止这场噩梦在他周围展开。
+
+"A-and Misato?! Mana Kirishima?! My parents?!" Shinji could barely whisper. He didn't want to hear, but he needed to know.  
+“美里小姐？！雾岛真名？！我的父母？！” 真嗣几乎无法出声。他不想听，但又必须知道。
+
+_"Misato is dead. My mother died when I was four years old, in what was known as a 'Contact Experiment'. My father..."_ The ghost looked ready to murder at the mention of their shared father.  
+“美里已经去世了。我母亲在我四岁时就死了，那次被称为‘接触实验’的事故中。我父亲……” 提到他们共同的父亲时，幽灵看起来像是要杀人一样。
+
+_"My father. Gendo Ikari."_ The ghost looked horrifyingly angry. Shinji backed away slowly, eyes wide, shivering in raw fear.  
+“我的父亲。碇源堂。” 幽灵看起来愤怒得可怕。真嗣慢慢后退，眼睛睁得大大的，浑身因纯粹的恐惧而颤抖。
+
+_"Gendo Ikari is the man who helped me destroy the world."  
+"碇源堂是那个帮助我毁灭世界的人。"_
+
+His fear had become numb. The shock of those words turned off everything in his brain except the echo of his ghost's last words reverberating around his mind. His father, had helped me, destroy... the world?  
+他的恐惧已变得麻木。那些话语带来的震惊关闭了他大脑中的一切，除了他幽灵最后的话语在他脑海中回荡。他的父亲，帮助我，毁灭...世界？
+
+_"But I'm curious. You mentioned another..."_ The ghost turned around to face him, his anger replaced by curiosity.  
+"但我很好奇。你提到了另一个..." 幽灵转过身来面对他，愤怒被好奇所取代。
+
+_"Who is Mana Kirishima?" "谁是御槍マナ？"_
+
+Shinji's mental collapse was temporarily halted by the next revelation thrown at him from his crazy ghost. _What do you mean, who was Mana Kirishima?_  
+真嗣的精神崩溃暂时被这个疯狂幽灵抛出的下一个真相所打断。你什么意思，谁是御槍マナ？
+
+"We... wait, what? You don't know Mana?" The ghost shook his head, cocking his head to one side, as though he'd forgotten something and was trying to remember.  
+"我们...等等，什么？你不认识マナ？" 幽灵摇了摇头，歪着头，仿佛忘记了什么，正在努力回忆。
+
+"She's about yay-tall, deep red hair, cerulean eyes?"  
+"她大概这么高，深红色头发，天蓝色眼睛？"
+
+_"Are you sure that isn't Asuka?"  
+"你确定那不是明日香？"_
+
+"No! Mana had short hair, was a much deeper shade of red than Asuka, not orange."  
+"不是！真奈的头发短，颜色比明日香深得多，不是橙红色。"
+
+_"Hmmm..."_ The ghost looked thoughtful. _"I've never known someone like that. Not in this world."_  
+"嗯……" 幽灵若有所思地看着。"我从没在这个世界上遇到过这样的人。"
+
+"In... this world?" "在这个……世界上？"
+
+_Ghost_ Shinji clambered out of the tube's hatch, after taking one last look at Asuka's corpse, nodding with what looked like a silent promise.  
+幽灵真嗣从管道的舱口爬了出来，最后看了一眼明日香的尸体，点了点头，仿佛在无声地许下承诺。
+
+_"It's time I told you the reason you were brought here. There isn't much time, and as you can see, this world ran out of time. Way before it's time."  
+"是时候告诉你带你来这里的原因了。时间不多了，而且如你所见，这个世界早已耗尽了时间。远在它该结束之前。"_
+
+Shinji clambered out of the tube, himself taking one last terrified look at the grinning remains of what was a girl he cared about in his own world. Standing on the Geofront's blood-red burnt wasteland, he felt a strange wind blow through the place as he faced his ghost.  
+真嗣从管子里爬了出来，最后一次惊恐地看了一眼那个在他原本世界里他所关心的女孩的狞笑遗骸。站在第三新东京市血红色的焦土上，他感到一阵怪风穿过这个地方，面对着自己的幽灵。
+
+_"Let me tell you the tale of the boy who became God, and the man who destroyed the world."  
+"让我告诉你那个成为神的男孩和那个毁灭世界的男人的故事。"_
+
+---
+
+A long time had passed. _Ghost_ Shinji explained his life from the very beginning. And from the sounds of things, had experienced a very different life to the one the living Shinji Ikari had experienced.  
+时光荏苒。幽灵真嗣从最初开始讲述他的生活。从他的描述来看，他所经历的人生与活着的碇真嗣截然不同。
+
+The Evangelions, who in his world were only the figment of a hyperactive six-year-old's imagination, were titanic weapons used to defend the world from alien '_Angels_', intent on wiping out all life on the planet in this one.  
+在他的世界里，那些被一个过度活跃的六岁孩子想象出来的‘福音战士’，实际上是用来抵御外星‘使徒’的巨型武器，这些使徒意图消灭地球上所有的生命。
+
+His father had apparently been a basket case, using the pretense of fighting these '_Angels_' as an excuse to use the potential awakening and deification of an Evangelion to wish his dead wife, and Shinji's mother, back to life. His mother, who was also trapped inside the core of Evangelion Unit-01, and powering it with her own soul.  
+他的父亲显然是个疯子，以对抗这些‘使徒’为借口，利用福音战士的觉醒和神化潜力，试图将他死去的妻子，也是真嗣的母亲，复活。而他的母亲，也被困在福音战士初号机的核心中，用自己的灵魂为其提供能量。
+
+Then it appeared Rei Ayanami was some sort of hybrid between an Angel herself, and a clone of his dead mother, to which countless 'replacements' had existed. She was to be used in something called the '_Human Instrumentality Project_', relating to the existence of a dark organization called '_Seele_', intending to turn all of humanity into a mass, conglomerated soul, in an effort to preserve humanity, for everyone to become one with each other, and to force humanity to evolve past it's apparent boundaries.  
+随后，碇唯似乎是某种介于使徒自身与她已故母亲克隆体之间的混合体，存在着无数的‘替代品’。她将被用于一个名为‘人类补完计划’的项目中，与一个名为‘Seele’的黑暗组织有关，该组织意图将全人类转化为一个庞大的、聚合的灵魂，以此来保存人类，让每个人相互融合，并迫使人类超越其明显的界限。
+
+Not to mention that _this_ world's Shinji Ikari had apparently been abandoned by his father not long after his mother died at some nameless train station, raised by a teacher, and was practically alone for the majority of his life.  
+更不用说，这个世界中的碇真嗣在母亲死于某个无名车站后不久，似乎就被父亲抛弃了，由一位老师抚养长大，并在他生命的大部分时间里几乎都是独自一人。
+
+And in the end, the dark plans that would destroy the world had succeeded. But in a very different way to how Gendo Ikari and Seele had imagined.  
+最终，那些将毁灭世界的黑暗计划成功了。但与碇源堂和 Seele 所设想的方式截然不同。
+
+It appeared that in this fight, the Angels had won. Terminal Dogma, the lowest level of what had been NERV headquarters had been breached. Housing a captured Angel known as Lilith, it had been the purpose of the '_Children_' to defend her, not knowing their true purpose for fighting.  
+在这场战斗中，天使们似乎取得了胜利。曾是 NERV 总部最底层的地方——终端教条区已被攻破。这里关押着被称为莉莉丝的天使，而‘孩子们’的任务是保护她，却不知自己战斗的真正目的。
+
+But the mission had failed. As per orders of Misato Katsuragi, the Operational Director of NERV, ranking under his father, the central complex had been set to self-destruct. Lilith, Misato, his father, the attacking Angel and everybody who worked there had been vaporized. And not long after Asuka and Rei had failed in their own fight against the Angel, dying on the battlefield.  
+但任务失败了。根据 NERV 作战部长葛城美里的命令，他的父亲——运营总监之下，中央复合体被设定为自毁。莉莉丝、美里、他的父亲、来袭的天使以及所有在那里的工作人员都被蒸发殆尽。不久之后，明日香和绫波在对抗天使的战斗中也失败了，战死沙场。
+
+The only one left standing, piloting Unit-01, the Shinji Ikari of this world went insane, awakening to his powers, and ended up destroying the world in the process. Any who was alive had turned into a liquid known as LCL, their soul binding with others who had perished, into a ball of souls that now floated above the surface of the world, for eternity.  
+唯一幸存者，驾驶着初号机，这个世界的碇真嗣陷入了疯狂，觉醒了自己的力量，结果在过程中毁灭了世界。所有活着的人变成了名为 LCL 的液体，他们的灵魂与其他逝者的灵魂融合，形成了一个漂浮在世界表面之上的灵魂球，永恒存在。
+
+"That... is utterly insane."  
+"那...简直是疯了。"
+
+_"When I came to my senses, Unit-01 was empty, a lifeless husk. The soul of my mother just vanished, and starting from then, I was the only one left, not even alive, wandering the surface of this broken world. As alone as I had been that day father left me at that train station years ago."  
+"当我回过神来，01 号机已是空壳一具，毫无生气。母亲的灵魂就这样消失了，从那时起，我成了唯一剩下的，甚至不算活着，在这破碎的世界表面徘徊。就像多年前父亲在火车站丢下我那天一样孤独。"_
+
+"But... " Shinji hesitated. "Why are you...?"  
+"但是... " 真嗣犹豫了一下。 "你为什么...？"
+
+_"Why am I still here, and not together with the rest of the souls?" Ghost_ Shinji looked up at the blood-red sky.  
+“为什么我还留在这里，而不是和其他灵魂在一起？”幽灵真嗣抬头望向血红的天空。
+
+_"I think... it's the Curse of the Eva."  
+“我想……这是 EVA 的诅咒。”_
+
+In many ways, his answer made no sense at all. But in some ways, Shinji could understand. But he still couldn't understand why, after hearing his counterpart's story, he could believe the tale as easily as he could. As though a part of him had actually been here, experiencing the same things.  
+从很多方面来说，这个回答毫无意义。但在某些方面，真嗣能够理解。然而他仍然不明白，为什么在听了另一个自己的故事后，他能如此轻易地相信这一切。仿佛他的一部分真的在这里，经历了同样的事情。
+
+_"That's because I am you. And so are the other Shinji Ikari's in all the other world's that exist out there."_ Another hard-to-understand answer.  
+"那是因为我就是你。还有其他所有存在的世界里的那些碇真嗣们，也都是你。" 又一个难以理解的回答。
+
+_"When I achieved the power of a deity, I saw something. I was going through, as you can imagine, an incredible amount of emotional stress, but I clearly saw other worlds. Other Shinji Ikari's. Some of them were fighting the same fight I was. Some of them had won the fight and experienced a happy-ever-after. Some world's, like your own, didn't even experience the horror's and lived a relatively peaceful life, a normal life."_ His ghost looked wistful at the end.  
+"当我获得了神一般的力量时，我看到了一些东西。你可以想象，我经历了极大的情感压力，但我清楚地看到了其他世界。其他的碇真嗣们。他们中的一些人在进行着和我一样的战斗。有些人赢得了战斗，体验了幸福美满的结局。有些世界，就像你所在的那个，甚至没有经历那些恐怖，过着相对平静的、正常的生活。" 他的幽灵在最后显得有些惆怅。
+
+_"But for the world's that failed. For the worlds that didn't get a happy ending, what's left to do? How do I atone for destroying a world through insanity, and redo everything?"  
+"但对于那些失败的世界。对于那些没有得到幸福结局的世界，还能做些什么呢？我该如何弥补因疯狂而毁灭一个世界的罪过，并重新来过呢？"_
+
+Shinji looked worried as his ghost turned to him, a somewhat evil grin on his face.  
+真嗣看起来很担忧，他的幽灵转向他，脸上带着一丝邪恶的微笑。
+
+_"And that is the reason you are here. You, a being who is me from another world, have the power to fix what was broken. You are the hope that can save the souls circulating the planet, and return everything back to the way it was."_ Ignoring the living Shinji's jaw drop to the floor, the ghost continued.  
+“这就是你在这里的原因。你，一个来自另一个世界的我，拥有修复破碎之力的存在。你是拯救环绕星球灵魂的希望，能让一切恢复原状。”无视着活着的真嗣下巴掉到地上的惊讶，幽灵继续说道。
+
+_"You are my only hope."  
+“你是我唯一的希望。”_
+
+After several minutes of blind shock and his brain attempting to process everything he had just heard, he had only one question for his crazy reflection.  
+在经历了数分钟的盲目震惊和大脑试图处理刚刚听到的一切之后，他只向自己疯狂的倒影提出了一个问题。
+
+_**"How!?" “怎么可能！？”**_
+
+---
+
+"Shinji! SHINJI! Wake up, stupid idiot! We're going to be late for school!"  
+“真嗣！真嗣！醒醒，笨蛋！我们上学要迟到了！”
+
+A familiar voice was shouting at him. His mind felt groggy, like he hadn't slept for over a hundred years. Who was shouting at him?  
+一个熟悉的声音在对他大喊。他的头脑昏沉，仿佛已有百年未曾入眠。是谁在对他喊叫？
+
+"Shinji! Come on, get your ass out of bed, we gotta go!" He felt his body being shaken from the shoulders.  
+“真嗣！快点，起床了，我们得走了！”他感到有人从肩膀处摇晃他的身体。
+
+"Wait... what?" Shinji blearily opened an eye, and caught a blurry flash of orange hair and a set of bright red hair accessories.  
+“等等...什么？”真嗣迷迷糊糊地睁开一只眼，瞥见一抹模糊的橙色头发和一对鲜红的头饰。
+
+_It was her! 就是她！_
+
+Sitting bolt upright in his bed, Shinji reached out and grabbed the suddenly very confused and flushed girl in front of him.  
+真嗣猛地从床上坐直，伸出手抓住了面前突然变得非常困惑和脸红的女孩。
+
+"S-shinji! What are you doing all of a... wait, _why are you crying!?"_  
+“真-真嗣！你这是在干什么...等等，你为什么哭了！？”
+
+"Asuka! I'm so... glad..." He didn't care he was probably gunking up her school uniform was snot and tears. "I'm glad... you're... okay..."  
+"明日香！我真...高兴..." 他不在乎自己的鼻涕和眼泪可能弄脏了她的校服。"我很高兴...你...没事..."
+
+"Of course I'm okay... why wouldn't I be?" The flustered girl tried grabbing his shoulders, but Shinji refused to let go. "Shinji, what the hell, did you have a nightmare or something?"  
+"我当然没事...我怎么会不没事呢？" 慌乱的女孩试图抓住他的肩膀，但真嗣拒绝放手。"真嗣，搞什么鬼，你做了噩梦还是怎么了？"
+
+_A nightmare...? 噩梦...？_
+
+It took a few minutes, but eventually Shinji calmed down enough to let Asuka go, much to the annoyance of the two other girls waiting for him at his bedroom door. After making a quick excuse about having to get his clothes on, Shinji stood out of his bed and looked out of his bedroom window to a perfectly crystal clear blue sky. Everything was normal. Asuka, Rei and Mana were all alive, and judging from their reactions, everyone else was okay too. The world hadn't gone mad. Right?  
+花了好几分钟，但最终真嗣平静到足以放开明日香，这让在他卧室门口等待的另外两个女孩感到非常恼火。在快速找了个借口说要穿衣服后，真嗣从床上站起来，望向窗外一片清澈湛蓝的天空。一切都很正常。明日香、丽和玛娜都还活着，从她们的反应来看，其他人也都安然无恙。世界并没有发疯。对吧？
+
+"Was that really a dream? It felt so real..." Shinji murmured as he buttoned up his school shirt, absent-mindedly fiddling with his bracelet as he did so.  
+“那真的只是一场梦吗？感觉如此真实……”真嗣喃喃自语，扣上校服衬衫的扣子，心不在焉地摆弄着手腕上的手链。
+
+_"You'd be a fool for thinking that was a dream."  
+“如果你认为那只是一场梦，那你就是个傻瓜。”_
+
+Looking at his own reflection in the mirror, Shinji saw the unmistakeable visage of his ghostly counterpart from the destroyed world standing behind him, grinning madly.  
+透过镜子看着自己的倒影，真嗣看到了那个来自毁灭世界的幽灵般的自己，正站在他身后，疯狂地咧嘴笑着。
+
+_"I look forward to working with you, me."  
+“我很期待与你合作，我。”_
+
+Misato's entire apartment block echoed with screams of terror.  
+美里整个公寓楼回荡着恐怖的尖叫声。
+
+---
+
+_That was certainly different, huh?  
+那确实挺不一样的，对吧？  
+This is the point where the main chunk of the story begins, and things get very, **very** confusing.  
+故事的主线部分从这里开始，事情会变得非常非常混乱。_
+
+_I can only hope that as I write, I can decipher this mess of a plot inside my head and turn it into a legible story.  
+我只希望在写作的过程中，我能理清脑海中这团乱麻般的情节，并将其转化为一个清晰的故事。_
+
+_Check my profile for further updates on the Facebook page and whatnot.  
+查看我的个人资料，获取 Facebook 页面及其他更新的进一步信息。_
+
+_Thanks for reading! 感谢阅读！  
+Review if you enjoyed it or found my fictional ramblings confusing as hell! xD  
+如果你喜欢它或觉得我的虚构胡言乱语令人困惑至极，请留下评论！xD_
+
+---
