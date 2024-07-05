@@ -6,7 +6,6 @@
       {
         "id": "b538de1d166bf94c",
         "type": "tabs",
-        "dimension": 50,
         "children": [
           {
             "id": "d3b8f650bf594b32",
@@ -18,8 +17,7 @@
                 "mode": "source",
                 "source": false
               }
-            },
-            "group": "2df79d2f8e641bf4"
+            }
           },
           {
             "id": "0a2fceb2f86f7046",
@@ -27,45 +25,20 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Panther2G - Evangelion：The Hangover.md",
-                "mode": "source",
-                "source": false
-              }
-            }
-          },
-          {
-            "id": "d11ca9ba9802bd1d",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "未命名.md",
+                "file": "Panther2G - A Crown of Stars.md",
                 "mode": "source",
                 "source": false
               }
             }
           }
-        ],
-        "currentTab": 2
+        ]
       },
       {
-        "id": "456eae36962270f1",
+        "id": "bd09807c54bdee3e",
         "type": "tabs",
-        "dimension": 50,
         "children": [
           {
-            "id": "20a7bdfbc2cb3cf3",
-            "type": "leaf",
-            "state": {
-              "type": "outline",
-              "state": {
-                "file": "kira862 - Spawn of Adam.md"
-              }
-            },
-            "group": "2df79d2f8e641bf4"
-          },
-          {
-            "id": "48b4329f6f426947",
+            "id": "bca99ee74e41be3e",
             "type": "leaf",
             "state": {
               "type": "markdown",
@@ -76,8 +49,7 @@
               }
             }
           }
-        ],
-        "currentTab": 1
+        ]
       }
     ],
     "direction": "vertical"
@@ -143,7 +115,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "未命名.md",
+                "file": "kira862 - Spawn of Adam.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -160,7 +132,7 @@
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "未命名.md",
+                "file": "kira862 - Spawn of Adam.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               }
@@ -183,7 +155,7 @@
             "state": {
               "type": "outline",
               "state": {
-                "file": "未命名.md"
+                "file": "kira862 - Spawn of Adam.md"
               }
             }
           }
@@ -204,17 +176,17 @@
       "workspaces:管理工作区布局": false
     }
   },
-  "active": "d11ca9ba9802bd1d",
+  "active": "d3b8f650bf594b32",
   "lastOpenFiles": [
-    "Panther2G - Evangelion：The Hangover.md",
-    "未命名.md",
+    "Panther2G - A Crown of Stars.md",
     "jcmoorehead - Braver Than We Are.md",
+    "Panther2G - Advice and Trust Backstage.md",
+    "Panther2G - Birthday Candles.md",
+    "Panther2G - Costumes & Games.md",
+    "Panther2G - Evangelion：The Hangover.md",
     "Panther2G - In Vino Cogitatio Bona.md",
     "Panther2G - Time Cannot Erase.md",
-    "Panther2G - Costumes & Games.md",
-    "Panther2G - Birthday Candles.md",
-    "Panther2G - A Crown of Stars.md",
-    "Panther2G - Advice and Trust Backstage.md",
+    "未命名.md",
     "kira862 - Spawn of Adam.md",
     "FutaSenpai69 - Let The Rain Fall.md",
     "Bardic Jester - ❤️This Way.md",

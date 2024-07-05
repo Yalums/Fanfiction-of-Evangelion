@@ -1161,7 +1161,7 @@ She finished the last of her coffee and patted Touji on the hand. "I think you'l
 她喝完了最后一口咖啡，轻轻拍了拍斗志的手。"亲爱的，我想你得把我抱到出租车站了。我们走吧，去帮他们弄清楚昨晚我们离开后发生了什么。"
 
 ---
-### Chapter 3 第三章  
+### Chapter 3
 
 .
 
@@ -1422,7 +1422,7 @@ Mrs. Growlski harrumphed something more, pointing with one paw.
 "我们到了，" 丽解释道。
 
 ---
-### Chapter 4 第四章  
+### Chapter 4
 
 .
 
@@ -1888,4 +1888,1669 @@ Asuka stared at the screen. "... what... the... fuck?"
 明日香盯着屏幕。"...什么...鬼...东西？"
 
 ---
-### 
+### Chapter 5
+
+.
+
+**Evangelion: The Hangover pt 5  
+《新世纪福音战士：宿醉》第 5 部分**
+
+.
+
+---
+
+.
+
+_The Present 此刻_
+
+Asuka stared at the screen. "... what... the... fuck?"  
+明日香盯着屏幕。"...什么...鬼...东西？"
+
+She stood frozen in Shinji's arms, vaguely glad he was helping hold her up. Because her knees and legs had just turned to water, and without his support she'd have fallen on her ass already in pure shock.  
+她僵硬地站在真嗣的怀抱中，隐约庆幸他在帮忙支撑着她。因为她的膝盖和双腿已经软得像水一样，没有他的支持，她早就因为纯粹的震惊而摔了个屁股蹲。
+
+_'It... it was_ _**my**_ _idea? The whole thing was_ _**my**_ _idea? And they all said 'Yes'?!'_ her mind babbled. _'I asked them all to marry me and they said_ _**YES**__?!'_  
+'这...这都是我的主意？整个事情都是我的主意？他们全都说了‘好’？！'她的脑海中一片混乱。'我向他们所有人求婚，他们居然都说了‘好’？！'
+
+'...they love me.' '...他们爱我。'
+
+The sudden wave of emotion snapped her out of her shock. She was _not_ going to cry in public, damn it! Not even tears of joy, while she... she... she watched herself on video forming a square with the others, each with one hand around the person on their left, and one hand in the middle, together, while the minister asked them to recite their vows. While she watched herself give slow, heartfelt kisses to Kaworu, Rei, and Shinji that left them all breathless. While she threw her bouquet into the air with a scream of joy that sparked a matching smile on her living face.  
+突如其来的情感浪潮将她从震惊中唤醒。她绝不会在公共场合哭泣，该死！即使是喜悦的泪水也不行，当她...她...她看着自己在视频中与其他人围成一个方形，每个人一只手搭在左边人的肩上，另一只手放在中间，一起，而部长要求他们背诵誓词。当她看着自己缓缓地、深情地亲吻着渚薰、绫波丽和真嗣，让他们都喘不过气来。当她欢呼着将花束抛向空中，脸上绽放出与视频中自己一样的笑容。
+
+"HOLY SHIT, I'M MARRIED!" her recorded self shouted to the world, linking arms with Shinji and Rei and letting Kaworu walk backwards in front of her, pulling her by their joined hands as they walked across the parking lot.  
+“天哪，我结婚了！”视频中的她向世界大喊，与真嗣和绫波丽挽着手臂，让渚薰倒退着走在她前面，拉着他们相连的手穿过停车场。
+
+The video followed them as far as them piling into the minivan to leave before ending. Asuka had to blink rapidly when it stopped, and wipe futilely at her cheeks. Damn it. She looked around.  
+视频一直跟拍到他们挤进小型货车准备离开时才结束。视频停止时，明日香不得不快速眨眼，徒劳地擦拭着脸颊。该死。她环顾四周。
+
+No one else had noticed most of them were in a similar state. Kaworu emerged from behind the chair he'd hurriedly adopted as concealment for his excitement and walked over to enfold Asuka and Shinji in an embrace. Rei was barely a second behind. Shinji's arms tightened around her as well.  
+其他人大多没有注意到，大家的状态都差不多。渚薰从他匆忙选作藏身之处的椅子后面走出来，走到明日香和真嗣身边，将他们拥入怀中。绫波零紧随其后。真嗣的手臂也紧紧抱住了她。
+
+"Asuka... I... I promise I will earn that. What you said," Kaworu mumbled into her hair. "I... thank you. I mean... I love you."  
+“明日香……我……我保证我会赢得那个。你说的那些话，”渚薰在她头发中喃喃道，“我……谢谢你。我是说……我爱你。”
+
+"A goddess, hm?" Rei purred in her right ear. "The perfect woman? That's impossible. I'm holding her."  
+"女神，嗯？" 丽在她右耳边低声说道，"完美的女人？那是不可能的。我正抱着她呢。"
+
+She felt Shinji's arms squeeze her again. "Asuka, I can tell you're about to... do something you hate, and you've always known how I feel about you, so instead I'm going to distract you to help." She felt him burrow his nose and face into her hair to clear a path to the back of her neck.  
+她感觉到真嗣的胳膊再次搂紧了她。"明日香，我能感觉到你即将……做一些你讨厌的事情，而且你一直知道我对你的感觉，所以这次我要用分散你注意力的方式来帮你。" 她感觉到他用鼻子和脸在她头发中蹭出一条通向她后颈的路。
+
+Then he bit her. 然后他咬了她。
+
+"Rei, make a note. Experiment #4, wives are delicious," he said in his best dry voice.  
+"丽，记一下。实验#4，妻子们很美味。" 他用最干巴巴的语气说道。
+
+"Duly noted," Rei echoed, matchingly deadpan. "However, I refuse to enter this data officially until I am included in the sample set and the sampler."  
+"已记录，" 丽同样面无表情地回应。"不过，在我被纳入样本集和采样者之前，我拒绝正式录入这些数据。"
+
+"Noted." "知道了。"
+
+"Should I bite someone?" Kaworu asked, slightly confused.  
+"我应该咬谁吗？" 渚薰有些困惑地问。
+
+Asuka snorted. "Gott damn it, Sparkles..." She started laughing, the tears retreating. "You are all idiots."  
+明日香哼了一声。"该死的，闪亮亮..." 她开始笑起来，泪水渐渐退去。"你们都是白痴。"
+
+"Your idiots, Asuka," Shinji said happily.  
+"是你的白痴们，明日香，" 真嗣开心地说。
+
+A discreet cough from Rachel broke their momentary isolation. "Ah... so, Mrs. Soryu-Ayanami, you can see why we want to ask about using your ceremony's footage in our advertising materials? It's... powerful stuff. Can we discuss it while Roberto makes you some copies? Here or in my office?"  
+一声谨慎的咳嗽声从瑞秋那里传来，打破了他们短暂的孤立。“啊……所以，碇-绫波女士，您能理解我们为何想询问是否可以使用您仪式的影像资料用于我们的广告宣传吗？那真是……震撼人心的内容。我们可以在罗伯特为您复印文件时讨论这件事吗？在这里还是去我办公室？”
+
+Asuka took a deep breath and got a grip on herself. _'It was_ _**my**_ _idea. And they all love me back. Holy shit. Ok, brain, back in gear.'_  
+明日香深吸一口气，稳住了自己的情绪。‘这是我自己的主意。而且他们都爱我。天哪。好了，大脑，回到状态。’
+
+"Certainly. Let's go talk," she said confidently.  
+“当然。我们去谈谈吧，”她自信地说道。
+
+.
+
+---
+
+.
+
+"I dunno what makes me feel kinkier, the video camera watching our every move, or this stuff," Maya said meditatively, staring at her glass of Blue Fuel.  
+"我不知道是什么让我感觉更刺激，是摄像机记录我们的每一个动作，还是这玩意儿，" 玛雅若有所思地说着，盯着她的蓝燃料饮料。
+
+"It is a necessity," Ritsuko said carefully, every word precisely enunciated with great care. This was due to her being 4 cocktails and two tall glasses of Blue Fuel in herself. "The first time we drank this stuff, we didn't remember a thing in the morning. This was kind of embarrassing, since you and I were naked, covered in glitter and bodypaint, and lying on the Commander's old desk in his office."  
+"这是必须的，" 律子小心翼翼地说，每个字都发音清晰，非常谨慎。这是因为她自己已经喝了四杯鸡尾酒和两杯高脚蓝燃料。"第一次喝这东西的时候，我们早上什么都不记得了。这有点尴尬，因为你和我都赤裸着，浑身闪粉和身体彩绘，躺在指挥官办公室的老桌子上。"
+
+"Yyyeah, I _wish_ we could have gotten video of that," Maya giggled, a salacious grin on her lips. "It took _days_ to remember that all! Hee hee!"  
+"是啊，真希望当时能录下来，" 玛雅咯咯笑着，嘴角带着狡黠的笑容。"花了好几天才想起来这一切！嘻嘻！"
+
+She took a swig of her glass. "This is the _bests_ stuff. Energy drink, intoxicant, mental concentrator, aphrodisiac, and fertility enhancer, WOOO! I'm drunk, sober, awake, horny as fuck, and bursting with energy." She took another drink, emptying the glass, and put it aside so she could ineffectually swipe her hands at Ritsuko, who was still out of reach. "Sooooo stop playing with the camera, come over here, and make love to your wife, damn it. I want me some Sempai!"  
+她猛灌了一口杯中的液体。“这玩意儿太棒了。能量饮料，迷幻剂，精神集中剂，春药，还有助孕的，哇哦！我现在既醉又醒，精神抖擞，欲火中烧，还精力充沛。”她又喝了一口，将杯子一饮而尽，然后放在一边，伸手试图去抓仍遥不可及的律子。“所以，别玩相机了，快过来，和你老婆亲热亲热，该死的。我要我的前辈！”
+
+"I'm just setting up the 3D mode," Ritsuko said. "I'm just about... done!" She threw off her robe, crawled onto the bed like an oversized cat, and laid herself down on top of Maya, eagerly fitting herself between the younger woman's legs. "And can I say it is _never_ getting to get old hearing you say that, m'dear?"  
+“我只是在设置 3D 模式，”律子说，“马上就好……好了！”她甩掉浴袍，像只大猫一样爬上床，躺在真嗣身上，急切地将自己置于年轻女子的双腿之间。“我能说，听你这么说永远不会腻吗，亲爱的？”
+
+"Which? 'Make love to your wife', or 'I want me some Sempai'?" Maya teased. "'Cause I've got a schoolgirl outfit in my closet somewhere if your wanna do that one again..."  
+“哪句？‘和你老婆亲热’，还是‘我要我的前辈’？”真嗣逗弄道，“因为我衣柜里某个地方还有一套学生装，如果你想再来一次的话……”
+
+"Yes." Ritsuko dipped her head down to kiss her. "All of the above. And you better watch out on that 'fertility enhancer' part, love. The last batch of tests on _that_ procedure were all positive."  
+“是的。” 律子低下头去吻她。“以上皆是。而且你最好小心那个‘生育增强剂’部分，亲爱的。上一次关于那个程序的测试结果全都是正面的。”
+
+Maya's eyes widened. "I... HIC! I... the... the er..." She blushed. "The... chromosomal ones? Those procedures?"  
+玛雅的眼睛睁大了。“我……呃！我……那个……染色体的……那些程序？”她脸红了。“那些……染色体的程序？”
+
+Ritsuko nodded, kissing her wife and grinding against her. "Yesss it is. I can successfully combine your and my eggs with a little LCL magic and some cloning tricks, and get them to combine and quicken. We're only working with X chromosomes since they're derived from us, but..." She stopped, and looked right into Maya's eyes. "We can have daughters. And I very much want yours."  
+律子点头，亲吻着她的妻子并紧贴着她。“没错，就是那个。我可以利用一点 LCL 魔法和一些克隆技巧，成功地将你我的卵子结合，并使它们迅速发育。因为我们只使用来自我们的 X 染色体，但是……”她停了下来，直视着玛雅的眼睛。“我们可以拥有女儿。而我非常想要你的。”
+
+Maya closed her eyes and shivered. "Oh my god..." Her legs wrapped around Ritsuko's waist. "Now. Gimme NOW!"  
+玛雅闭上眼睛，颤抖着。“哦，天哪...”她的双腿缠绕在律子的腰间。“现在。给我，现在！”
+
+"Yup, this stuff does _wonders_ for your libido and fertility," Ritsuko said with a grin, and ground harder.  
+“没错，这东西确实能提升你的性欲和生育能力，”律子笑着说，更加用力地摩擦。
+
+Maya blinked. "Wait... didn't you say you put a few liters of this stuff in Commander Katsuragi's luggage as a present? Won't she and her husband..."  
+玛雅眨了眨眼。“等等...你不是说你放了几升这东西在葛城司令的行李里作为礼物吗？她和她的丈夫不会...”
+
+Ritsuko grinned wider. "She _did_ say she wanted to start on kids of her own, and that will help! She and Inspector Sexy are probably coming home preggers. So if we don't want to fall behind... tomorrow you and I are going down to the lab and starting a family of our own."  
+律子笑得更开了。“她确实说过她想要有自己的孩子，这会有帮助的！她和性感警探回家时可能已经怀孕了。所以如果我们不想落后……明天你和我一起去实验室，我们也开始组建自己的家庭。”
+
+"That is the best thing I have ever heard. I love you, Ritsuko," Maya sighed. "Now... If I'm going to be a momma, I wanna get there the old fashioned way." She thrust up at her wife. "So, fuck my brains out. Now."  
+“这是我听过的最棒的事情。我爱你，律子。”玛雅叹息道。“现在……如果我要当妈妈，我想用传统的方式来实现。”她向妻子挺身而出。“所以，把我的脑子都干飞吧。现在。”
+
+.
+
+---
+
+.
+
+An hour later, it was a stunned but still smiling group that made it's way back out to the parking lot, several HD copies of their ceremonies in hand on both disc and digital formats in hand. Asuka had recovered enough of her brains to drive a hard and detailed bargain, ensuring their wedding would be prominently but tastefully featured in the chapel's advertisements for a long while. It wasn't as if they'd needed the money, so Asuka hadn't pressed on that front. The leavings of NERV and SEELE's accounts and technologies kept them in more than comfortable style. The addition of the chapel's payments was mostly a token, if one that made Asuka feel smug.  
+一个小时后，一群人虽然震惊但依然面带微笑地回到了停车场，手里拿着几份高清的仪式副本，既有光盘格式也有数字格式。明日香已经恢复了足够的理智，与教堂进行了一番强硬而详细的谈判，确保他们的婚礼将在教堂的广告中长期而恰当地展示。他们并不需要这笔钱，所以明日香在这方面没有过多坚持。NERV 和 SEELE 的账户与技术的剩余资产让他们过上了非常舒适的生活。教堂的支付主要是象征性的，尽管这让明日香感到得意。
+
+"Where next?" Kaworu asked, sliding the door to the minivan open, but turning to face them.  
+“接下来去哪儿？” 渚薰问道，滑动打开了小型货车的门，但转身面向他们。
+
+Shinji looked at the scrap of paper in his hand. "Well, the timestamps on the receipt say we went to the tattoo parlor after here, but... I think we know what happened there. So... lunch?"  
+真嗣看着手中的纸片。“嗯，收据上的时间戳显示我们离开这里后去了纹身店，但是……我想我们清楚那里发生了什么。所以……吃午饭？”
+
+Kaworu looked green. "Urp. No, please?"  
+渚薰看起来脸色发青。“呃。不了，拜托？”
+
+"Oh, right, sorry," Shinji apologized. "Um... how about-"  
+“哦，对了，抱歉，”真嗣道歉道，“呃……那我们……”
+
+He was interrupted by the roar of a powerful engine and the screech of tires as a silver Lotus Evora GT430 powerslid off the street and across the lot to stop right next to them.  
+一阵强劲引擎的轰鸣声和轮胎摩擦地面的尖锐声打断了他，一辆银色的莲花 Evora GT430 在街道上猛地一转，穿过停车场，稳稳地停在他们旁边。
+
+A familiar figure threw the passenger door open. "Found you! Hurry, one of you jump in! They're right behind me!" Misato Katsuragi shouted at them.  
+一个熟悉的身影猛地推开副驾驶车门，“找到你们了！快，你们中一个赶紧上车！他们就在我后面！”葛城美沙绪对他们喊道。
+
+"Who is?" Asuka blinked. "谁啊？" 明日香眨了眨眼。
+
+"The Russian mob! Apparently Kaji rolled the Hell out of one of them at poker last night, and now they're pissed about... Asuka, is that a _polar bear_ in the driver's seat of that van?"  
+"俄罗斯黑手党！显然昨晚加持在扑克桌上把其中一个家伙打得落花流水，现在他们对此很生气……明日香，那辆货车驾驶座上的是只北极熊吗？"
+
+"Yes." "是的。"
+
+"I... I... buh?" "我……我……啊？"
+
+"What do you mean 'apparently'?" Asuka said sharply. "You're being chased by mobsters and you're _not sure_ why?"  
+"你说的'显然'是什么意思？" 明日香尖锐地问道。"你被黑帮追杀，却不确定为什么？"
+
+"I don't remember most of last night. That blue shit Ritsuko gave me was apparently hard stuff!"  
+"我记不清昨晚的大部分事情了。那个蓝色玩意儿，律子给我的，显然是烈性药物！"
+
+"How did you know we were here, Misato-san?" Shinji asked.  
+"美里小姐，你是怎么知道我们在这里的？" 真嗣问道。"
+
+"Tracers in your phones! I couldn't find you until just now since I've been dodging these guys!"  
+"你们手机里有追踪器！我一直躲着这些人，直到刚才才找到你们！"
+
+"Explains why they were in our freezer in foil, I guess," Kaworu put in.  
+"这么说来，他们用锡纸包着待在我们的冰箱里也不奇怪了，" 渚薰插话道。"
+
+"In our own hotel room," Rei pointed out. "Not precisely the most unlikely spot to find us anyhow."  
+"就在我们自己的酒店房间里，" 绫波指出。"不管怎么说，也不是最不可能找到我们的地方。"
+
+The growl of several cars approaching at speed began to grow louder. Misato looked down the street. "I see at least three cars. Come on, one of you jump in and we'll get moving. The rest of you can... um... have the bear drive you along?"  
+几辆汽车高速驶来的轰鸣声逐渐变大。美里沿着街道望去。“我至少看到了三辆车。快点，你们中跳进来一个，我们赶紧出发。剩下的人可以……呃……让熊开车带你们走？”
+
+Rei sighed. "Why?" 绫波叹了口气。“为什么？”
+
+"Rei, did you miss the part about the 'three cars full of pissed off Russian mobsters'?"  
+“绫波，你没听到关于‘三车愤怒的俄罗斯黑帮’那部分吗？”
+
+Rei looked down the street herself. The three black Mercedes-Benzes were slowing just enough to pull into the chapel lot, but were still coming on fast. Rei raised her hand to point at them, and a glowing orange hexagon briefly flashed to life...  
+丽看着街道的尽头。三辆黑色的梅赛德斯-奔驰车正减速准备驶入教堂停车场，但速度依旧很快。丽举起手来指向它们，一个发光的橙色六边形瞬间闪现...
+
+...one meter in front of the lead car.  
+...在领头车前一米处。
+
+The ensuing crash and pileup was rather spectacular.  
+随之而来的撞击和连环相撞场面相当壮观。
+
+Rei turned back to Misato. "Now... where is your husband?"  
+丽转回身面对美里。“现在……你的丈夫在哪里？”
+
+Misato tore her eyes away from the pile of wrecked Mercedes and bloodied men that had been her pursuers a moment ago. "I… ah, that's why I was looking for you all. I don't know. I can't remember anything past mid-afternoon yesterday, and I'm trying to track him down. I was hoping you and Kaworu-kun could do some magic and find him for me."  
+美里将目光从那堆被毁的奔驰车和血迹斑斑的男子身上移开，那些人片刻前还是她的追捕者。“我……啊，这就是我找你们的原因。我不知道。我记不起昨天下午之后的事了，我正在设法找到他。我本希望你和薰君能施展些魔法帮我找到他。”
+
+Rei looked around the city, her eyes becoming more red and shiny than usual. She pivoted in place, turning in a three-quarters circle before halting and pointing. "That way."  
+丽环视城市，她的眼睛比平时更加红润闪亮。她原地旋转了四分之三圈，然后停下并指向一个方向。“那边。”
+
+Misato waved Rei towards her car. "Get in, you can guide me while the others follow." She looked back again at the smashed pile of mobsters. "Guess we don't need to worry about a dramatic chase through the streets right now."  
+美里向丽挥手示意她上车。“上车吧，你可以给我指路，其他人会跟着我们。”她再次回头看了一眼那堆被击溃的暴徒。“看来我们现在不用担心会在街上上演一场戏剧性的追逐了。”
+
+Rei opened the far door to the Lotus and got in. She stuck her head back out the door long enough to shout 'Следуйте за нами!' at Mrs. Growlski.  
+丽打开莲花车的远门坐了进去。她把头伸出车门，大声向格罗尔斯基夫人喊道：“跟着我们！”
+
+The husky engine of the Lotus growled loudly as Misato put it back in gear and headed off in the general northwesterly direction Rei had pointed. The older woman glanced at Rei out of the corner of her eye as they drove, in between looking in the rear-view mirror at the no longer pursuing mobsters. "So… why were you all at the chapel, Rei? Someone else planning to get married?"  
+莲花车的强劲引擎轰鸣着，美里重新挂挡，朝着丽所指的西北方向驶去。年长的女人一边开车，一边不时从后视镜中瞥一眼那些不再追赶的暴徒，同时用眼角余光打量着丽。“那么……你们为什么都在教堂里，丽？还有其他人打算结婚吗？”
+
+"No, Commander. I think we have completed all necessary marriages yesterday."  
+"不，指挥官。我想我们昨天已经完成了所有必要的婚礼。"
+
+"So what were you doing there, then, if seeing Shinji and Asuka finally tie the knot wasn't it?"  
+"那么，你们当时在那里做什么呢？如果观看真嗣和明日香终于结为连理不是目的的话？"
+
+"We were acquiring video footage of the ceremony. We left last night without it, apparently."  
+"我们在获取婚礼的视频资料。显然，我们昨晚离开时没有拿到它。"
+
+Rei considered for a moment the happy circumstance that had placed her seated to Misato's left, and her facial tattoo on the far side from her Commander. The small smile on her face serenely hid her amusement.  
+丽思索了一会儿，庆幸自己坐在美里左边，脸上的纹身远离指挥官。她脸上那抹淡淡的微笑，平静地掩盖了她的笑意。
+
+"No sudden marriage impulses this morning?" Misato said teasingly.  
+“今天早上没有突然的结婚冲动吗？”美里打趣道。
+
+"That is a correct statement."  
+“这话没错。”
+
+"So what did you guys do after we split up last night?" Misato asked. She grimaced a moment later. "Or… right, you probably don't remember either, do you?"  
+"昨晚我们分开后，你们做了什么？" 美里问道。片刻后，她皱了皱眉。"或者……对了，你们大概也不记得了吧，是吗？"
+
+"Our memories of last night are mostly blurs, yes. According to our credit card receipts, and the marks on our skin, after we left the chapel we went to a tattoo parlor."  
+"我们对昨晚的记忆大多模糊不清。根据信用卡收据和我们身上的痕迹来看，离开教堂后，我们去了纹身店。"
+
+Misato blinked and looked at her more directly for a moment. "Wait, tattoos?"  
+美里眨了眨眼，更直接地看了她一会儿。"等等，纹身？"
+
+"Yes." "是的。"
+
+"Ah….where? And what?" "啊…哪里？什么？"
+
+"Several. Shinji now has Asuka's name over his heart. She has his on her back," Rei said calmly.  
+"有几个。真嗣现在把明日香的名字刻在心口上。她则把他的名字刻在背上，" 绫波平静地说道。"
+
+"Aww… that's sweet of them," Misato said with a smile. "What about you? You get anything?"  
+"哇…他们真贴心，" 美里微笑着说。"你呢？你有什么吗？"
+
+"Yes. Among them, I have tattoos on my back I think it best to show you rather than tell you. Turn left here. Kaji's Light is approximately one kilometer east of us and..." Rei squinted, "some distance above us. Evidently in a tall building."  
+"是的。其中，我背上的纹身我认为最好给你看看，而不是告诉你。在这里左转。Kaji 的 Light 大约在我们东边一公里处，并且……" 绫波皱了皱眉，"离我们有一定高度。显然是在一座高楼里。"
+
+"Oooh, mysterious…" Misato turned at the corner. Ahead of them loomed Caesar's Palace. "Wait… Kaji's in our own hotel? Why isn't he answering his phone?"  
+"哦，真神秘……" 美里在拐角处转弯。前方矗立着凯撒宫。"等等……Kaji 在我们自己的酒店里？他为什么不接电话？"
+
+"Perhaps he is still asleep?" Rei suggested.  
+"也许他还在睡觉？" 绫波提议道。"
+
+"I woke up in our room with a splitting headache. He wasn't there," Misato said, confused.  
+“我醒来时，头痛欲裂，他不在房间里。”美里困惑地说道。
+
+Deciding speed was worth the money this time, they left both the Lotus and the minivan in the hands of the valet parking crew, and headed inside. Mrs. Growlski got a lot of stares and more than a few gasps and screams of fear. The security guards that tried to tell them they couldn't bring a polar bear in a pink fez into the casino were sent stumbling back away when Mrs. Growlski growled at them and flipped them off. She waddled along in tow of the Pilots instead.  
+这次他们决定花钱买速度，将莲花跑车和面包车都交给代客泊车服务，径直走进了赌场。格罗尔斯基夫人引来了众多目光，以及不少惊呼和尖叫。那些试图告诉他们不能带一顶粉色费兹帽的北极熊进入赌场的保安，被格罗尔斯基夫人一声低吼和竖起的中指吓得连连后退。她摇摇摆摆地跟在驾驶员们后面。
+
+Rei pointed upward, and they took the elevators to the upper levels of the tower.  
+绫波指了指上方，他们便乘坐电梯前往塔楼的上层。
+
+The ride was at least faster than the old ones in the Geofront, if a lot stranger with a polar bear squeezed in with them.  
+这趟旅程至少比地底都市的老式交通工具快，尽管与一只北极熊挤在一起显得格外奇怪。
+
+.
+
+---
+
+.
+
+It did provide a short period where Shinji and Asuka were relatively alone in one corner, isolated from the others by a wall of white fur and muscle.  
+这确实提供了一个短暂的时段，让真嗣和明日香相对独处于一角，被一堵白毛和肌肉构成的墙与其他人隔开。
+
+Shinji fought down an old reflex to avert his gaze anywhere but at Asuka, and took her hand instead. He was comforted a bit by the way she was blushing as much as he was. They hadn't been like this in years. The old early days of their courtship, sure, they'd been like two tomatoes they blushed around each other so much at the merest sign they liked one another, it sometimes felt like Misato would never stop teasing them.  
+真嗣努力克制住旧有的习惯，不再回避目光，而是握住了明日香的手。看到她和他一样脸红，他感到些许安慰。他们已经多年没有这样了。早期的恋爱时光，确实，他们那时就像两个番茄，只要稍微表现出对彼此的好感，就会脸红得不得了，有时感觉美里永远不会停止取笑他们。
+
+But now… this was different, unexplored territory. "I… I have literally _dreamed_ about this for a long time, Asuka…" he said hesitantly.  
+但如今……这是不同的，未曾涉足的领域。“我……我确实长久以来一直梦想着这一刻，明日香……”他犹豫地说道。
+
+"You're hardly the only one, you know," she admitted just as quietly. "If _you'd_ asked _me_ at any point in the last couple years, I probably would have said yes. Half the time I pushed at you, I think I was… trying to get you to. It was always… you know how I'm scared of… being abandoned. It was always that hidden, niggling fear that you'd one day… wise up and leave that made me keep…trying to see if you really would stay with me no matter what. But… I've imagined a day like this too. Maybe not with Rei and Kaworu _quite_ so intimately tied to us too, but…" She paused. "Ok, well, the _bear_ is a surprise. As is… Mein Gott, Shinji, you all said _yes_. To _me_! I… this was my idea?!"  
+“你知道的，你并非唯一一个，”她同样轻声地承认。“如果过去几年中的任何时候你问我，我大概都会说愿意。很多时候我对你施压，我想我是在……试图让你这么做。总是……你知道我害怕……被抛弃。总是那个隐秘的、挥之不去的恐惧，担心你有一天……会醒悟并离开，这让我一直……试图看看你是否真的会无论发生什么都在我身边。但……我也曾想象过这样的一天。也许没有丽和薰与我们如此亲密地联系在一起，但……”她停顿了一下。“好吧，好吧，那只熊是个惊喜。还有……我的天，真嗣，你们都答应了。对我！我……这是我的主意？！”
+
+Shinji smiled a little less hesitantly. "Because we all love you, Asuka."  
+真嗣略显不那么犹豫地笑了笑。“因为我们所有人都爱你，明日香。”
+
+Asuka sighed out her nose and poked him in the forehead. "Yeah, well… maybe. But you still don't get it, do you, my baka _husband_? Why we're all here in the first place?"  
+明日香从鼻子里叹了口气，用手指戳了戳他的额头。“是啊，好吧……也许吧。但你还是不明白，对吧，我的笨蛋丈夫？我们为什么会在这里，一开始？”
+
+He blinked, confused. "Er… because Misato said we had to-"  
+他眨了眨眼，一脸困惑。“呃……因为美里说我们必须……”
+
+"No, you dummy! Us! All four of us! As a… foursome!" Asuka blushed harder.  
+“不，你这个傻瓜！我们！我们四个！作为一个……四人组！”明日香的脸更红了。
+
+"I… I don't…?" "我…我不…？"
+
+Asuka hung her head for a second. "All these years, still a baka." She raised her head and stared at him. "Shinji, the reason Rei, Kaworu, and I are all here is _you_. We all love _you_, you idiot. All of us may love each other too now, but what brought us all together in the first place is we all fell in love with you. Rei may have gotten him first because I had you at that point, but you can't tell me even _you_ missed that Kaworu has loved you since the day he showed up here?"  
+明日香低下头，片刻后又抬起，"这么多年了，还是个笨蛋。"她直视着他，"真嗣，丽、薰还有我都在这里，都是因为你。我们都爱你，你这个傻瓜。我们可能现在也彼此相爱，但最初把我们聚在一起的原因是我们都爱上了你。丽可能先得到了他，因为那时我已经有了你，但你不能告诉我，你连薰从第一天来到这里就爱着你的事都没注意到吧？"
+
+Shinji did look away this time, flushing. "Um… yeah, I… kind of noticed."  
+这次，真嗣确实移开了视线，脸颊泛红。"嗯…是的，我…有点察觉到了。"
+
+"And our favorite bluenette? The one you impressed the moment you met by volunteering to take her place against the Third Angel? The one who… Gott damn her sexy ass, the one who loves you _and_ me so much she made sure she never let us permanently give up on each other? The one who apparently is already 100% on-board with… with us staying married? You think she doesn't love your oblivious ass too?"  
+"还有我们最喜欢的蓝发女孩呢？那个你第一次见面就通过主动代替她对抗第三使徒而给她留下深刻印象的人？那个……该死的性感屁股，那个深爱着你和我，确保我们永远不会永久放弃彼此的人？那个显然已经完全同意……我们保持婚姻关系的人？你觉得她不也爱着你那迟钝的屁股吗？"
+
+"Um… well… yes…" Shinji mumbled. He automatically put his arms around Asuka as she pulled him into a hug. "I… I can't deny any of this, Asuka. But why are you-"  
+"嗯……好吧……是的……" 真嗣含糊地回答。他本能地张开双臂抱住明日香，她将他拉进一个拥抱。"我……我无法否认这些，明日香。但你为什么——"
+
+Asuka rolled right on like he hadn't spoken. "And me. Me, me, me. The one who fell hardest and fastest and deepest, but can't fucking spit it out unless we're about to die or I'm drunk off my ass because I'm still a stupid scared little girl inside afraid to admit I cry most nights we're not together because the idea of a future without my Shinji scares the Hell out of me…"  
+明日香继续说着，仿佛他没插话。"还有我。我，我，我。那个陷得最深、最快、最彻底的人，但就是他妈的说不出口，除非我们快要死了或者我醉得不省人事，因为我内心仍然是个害怕承认自己大多数夜晚哭泣的愚蠢胆小的小女孩，因为想到没有真嗣的未来让我害怕得要命……"
+
+She took a shuddering deep breath and buried her face in his shoulder. "I… I've been worried over the last year, Shinji, trying to figure out me, my feelings, and how this… how long the four of us could go on before something happened that broke this fragile equilibrium we'd all found… I… I wanted you forever, but couldn't imagine telling Rei or Kaworu they… they'd have to just watch you and I go off alone together. I never imagined we could do _this_… and I… I… I think I'm with Rei. I think we should… I meant every word I said in that video. I can't _remember_ it right now, but I know it. I... want to keep this."  
+她颤抖着深吸一口气，将脸埋在他的肩头。“我……过去这一年我一直很担心，真嗣，试图弄清楚自己，我的感情，以及我们四个这种……这种脆弱的平衡能维持多久，直到发生什么事情打破它……我……我想要你永远在我身边，但无法想象告诉丽或薰他们……他们只能看着你和我独自离开。我从没想过我们可以这样做……而我……我……我想我是和丽在一起的。我想我们应该……我视频里说的每一句话都是真心的。我现在记不清了，但我知道。我……想保持这样。”
+
+Shinji's arms tightened around her. "…you… you mean… stay like this. All four of us, together?"  
+真嗣的手臂紧紧环绕着她。“……你……你是说……就这样保持下去。我们四个，在一起？”
+
+She nodded. "I… Rei's there too. And… I'm pretty sure Sparkles is too. I… I know I am. Are you? Do… do you want to...?"  
+她点点头。“我……丽也在。而且……我很确定薰也是。我……我知道我是。你呢？你……你愿意吗……？”
+
+She could feel him shaking. "A-asuka... I'd marry _PenPen_ if that was a requirement to be able to stay with you. You're asking me if... if I also want to stay... stay with the two other people I love and love me? I..."  
+她能感觉到他在颤抖。“明日香...如果这是能和你在一起的要求，我会和 PenPen 结婚。你是在问我...是否也想和另外两个爱我、我也爱的人在一起吗？我...”
+
+He started laughing. "Asuka, I may be the most blind, oblivious baka in the world, but I'm not fool enough to ever let you go, o-or Rei, or Kaworu... I... are, are _you_ sure? I... yes, I've... Kaworu and I have been... looking at each other since we met, but... you come first. Him and me, me and Rei, him and Rei, you and me... that's all something anyone can see. But... I don't want to make you have to... take him as part of a package just because-"  
+他开始笑了起来。“明日香，我可能是世界上最盲目、最迟钝的笨蛋，但我绝不会愚蠢到让你离开，也不会让丽或薰离开...我...你确定吗？我...是的，我和薰自从相遇以来就一直在...互相注视，但是...你永远是第一位的。他和我的关系，我和丽的关系，他和丽的关系，你和我的关系...这些都是任何人都能看出来的。但是...我不想让你被迫...接受他作为捆绑的一部分，只是因为-”
+
+Asuka stopped him with a kiss. "Shush, you. Sparkles... He and I may not _yet_ be as gaga as the rest of us are for each other, but he's also the only other man besides you I have never minded waking up next to, and... I'd be lying if I said I didn't like the feeling of being between you two. Not just the sex, I mean. The... just being held by you both when I know how you two feel about each other. So... no, it's not 'imposing' him at all, okay? He's... He's part of us now. I can't picture him not being there. So that's that."  
+明日香用一个吻打断了他。“嘘，你这个傻瓜...薰和我可能还没有像我们其他人那样疯狂地相爱，但他也是除了你之外，我从未介意醒来时躺在他身边的人，而且...如果我说我不喜欢夹在你们两个之间的感觉，那我就是在撒谎。不仅仅是性，我的意思是...只是被你们两个抱着，当我明白你们两个对彼此的感情时。所以...不，这根本不是在强加给他，好吗？他...他现在是我们的一部分了。我无法想象没有他的日子。就这样定了。”
+
+She looked him in the eyes again. "So... if you're ok with being at the middle of a pile of wives and a husband at night from now on..."  
+她再次直视他的眼睛。“那么……如果你不介意从今往后每晚都处在妻子堆和丈夫之间……”
+
+He laughed again, a faintly crazed edge to it. "Asuka... you always ask me the questions that make me wonder if I'm losing my mind... I've never wanted to let you go, ever. I was always just afraid to ask you to stay, because I didn't deserve it. If you're okay with this... then I am too."  
+他又笑了，笑声中带着一丝近乎疯狂的边缘。“明日香……你总是问我那些让我怀疑自己是否要疯了的问题……我从未想过要放开你，从来没有。我只是害怕开口让你留下，因为我觉得自己不配。如果你觉得这样没问题……那我也一样。”
+
+"Also, I promised Rei I was going to screw her brains out tonight for that little stunt she pulled at the chapel with her panties in my pocket..." Asuka said with a growing smile. "And we can't let her get away with that, can we?" She squeezed him tight. "Our Rei needs a firm hand with this kind of thing."  
+“还有，我答应过丽今晚要让她彻底疯狂，因为她那次在教堂里把内裤塞进我口袋的小把戏……”明日香带着越来越大的笑容说道，“我们不能让她就这么逃掉，对吧？”她紧紧抱住他，“我们的丽在这种事上需要一个坚定的手。”
+
+"Our Rei, huh?" Shinji replied. "Kaworu and I to hold her down and you to have your way with her?"  
+“我们的丽，嗯？” 真嗣回应道。“我和薰按住她，然后你就可以为所欲为了？”
+
+Asuka smiled beatifically. "I love you."  
+明日香幸福地微笑着。“我爱你。”
+
+The elevator binged. "Penthouse level. We're here," Misato said from the far side of Mrs. Growlski. "Let's find my husband."  
+电梯发出“叮”的一声。“顶层到了。我们到了，”美里从格罗斯基夫人那边说道。“我们去找我丈夫吧。”
+
+---
+### Chapter 6
+
+Arg. This should have gone faster. But here we are! Finally! The last chapter of Hangover!  
+哎呀，这本该更快完成的。但不管怎样！终于！《宿醉》的最后一章！  
+(Though we may see more 'later days' bits)  
+（尽管我们可能会看到更多‘后来的日子’片段）
+
+---
+
+**Evangelion: The Hangover pt 6  
+新世纪福音战士：《宿醉》第六部分**
+
+**.**
+
+---
+
+Rei and Kaworu, similarly isolated in another corner of the elevator by Mrs. Growlski's bulk, had their own conversation on the ride up. Similar, if a bit shorter. And for given values of the word 'conversation'.  
+丽和渚薰同样被格罗尔斯基太太庞大的身躯隔在了电梯的另一个角落，在上升的过程中，他们有自己的对话。相似，如果稍微短一些的话。而且对于‘对话’这个词，有特定的理解。
+
+Rei rose from where she'd been kneeling, delicately licking her lips with a small, catlike smile. "Mmm... the best part of having two husbands is I will get to do this twice as often. As well as various other things that require two men."  
+丽从跪着的姿势站起身，优雅地舔了舔嘴唇，露出一丝小猫般的微笑。“嗯……有两个丈夫最好的部分就是我可以更频繁地这样做。还有其他需要两个男人的各种事情。”
+
+Kaworu released his white-knuckled grip on the elevator's handrail and tried to uncross his eyes. "R-Rei... if you are trying to convince me to support maintaining this group marriage by pure sex, I have to admit, _it's working_." He hastily zipped his pants up. His arms automatically closed around Rei as she buried herself into his chest with a purr.  
+渚薰松开了紧握电梯扶手、指节发白的手，试图让眼睛不再交叉。“丽……如果你试图通过纯粹的性来说服我支持维持这种集体婚姻，我不得不承认，这很有效。”他匆忙拉上裤子拉链。他的手臂自然而然地环抱住丽，她埋进他的胸膛，发出一声低沉的呜咽。
+
+"Not intentionally, but I do find it is a persuasive additional argument," Rei said with only the faintest hint of smug. "My main case remains that we both love Shinji intensely, desire he be happy more than anything, and know that Asuka is the person who makes him happiest. He loves all three of us, but has not wanted to tell either of us that they are not 'the one', and so has held back from committing to Asuka. Ergo, the path of maximum joy for all four of us is this arrangement."  
+"并非有意，但我确实认为这是一个有说服力的附加论点，" 丽说道，语气中仅带着一丝微不可察的自得。"我的主要论点依然是，我们都深爱着真嗣，渴望他比任何事都幸福，并且知道明日香是让他最快乐的人。他爱我们三个，但不愿告诉任何一方他们不是'那个人'，因此一直犹豫不决，没有向明日香承诺。因此，对我们四个人来说，最快乐的道路就是这种安排。"
+
+"I... don't disagree with any of that," Kaworu admitted, wiping sweat off his forehead. It had been difficult not to _scream_ under Rei's 'attention' there. She was very, very good. "But... I... Asuka and I..."  
+"我...并不反对这些，" 渚薰承认道，擦去额头上的汗水。在丽的'关注'下保持冷静并不容易。她非常非常出色。"但是...我...明日香和我..."
+
+Rei patted his cheek reassuringly. "It is true, she does not love you with the same intensity she has for me, let alone Shinji. But recall she is just like him: she likewise has been afraid of ending things with me _and_ you if she and Shinji were to become a monogamous married pair. Or even just legally and symbolically excluding us by doing so. She is also aware of how we both love Shinji, and will not spurn you for that. And there is her speech in that video. She was sincere. I am fully confident she will be happy you are part of this, and come to love you as much as Shinji and I. We have... so much time ahead together."  
+丽轻轻拍了拍他的脸颊以示安慰。“确实，她对你的爱没有像对我那样强烈，更不用说对真嗣了。但别忘了，她和真嗣一样：她也害怕如果她和真嗣成为一夫一妻制的夫妻，会结束与我和你的关系。甚至仅仅是通过这样做来合法地和象征性地排除我们。她也知道我们俩都爱真嗣，不会因此而拒绝你。还有她在视频中的那番话。她是真心的。我完全相信她会因为你成为我们的一部分而感到高兴，并像爱我和真嗣一样爱你。我们还有……很多时间在一起。”
+
+Kaworu's face flashed to joy, but then clouded. "They're... still mortal, Rei. Are we?"  
+渚薰的脸上闪过喜悦，但随即又蒙上了阴霾。“他们……还是凡人，丽。我们是吗？”
+
+Rei gave a small shrug. "I am unsure. We age. I believe we _can_ die, if we wish to. And... we have decades, Kaworu. We have us, living examples of biological integration of the Fruit of Life. We have our loves. I think ensuring we do not have only a single century with them is sufficient motivation to dedicate ourselves to _carefully_ developing the Fruit for humanity at large. That will be a good life, yes?"  
+丽微微耸肩。“我不确定。我们会衰老。我相信如果我们愿意，我们可以死去。而且……我们有几十年，渚薰。我们有我们，生命的果实生物融合的活生生的例子。我们有我们的爱。我认为确保我们不仅仅与他们共度一个世纪，足以成为我们致力于为全人类谨慎开发生命果实的充分动力。那将是一种美好的生活，不是吗？”
+
+Kaworu snorted, and started laughing. Rei raised a trim eyebrow at him. He forced himself to calm down enough to answer her. "Rei... you just blew me so incredibly well I'm surprised I can still talk straight, explained why we should stay jointly married to our two best friends, and then topped it off with a statement you intend to defeat physics and entropy to create immortality for our loves and all mankind. All in the space of five minutes. Have I told you lately you are awesome and I love you?"  
+渚薰嗤笑一声，随即大笑起来。绫波丽对他挑起修剪整齐的眉毛。他强迫自己平静下来，以便回答她。“绫波……你刚刚让我爽到难以置信，我居然还能说话这么利索，解释了我们为什么要继续与我们的两位好友共同维持婚姻关系，然后还以一句你打算战胜物理和熵，为我们的爱人和全人类创造永生的话作为结尾。这一切只用了五分钟。我最近有没有告诉过你，你真是太棒了，我爱你？”
+
+"Not in the last two hours, but I will happily accept the compliments from my husband," Rei said with a faintly arrogant, royal air that she'd definitely learned from Asuka. She also managed to put a lilt into 'husband' that shot right down Kaworu's spine and woke his recently sated libido again. Rei smirked wider as she felt him stir against her. "Ahh...the best part of two husbands, indeed."  
+“最近两小时没有，但我很乐意从我丈夫那里接受这些赞美，”绫波丽带着一丝从明日香那里学来的傲慢皇室气质说道。她还在‘丈夫’这个词上加了点儿抑扬顿挫，直击渚薰的脊椎，唤醒了他刚刚满足的欲望。绫波丽得意地笑了笑，感觉到他身体的变化。“啊……有两个丈夫的好处，确实不少。”
+
+The elevator binged. "Penthouse level. We're here," Misato said from the far side of Mrs. Growlski. "Let's find my husband."  
+电梯发出“叮”的一声。“顶层到了。我们到了，”美里从格罗斯基夫人那边说道。“我们去找我丈夫吧。”
+
+The former Pilots fell into step behind their old Operations Director. Surprisingly, Misato somehow lacked the slight wobble to their gait the others still had from their hangovers. After a short walk down the hallway, Misato looked back over her shoulder. "Rei?"  
+前驾驶员们跟在他们昔日的作战指挥官身后。令人惊讶的是，美里似乎并没有因为宿醉而步履蹒跚，而其他人却依然如此。走过一段走廊后，美里回头看了一眼。“绫波？”
+
+Rei looked around, her eyes faintly glowing just a bit redder than usual if you were watching close. She pointed towards the elaborate double doors at the end of the hall with 'Presidential Suite' on the gilded doorplate. "There."  
+丽环顾四周，如果你仔细观察，会发现她的眼睛微微泛着比平时更红的微光。她指向大厅尽头那扇装饰华丽的双开门，门牌上镀金写着'总统套房'。“那里。”
+
+"Either my husband's been moving up in the world while I've been out, or someone's made him a guest," Misato commented. She rapped firmly on the door.  
+“要么是我丈夫在我不在的时候地位上升了，要么是有人让他成了客人，”美里评论道。她用力敲了敲门。
+
+Nothing. 没有回应。
+
+Misato frowned, and shot a look at Rei, who just nodded again. Misato knocked again, harder. "Kaji? You in there?"  
+美里皱了皱眉，瞥了一眼绫波，后者只是再次点了点头。美里再次敲门，这次更用力。“加持？你在里面吗？”
+
+There was the faint sound of movement on the other side of the door. "No one that name here. Go," said a thick Russian accent.  
+门后隐约传来一阵动静。“这里没有叫这个名字的人。走吧，”一个浓重的俄罗斯口音说道。
+
+Misato's frown deepened, and her eyes narrowed. "We have reason to believe he's in this room, sir. Please open up."  
+美里的眉头皱得更深了，眼睛也眯了起来。“我们有理由相信他在这个房间里，先生。请开门。”
+
+"Go away or we call hotel make you leave." More indistinct sounds and footsteps moving away.  
+“走开，不然我们就叫酒店的人让你离开。”更多的模糊声音和脚步声逐渐远去。
+
+"Commander, if I might help?" Kaworu said, leaning past Misato's side. He tapped the electronic door lock with one precisely manicured finger. A faint zzzt of electricity and a miniscule flare of an AT-Field, and the door clicked open.  
+“指挥官，需要我帮忙吗？”渚薰说着，侧身越过美里。他用一只精心修剪过的手指轻敲电子门锁。一丝微弱的电流声和微小的 AT 力场闪光后，门锁咔嗒一声打开了。
+
+Misato threw him a grateful smile and pushed at the now unlatched door. It swung open on perfectly silent hinges to reveal a marble-tiled hallway and small foyer decorated in 'How Much Do You _Think_ This Cost?', but no doorman or anyone else in sight.  
+美里投给他一个感激的微笑，推开已解锁的门。门在完全无声的铰链上转动，露出一条铺着大理石的走廊和小门厅，装饰风格仿佛在问‘你猜这花了多少钱？’，但门童或其他任何人都不见踪影。
+
+Misato reached under her battered but still screaming-red old NERV jacket and loosened her pistol in it's holster. "I'm not even going to try asking you to stay here, kids, but at least stay behind me?" She didn't wait for their nods before heading down the hallway.  
+美里伸手到她那破旧却依旧鲜红的 NERV 夹克下，松了松枪套里的手枪。“我甚至不会尝试让你们留在这里，孩子们，但至少要跟在我后面？”她没等他们点头就朝走廊走去。
+
+Someone was ranting angrily in Russian in the room ahead. Misato beckoned Rei forward. "Rei, since you apparently learned Russian when I wasn't looking, what's this guy yelling about?"  
+前方房间里有人正用俄语愤怒地咆哮。美里示意丽上前。“丽，既然你在我没注意的时候学会了俄语，这家伙在嚷嚷什么？”
+
+Rei cocked her head. "He is demanding the return of his investments. And... threatening to have whoever he is speaking to 'talk to my friend Valera'."  
+丽歪了歪头。“他在要求归还他的投资。而且……威胁说要让与他交谈的人‘和我朋友瓦列拉谈谈’。”
+
+Misato's lips pressed into a flat line. "And my husband is in there, isn't he?"  
+美里双唇紧抿成一条直线。“我丈夫也在里面，对吧？”
+
+Rei nodded. 绫波点了点头。
+
+Misato drew her pistol and worked the slide. "Alright, stay right behind me."  
+美里拔出手枪，推上膛。“好，紧跟在我后面。”
+
+She pushed the door open slightly...  
+她轻轻推开门...
+
+...only to bump right into the back of the heavyset man standing right in front of it. "Ooops."  
+...却正好撞上了站在门前的魁梧男子的后背。“哎呀。”
+
+"Чё за?.." “这是怎么回事？..”
+
+Misato gave the door a huge shove and knocked the man over, stepping into the room with her pistol up. "Hi everyone! I'm looking for my... oh shit."  
+美里用力推开门，将那人撞倒，举着手枪踏进房间。“大家好！我在找我的……哦，该死。”
+
+Half a dozen pistols pointed right back at her. "Да кто ты ваще такая, ёпт?" demanded the thin young man standing in the middle of the room. Right in front of him, handcuffed to a chair, sat the object of their search.  
+半打手枪立刻指向她。“你他妈到底是谁？”站在房间中央的瘦削年轻人厉声质问。就在他面前，被铐在椅子上的，正是他们搜寻的目标。
+
+"Hi honey!" Inspector Katsuragi said cheerily in English. "I got a little held up. This gentleman here is Pavel Radontsev, and he seems to be the guy I beat at poker last night."  
+“嗨，亲爱的！”葛城 inspector 愉快地用英语说道，“我有点耽搁了。这位先生是帕维尔·拉东采夫，看来他就是我昨晚在扑克桌上赢的那个人。”
+
+Radontsev swung a hilariously oversized .44 revolver to point at the group of NERV members coming in through the door. "Fine! Fine! Great! Have some more assholes come in!" he shouted in accented English. "Maybe _they_ will tell me where my property went!"  
+拉东采夫挥舞着一把滑稽的超大号.44 左轮手枪，指向从门口进来的 NERV 成员们。“好极了！好极了！太棒了！又来了一群混蛋！”他用带有口音的英语喊道，“也许他们会告诉我我的东西去哪儿了！”
+
+"You should all put your guns down," Kaworu said cheerfully. "I don't think Rei will appreciate it if you keep pointing them at us."  
+“你们都应该放下枪，”渚薰愉快地说，“我想零不会喜欢你们一直用枪指着我们的。”
+
+"Oh? Sure, why don't I just give you the fucking gold fillings out of my teeth, too? You want anything else, сука?" Radontsev snarled. "I did not drag my ass all the way to Verkhoyansk in the middle of _fucking winter_ to find them just to have some _stupid Chinaman_ steal them from me at poker before my buyer can collect them!"  
+“哦？当然，我为什么不干脆把我的金牙也给你呢？你还想要什么，婊子？”拉东采夫咆哮道，“我可不是在那个该死的冬天一路拖着屁股到维尔霍扬斯克，就为了在买家来取货之前被某个愚蠢的中国人在扑克桌上从我这里偷走！”
+
+"I'm not Chinese," Kaji noted.  
+"我不是中国人，" 加持指出。
+
+"I don't give a fuck!"  
+"我他妈才不在乎！"
+
+Misato worked her jaw. "Ok... leaving aside that you appear to have my husband kidnapped and cuffed to a chair, _and_ that you're pointing a gun at me and my friends, exactly what are we supposed to have 'stolen' from you?" she said tightly, her own pistol not wavering a bit.  
+美里咬了咬牙。"好吧...撇开你似乎绑架了我的丈夫并把他铐在椅子上，还有你正用枪指着我和我的朋友们这些事不谈，我们到底从你那里偷了什么东西？" 她紧绷地说道，手中的枪丝毫未动。
+
+"My fucking _bears_, you stupid woman! This little dick says he beat me at poker for them last night, which is _impossible_! Nobody beats me at poker! No matter how drunk I am! So until this мудак coughs up my bears, he's going to stay right here!"  
+"我他妈的熊，你这个蠢女人！这个小混蛋说他昨晚用扑克赢了我的熊，这不可能！没人能在扑克上赢我！不管我有多醉！所以直到这个混蛋交出我的熊，他得一直待在这儿！"
+
+"You _really_ should put the guns down," Kaworu suggested again. "Rei doesn't like people pointing weapons at us."  
+"你真的应该放下枪，"渚再次建议道。"丽不喜欢有人用武器指着我们。"
+
+"Unless you're going to give me my bears, you can shut the fuck up too, сукабля!" Radontsev told him.  
+"除非你打算还我熊，否则你也可以闭上你的臭嘴，婊子养的！"拉东采夫告诉他。"
+
+"Which bears?" Shinji said quietly from the back of the group. "Is this one of them?"  
+"哪种熊？" 真嗣从人群后方轻声问道，"这是其中之一吗？"
+
+Mrs. Growlski shouldered her way through the too-small doorway and stood up to her full height. She growled something unhappy and surly sounding at the assembled crowd, several of whom snapped their guns to her.  
+格罗尔斯基夫人挤过过于狭窄的门框，挺直了身子站在众人面前。她发出一声不悦且粗鲁的低吼，引得几名聚集的人群立刻将枪口对准了她。
+
+"Господи Иисусе!" one of the goons said.  
+"我的天哪！" 其中一个打手惊呼道。
+
+Mrs. Growlski rumbled again, louder.  
+格罗尔斯基夫人再次低沉地咕哝，声音更大了。
+
+"Mrs. Growlski would like to know where her husband is," Rei translated helpfully.  
+“格罗尔斯基夫人想知道她丈夫在哪里，”丽帮忙翻译道。
+
+Asuka raised a finger. "Didn't we leave him in our bathtub?"  
+明日香竖起一根手指。“我们不是把他留在浴缸里了吗？”
+
+Mrs. Growlski looked around, glaring at them all. Rei said something to her in Russian. Apparently satisfied, the polar bear rumbled back at her.  
+格罗尔斯基夫人环顾四周，狠狠地瞪了他们一眼。丽对她说了一句俄语。显然是满意了，那只北极熊对她咕哝了一声。
+
+Radontsev said something to Rei, looking confused.  
+拉东采夫对丽说了些什么，看起来很困惑。
+
+Rei shrugged. "It's not my fault you sound like a drunken pig farmer from Bobruisk. _She_ speaks perfectly good Russian. Now, in English, please? My friends do not speak Russian."  
+丽耸了耸肩。“你听起来像个来自鲍布鲁伊斯克的醉醺醺的养猪农，这可不是我的错。她俄语说得很好。现在，请用英语好吗？我的朋友们不会说俄语。”
+
+"It's true, I really don't," Kaworu said, smiling. "And if you lost them at poker, doesn't that mean the really belong to Inspector Katsuragi?"  
+"确实如此，我真的没有，" 渚薰微笑着说，"如果你是在扑克游戏中输掉的，那不就意味着它们真正属于葛城侦探了吗？"
+
+Radontsev purpled. His pistol snapped to point right at Kaworu. "Would you care to repeat that to my friend Valera? Valera! Your time has come!"  
+拉东采夫脸色发紫。他的手枪迅速指向渚薰，"你想把那话再说一遍给瓦列拉听吗？瓦列拉！你的末日到了！"
+
+"I wouldn't dooooo that if I were you~" Kaworu sang, still smiling.  
+"如果我是你，我可不会那么做~" 渚薰唱道，依旧面带微笑。"
+
+The pistol's bark was thunderously loud in the hotel suite.  
+手枪的轰鸣在酒店套房中震耳欲聋。
+
+In contrast, the hum of the orange hexagon in front of him was barely audible. The bullet hovering in midair still commanded everyone's attention.  
+相比之下，他面前橙色六边形的嗡嗡声几乎听不见。悬停在空中的子弹依然吸引着所有人的目光。
+
+"Тычёбля?!" “Тычёбля?!”
+
+For the first time since coming into the room, Rei's face had a clear expression on it. Anger.  
+这是自进入房间以来，丽脸上首次露出清晰的表情。愤怒。
+
+She raised her hand and pointed at the goon to her left. "Stop."  
+她举起手，指向左边的小喽啰。“住手。”
+
+He collapsed in a splash of LCL and suddenly emptied clothes.  
+他像 LCL 一样溅落，衣物突然空荡荡地塌陷。
+
+Her arm swung to the next one. "Shooting."  
+她的手臂挥向了下一个。“射击。”
+
+Splash. 溅落。
+
+"At."
+
+Splash. 溅落。
+
+"My."
+
+Splash. 扑通。
+
+Her finger now pointed at Radontsev. "Husband!"  
+她的手指现在指向拉东采夫。“丈夫！”
+
+Splash. 扑通。
+
+After two seconds as LCL, he was suddenly back, if naked. Then a puddle of LCL again. Then back. Then liquid. Then back. Then liquid-  
+在经历了两秒钟的 LCL 状态后，他突然回到了现实，尽管是赤裸的。接着又变成了一滩 LCL。然后再次回归。然后是液体。然后又回归。然后是液体——
+
+"Rei, stop playing with your food," Asuka said dryly.  
+“丽，别玩你的食物了，”明日香干巴巴地说道。
+
+"Were you not even slightly worried?"  
+“你难道一点都不担心吗？”
+
+Asuka smiled at her. "With you _and_ Sparkles here? Not a bit. I know you'd never let anyone hurt us."  
+明日香对她微笑道：“有你和闪亮在这里？一点儿也不怕。我知道你绝不会让任何人伤害我们。”
+
+"Do I still get credit for dramatically saving my loves from danger?"  
+“我还能因为戏剧性地从危险中救出我的爱人而得到表扬吗？”
+
+"Yes, you get kisses." “当然，你可以得到亲吻。”
+
+"Good." "很好。"
+
+Misato sighed. "Rei, put them back, please. I don't want to have to explain any _more_ insanity to the hotel or the cops as it is," she said, even as she stepped forward to fish the handcuff keys out of the soggy pile that had been Pavel Radontsev's clothes.  
+美里叹了口气。“丽，请把它们放回去。我可不想再向酒店或警察解释更多疯狂的事情了，”她说着，同时上前从帕维尔·拉东采夫那堆湿漉漉的衣服中找出钥匙。
+
+"I was going to, Commander. This was just a rapid way of neutralizing their guns and disarming them, since they will be naked, gun-less, and confused in a moment." She daintily stepped to each pile of clothes, removed the pistols, and placed the collection in a plastic bag she picked up off the table. "Like so." Rei waved her hand at the multiple piles of LCL-soaked clothes.  
+“我正打算这么做，指挥官。这只是快速解除他们武装的方法，因为他们很快就会赤身裸体、手无寸铁且困惑不已。”她优雅地走到每堆衣服前，取出里面的手枪，并将收集到的枪支放入从桌上捡起的塑料袋中。“就像这样。”丽挥手示意那些浸满 LCL 的衣服堆。
+
+Suddenly a bunch of very confused and very naked men stood over them. "...это пиздец ваще..." Radontsev said softly, eyes wide.  
+突然间，一群非常困惑且一丝不挂的男人站在他们面前。“...这他妈的真是见鬼了...”拉东采夫轻声说道，眼睛瞪得大大的。
+
+"He told you not to point guns at us, didn't he?" Misato smirked at him as Kaji stood up behind her, rubbing his wrists. "Now, why don't you nice young men all sit right over here on the couch and _politely_ tell us why we shouldn't just hand you all to the Las Vegas Police Department?"  
+"他不是告诉过你不要用枪指着我们吗？" 美里对他微微一笑，而加持站在她身后，揉着手腕。"现在，你们这些好小伙子们为什么不都坐在这边的沙发上，礼貌地告诉我们为什么我们不应该把你们都交给拉斯维加斯警察局呢？"
+
+"Чооо?"
+
+Misato rolled her eyes. "Orrrrr, while you sit down and recover from the sudden feeling of having your AT-Field popped like a soap bubble by an angry demigoddess, I'll talk to my friends for a few minutes." She shepherded them to collapse on and around the couch. As an afterthought, she threw the wet piles of clothes at them.  
+美里翻了个白眼。"或者，当你们坐下来从被愤怒的半神像戳破肥皂泡一样突然破掉的 AT 力场的感觉中恢复过来时，我去和我的朋友们聊几分钟。"她引导他们倒在沙发上和周围。作为事后考虑，她把湿漉漉的衣服堆扔给他们。
+
+"Now... Rei... _'husband'_?" Misato asked with a smirk.  
+"现在... 丽... '丈夫'？" 美里带着一丝戏谑问道。
+
+"That is what I said, yes."  
+"没错，我是这么说的。"
+
+"So you and Kaworu _did_ tie the knot after I left?"  
+"所以在我离开后，你和渚薰确实结婚了？"
+
+"That is technically a correct statement."  
+"从技术上讲，那句话是正确的。"
+
+"Ohohohoh! But you couldn't call me back to see this? I'm so sad!"  
+"哦呵呵呵！但你不能叫我来见证这一刻吗？我好伤心！"
+
+"It happened rather quickly. And it was not precisely my idea."  
+"事情发生得相当快。而且这并非完全是我的主意。"
+
+"Eh? So Kaworu asked you?" She looked at the gray-haired Nephilim. "Awww, that's sweet of him."  
+“诶？所以是渚邀请你的？”她看向灰发的天使。“哇，他真贴心。”
+
+"No."
+
+Misato blinked. "Eh? But... if he didn't, and it wasn't your idea, how did it go?"  
+美里眨了眨眼。“诶？但如果不是他，也不是你的主意，那怎么会成行呢？”
+
+Asuka covered her face with her palm. "Rei~"  
+明日香用手掌遮住脸。“丽~”
+
+Rei looked back at her. "But I'm having fun..."  
+丽回头看着她。“但我玩得很开心……”
+
+"You could keep this up all afternoon, couldn't you?" Asuka tried to glare at her, but couldn't.  
+“你可以整个下午都这样继续下去，不是吗？”明日香试图瞪她，但没能成功。
+
+"Probably." “大概吧。”
+
+Misato raised an eyebrow at Rei, catching on. "You think you're being silly with me, eh?" She looked to Shinji. "Shin-chan, I know you're the worst liar in this entire group, so how about _you_ tell me what happened?"  
+美里对绫波挑了挑眉，心领神会。“你以为你在跟我开玩笑，是吧？”她转向真嗣。“真嗣君，我知道你是我们这群人里最不会撒谎的，不如你告诉我发生了什么？”
+
+"Er..." Shinji looked at his spouses. "Er... we got married."  
+“呃……”真嗣看向他的伴侣们。“呃……我们结婚了。”
+
+"Wait, you and Asuka too?!"  
+“等等，你和明日香也是？！”
+
+"That is also a correct statement," Rei said, perfectly blank.  
+"那也是一个正确的说法，" 丽说道，面无表情。
+
+"I swear, Blue, I am going to spank you _so much_..." Asuka warned.  
+"我发誓，蓝，我要狠狠揍你一顿..." 明日香警告道。
+
+"This is not reducing my motivation to continue," Rei said impishly.  
+"这并没有减少我继续的动力，" 丽调皮地说。
+
+Misato's eyes widened. "Wait, you and Asuka got married? _And_ Rei and Kaworu?"  
+美里瞪大了眼睛。“等等，你和明日香结婚了？还有丽和薰？”
+
+"Yes," Rei confirmed. She then jumped as Asuka pinched her bottom, but started to grin.  
+“是的，”丽确认道。随即她跳了起来，因为明日香捏了她的屁股，但她开始咧嘴笑。
+
+"This woman is impossible," Asuka grumbled.  
+“这个女人真是无可救药，”明日香咕哝着。
+
+"This would be among the reasons you love me," Rei said smugly, but subsided at Asuka's almost pleading look.  
+"这正是你会爱上我的原因之一，" 丽得意地说道，但在明日香近乎恳求的眼神下收敛了。
+
+Asuka sighed, but turned to her old boss. "What she's oh so cutely avoiding saying, Misato, is... is... ah..."  
+明日香叹了口气，转向她的老上司。"她那么可爱地避而不谈的，美里，是...是...啊..."
+
+"We got married," Shinji assisted. "All four of us. Together. And we aim to stay that way, Misato."  
+"我们结婚了，" 真嗣帮忙补充道。"我们四个，一起。而且我们打算一直这样下去，美里。"
+
+Misato blinked. "Wait, what?"  
+"美里眨了眨眼。“等等，什么？””
+
+"Asuka and I had a talk on the way up here. We love each other, we love Rei, Rei and I love Kaworu, and-"  
+“明日香和我来这里的路上谈过了。我们彼此相爱，我们爱丽，丽和我爱薰，而且——”
+
+Misato shook her head. "No, no, I mean… back the Hell up to the part where all four of you are married? Did… Only Touji and Hikari were married when Kaji and I left last night! What the Hell happened?"  
+"美里摇了摇头。“不，不，我是说……回到你们四个都结婚的那部分？昨晚我和加持离开时，只有真治和光结婚了！到底发生了什么？””
+
+Asuka wrapped Rei in an embrace and buried her face in the bluenette's shoulder. "Sparkles, show her the video."  
+明日香紧紧拥抱着丽，将脸埋在蓝发少女的肩头。“斯帕克尔斯，给她看看那段视频。”
+
+.
+
+---
+
+_._
+
+_Twelve hours ago 十二小时前  
+_  
+Rei answered the insistent if erratic knocking at their suite's door but only because she was already up and getting a scoop of ice cream in the kitchen. She would not have bothered at all, otherwise. The other three occupants of the suite didn't even seem to notice the sound. To be fair, they were _deeply_ engaged.  
+丽回应了套房门口那虽急促却杂乱无章的敲门声，但这仅仅是因为她已经起床并正在厨房里挖一勺冰淇淋。否则，她根本不会理会。套房里的另外三位住客似乎完全没有注意到这声音。说来也公平，他们正全神贯注于各自的事情。
+
+Rei's sole concession to her state of dress was to wrap a kitchen towel around her waist before opening the door a crack. "Yes?"  
+丽唯一的让步是在打开门缝前用一条厨房毛巾围住腰部。“什么事？”
+
+Misato's face was right there pressed up against the crack. "Hiiiii~~~~ Rei! Quick, oppen zee door. I nid to stasch Kajiiiii~'s winnins wit youse faw. Faux. Four." Hic.  
+美里脸贴在门缝上。“嗨~~~~丽！快，打开门。我需要把加持的赢钱藏在你这里。假的。四。”打嗝。
+
+If Rei hadn't already been 200% intoxicated, Misato's breath alone would have done the trick. At the moment, all it did was remind Rei that she _was_ drunk, what that had led to, and what she was currently missing by being at the door right now instead of back in bed bouncing vigorously astride one of her spouses. "We are busy, Commander."  
+如果丽还没有完全醉倒，美里的呼吸就足以让她醉倒了。此刻，这仅仅提醒了丽她已经醉了，那导致了什么，以及她现在因为站在门口而不是回到床上在她的配偶身上剧烈跳动而错过了什么。“我们正忙着，指挥官。”
+
+"It'll onlee taik a minnit! Iz scheecret! Nid ta hide it place they woan look. I'mma put one in yur room, and one... uh... need a place..."  
+"就一会儿！这是秘密！得藏在他们不会找的地方。我给你房间放一个，还有一个...呃...得找个地方..."
+
+"What winnings?" "什么赢钱？"
+
+"Kajeee's playin' poaker agin some Russki kid whu things he can out-poker Kajee, and out-drink _me_!" Misato said with a laugh. She pulled a flask out of her pocket and had another slug of the Blue Stuff. "Kajee's rollin' him gud! Took him for at leese $200,000 already, and made him lose his bearz!"  
+"Kajeee 又在和那个俄罗斯小子玩扑克了，那小子以为自己能赢过 Kajee，还能喝赢我！" Misato 笑着说。她从口袋里掏出一个酒壶，又喝了一口蓝色液体。"Kajee 手气不错！已经从他那儿赢了至少 20 万美元，还让他输掉了他的熊！"
+
+Rei stared at her. "Bears."  
+丽盯着她。“熊。”
+
+Misato appeared to think hard for a second. "AhHAH!" She smacked her hand with her fist. "We can putter inda car! Wait... no... they might schee her. We'll put de car on the roov! There, I ficshed it."  
+美里似乎认真思考了一会儿。“啊哈！”她用拳头拍了拍手掌。“我们可以开车去！等等...不行...他们可能会看到她。我们把车放在屋顶上！好了，我解决了。”
+
+"The car," Rei said blankly.  
+“车，”丽面无表情地说。
+
+Misato pushed the door open. "Here. You go get the keez and... Rei, why don't you have annee pantsh on?"  
+美里推开门。“这里。你去拿钥匙和... 丽，你怎么没穿内裤？”
+
+"I was in the middle of exceptionally emotionally and physically satisfying coitus, Commander. Can you come back later? You are interrupting-"  
+“我正处在情感和身体上都极为满足的性爱中，指挥官。你能待会儿再来吗？你打扰到——”
+
+"This'll onlee bee a jif, Rei! I just nid youse to grab zhee car keez and... uh, some pantz, and follow me! I'll leave a note while youse getz 'em!" Misato grabbed a piece of paper and a pen off the table and began scribbling a note. "Dis'll tell erryone what's the planz."  
+“这只需要一会儿，丽！我只需要你拿上车钥匙和... 呃，一些内裤，然后跟我走！你拿东西的时候我会留张条！”美里从桌上抓起一张纸和一支笔，开始潦草地写便条。“这会告诉大家计划是什么。”
+
+Reluctantly, Rei acquired some pants and grabbed the key fob. "Why do we need to do this right now, Commander?"  
+不情愿地，丽穿上裤子，抓起钥匙扣。“为什么我们现在就得做这个，指挥官？”
+
+Rei stepped back and blinked as the polar bear shouldered his way through the door and into the room. Misato directed him into the bathroom and handed him a bottle of vodka off the bar. "'Cauz bears hate waitin'. Now come on, we gotta put de odder one in teh car."  
+丽后退一步，眨了眨眼，看着那只北极熊挤过门进入房间。美里指挥它进了浴室，并从吧台上递给它一瓶伏特加。“因为熊讨厌等待。现在快点，我们得把另一只放进车里。”
+
+"This is interrupting my consummation, Commander," Rei complained as the door closed.  
+“这打断了我的结合，指挥官，”门关上时，丽抱怨道。
+
+.
+
+---
+
+_._
+
+_Thirty Minutes Later... 三十分钟后……_
+
+Rei re-entered the suite, threw her pants off as fast as she could, and rapidly collected their phones before placing them all in the freezer wrapped in foil. She also made sure to carefully lock, bolt, and chain the door. Commander Katsuragi would _not_ be allowed to interrupt a second time.  
+丽重新进入套房，迅速脱掉裤子，迅速收集了他们的手机，然后用锡纸包好放进冰箱。她还仔细地锁好、闩上并拴上了门。葛城司令不会再有机会打断他们了。
+
+She made her way back to the bedroom. Happily, things had not ceased in her brief absence. In fact, she seemed to have arrived at an opportune moment, as she got there just in time to watch Kaworu stiffen and shout in climax atop Shinji, then slowly topple off to flop at Shinji's side across from Asuka.  
+她回到卧室。幸运的是，在她短暂的离开期间，事情并没有停止。事实上，她似乎到达了一个恰到好处的时刻，正好赶上看到渚薰在真嗣上方僵硬并高潮地大喊，然后慢慢倒下，倒在明日香对面的真嗣身边。
+
+Rei smiled. "Is that for me?" she asked coquettishly, nodding at the still prominent display of Shinji's compassion.  
+丽微笑着。“这是给我的吗？”她娇媚地问道，目光投向了真嗣那依然显而易见的关怀之举。
+
+Shinji blinked his own rapturously closed eyes open and smiled lazily, lovingly at her. "Yes it is, Rei, if you want it. I have to warn you, I'm... pretty close."  
+真嗣缓缓睁开自己陶醉闭合的双眼，慵懒而深情地对她微笑。“是的，丽，如果你愿意的话。我得提醒你，我……相当接近了。”
+
+"That is perfectly acceptable, my husband," Rei purred as she crawled onto the bed and settled astride his hips. "Pretty close is where I want you to be from this point on."  
+“那再好不过了，我的丈夫，”丽低声呢喃，爬上床，跨坐在他的腰间。“从现在开始，我希望你一直保持这样的接近。”
+
+She lowered herself with a warm smile, feeling completely fulfilled. "I'm home..." she said happily.  
+她带着温暖的微笑缓缓坐下，感到无比满足。“我回来了……”她开心地说道。
+
+Asuka and Kaworu smiled at her. "Welcome home, _wife_," they said together. This made them grin at each other.  
+明日香和薰向她微笑。“欢迎回家，妻子。”他们异口同声地说，这让两人相视而笑。
+
+Rei began to move. "Home..." she murmured to herself, staring right into Shinji's eyes.  
+绫波开始移动。“家……”她喃喃自语，直视着真嗣的眼睛。
+
+.
+
+---
+
+_._
+
+"I do," said four voices in perfect synch.  
+"我愿意，"四个声音完美同步地说道。
+
+"Then by the power vested in me by the State of Nevada, I now pronounce you husbands and wives. You may kiss your loves."  
+"那么，根据内华达州赋予我的权力，我现在宣布你们成为丈夫和妻子。你们可以亲吻你们的挚爱了。"
+
+A confused, joyful collision of lips and faces ensued, capped by Rei and Asuka squealing in excitement as Shinji dipped Kaworu for a very thorough kiss.  
+随之而来的是一片混乱而欢乐的唇与脸的碰撞，雷和明日香兴奋地尖叫着，而真嗣则将薰深深地拥入怀中，给了他一个极其深情的吻。
+
+Misato stared slack-jawed at the 200cm flatscreen on the wall of the Presidential Suite. Without taking her eyes of the still fiercely embracing quartet on screen, she reached her free hand out to her left towards Shinji. "Beer me. Now."  
+"美里目瞪口呆地盯着总统套房墙上的 200 厘米平板电视。她的目光始终没有离开屏幕上依然热烈拥抱的四人组，伸出空着的那只手向左边的真嗣示意。“给我啤酒。现在。””
+
+"Ah, Misato… Are you sure-"  
+“啊，美里……你确定——”
+
+"Beer. I cannot brain this. Gimme beer."  
+“啤酒。我无法思考了。给我啤酒。”
+
+Shinji sighed and opened the suite's minibar, extracting a chilled bottle of Asahi Super Dry.  
+真嗣叹了口气，打开套房的迷你吧，取出一瓶冰镇的朝日超爽啤酒。
+
+Misato took it without looking, popped the cap off with her gun, and drained it in one pull. She sat staring at the screen until the video ended. "….Ok. So… you're all married."  
+美里看都没看就接了过来，用枪弹开瓶盖，一口气喝干。她坐在那里盯着屏幕，直到视频结束。“……好吧。那么……你们都结婚了。”
+
+"Yes." "是的。"
+
+"To each other." “彼此之间。”
+
+"Yes." "是的。"
+
+"And… you're all… fine with that? I… How… what?"  
+"而且…你们都…同意这个？我…怎么…什么？"
+
+"And it's your fault too," Asuka smirked. "You and your little line about 'You love each other and you need this, so maybe y'all should just quit messing around and get married already...' is what gave me the idea, apparently."  
+"这也是你的错，"明日香得意地笑了。"你和你那句关于'你们相爱并且需要这个，所以也许你们应该停止胡闹，直接结婚算了...'的话，显然给了我这个主意。"
+
+"Hey!" Misato pouted. "嘿！"美里撅嘴道。
+
+"I love Asuka, Misato. And Rei. And Kaworu. Half the reason Asuka and I weren't married before you and Kaji was Asuka and I were afraid committing to each other meant locking Rei and Kaworu out. So we just… hovered," Shinji said quietly, still attracting everyone's attention. "This… this is a solution I would never had dreamed of, or dared even whisper if I had. It took Asuka's courage and intelligence to see it and seize it. I will never be this lucky or this blessed again. Yes, we're keeping this."  
+"我爱明日香，美里。还有丽。还有薰。我和明日香之前没有结婚的原因之一，就是我们担心彼此承诺会意味着把丽和薰排除在外。所以我们只是……徘徊不定，" 真嗣轻声说道，依然吸引着所有人的注意。"这个……这是我从未梦想过，甚至不敢低声提及的解决方案。是明日香的勇气和智慧让她看到了并抓住了这个机会。我再也不会有如此幸运或如此受祝福的时刻了。是的，我们要保留这个。"
+
+Misato waved her hand confusedly at Rei and Asuka. "The… Rei… Rei and Asuka? I mean, I knew they were a lot closer since the end of the war than they started off but…"  
+美里困惑地向丽和明日香挥了挥手。"那个……丽……丽和明日香？我是说，我知道她们在战争结束后比刚开始时亲近了许多，但是……"
+
+"Asuka and I have been sleeping together off and on for over eighteen months, Commander," Rei said calmly. "And I love her as much as I love Shinji or Kaworu. She is my wife and I will not give her up."  
+"我和明日香已经断断续续地在一起睡了超过十八个月，指挥官，" 丽平静地说道。"我爱她就像爱真嗣或薰一样。她是我的妻子，我不会放弃她。"
+
+Asuka blushed. "Rei! I… just… don't just _say_ it like that! Telling her we've been… um…"  
+明日香脸红了。“丽！我……只是……别那样说！告诉她我们已经……呃……”
+
+"My wife is amazing in bed, Commander," Rei said with a tiny smirk. "And tastes good, too."  
+“我的妻子在床上非常出色，司令，”丽微微一笑说，“而且味道也不错。”
+
+"Stop that!" “别那样！”
+
+Misato tried once more. "Asuka and Kaworu?"  
+美里再次尝试。“明日香和薰？”
+
+"I-" Kaworu began. “我——”薰开口道。
+
+"No! You damn well stop right there, Misato. Yes, Kaworu! He makes my Rei happy. He makes my Shinji happy! And that right there _alone_ is enough for me to want him in this too! But you saw that video! And what he said before! I _know_ that beautiful, stupid Angel of mine would quietly back out without a whisper of protest if he thought it would make the rest of us happy to just be us three. And I will not have that happen. I will not let him trying to be a stupid, self-effacing dummy just like the others, putting everyone else's love and happiness ahead of his own! No way! How can I not want him too, the perfect, pretty, sweet doofus that makes Rei smile, that makes Shinji glow, that makes me love _him_ for being that way?" Asuka swatted at her now wet cheeks. "Gott damn you, Misato! You made me fucking cry and say it out loud! Yes, he belongs with us, _to us!_ He is a part of… whatever they Hell we four are, and I will not let anyone take him away from us!"  
+“不！你给我停在那儿，美里。是的，薰！他让我的丽开心。他让我的真嗣开心！光是这一点就足以让我希望他也加入我们！但你看过那段视频了！还有他之前说的话！我知道我那美丽又愚蠢的天使，如果他认为这样会让其他人都开心，他会默默退出，连一声抗议都不会有。我绝不允许这种事发生。我绝不会让他像其他人一样，愚蠢地自我牺牲，把别人的爱和幸福放在自己之前！绝不！我怎么能不想要他呢，那个完美、漂亮、甜蜜的傻瓜，让丽微笑，让真嗣发光，让我因为他那样而爱上他？”明日香拍打着自己湿润的脸颊。“该死的美里！你让我哭了，还让我大声说出来！是的，他属于我们，和我们在一起！他是我们四个……不管我们是什么关系的一部分，我不会让任何人把他从我们身边夺走！”
+
+She grabbed the stunned Nephilim and pulled him into a fierce, almost desperate kiss. "You hear me, baka number two? You're mine and Shinji and Rei's, and you're staying married to us! Got it?!"  
+她抓住了震惊的混血种，将他拉入一个激烈而近乎绝望的吻中。“你听到了吗，二号笨蛋？你是我的，也是真嗣和丽的，你得和我们保持婚姻关系！明白了吗？！”
+
+Kaworu just gaped at her, his face flashing through a combination of shock, joy, and incipient tears himself. "…..ok," he finally managed in a tiny voice.  
+渚薰只是目瞪口呆地看着她，脸上闪过震惊、喜悦和即将落泪的复杂表情。“……好，”他终于用微弱的声音回答道。
+
+"Good! Now go kiss your husband before I start bawling or something!" She shoved him at Shinji.  
+“好！现在去亲你的丈夫，不然我就要开始嚎啕大哭了！”她把他推向真嗣。
+
+He stumbled towards Shinji, then shyly smiled at him, blushing. "Um… Y-you know how this goes, Shinji."  
+他踉跄地走向真嗣，然后羞涩地对他微笑，脸颊泛红。“嗯……你、你知道这怎么回事，真嗣。”
+
+Shinji just nodded. "The Asuka has spoken. We must obey." He gently pulled Kaworu close enough to kiss.  
+真嗣只是点点头。“明日香已经发话了。我们必须服从。”他温柔地将薰拉近，足以亲吻。
+
+"Er… I am very confused," Radontsev said from behind Misato. "But… can I put pants on now?"  
+“呃……我非常困惑，”拉东采夫在美里身后说，“但是……我现在可以穿上裤子了吗？”
+
+Misato shook her head and looked at Kaji, who shrugged. "I don't think he's going to be any more trouble, love. Rei's kind of impressed on him the dangers of that."  
+美里摇了摇头，看向加持，后者耸了耸肩。“我觉得他不会再惹麻烦了，亲爱的。丽已经让他深刻认识到那件事的危险性了。”
+
+Misato looked at Rei, who nodded. "If he becomes irritating again, I will put him in a bucket for a few hours."  
+美里看向丽，丽点了点头。“如果他再变得烦人，我会让他泡在水桶里几个小时。”
+
+"Nyet! Please! I be good!"  
+“不！请！我会乖乖的！”
+
+Misato shook her head again. "I need more beer. And more Blue Stuff." She took a flask out of her jacket pocket, and shook it. Her expression fell when it proved empty. "Damn it. I wish I'd saved some."  
+美里再次摇了摇头。“我需要更多啤酒。还有蓝色饮料。”她从夹克口袋里掏出一个扁酒壶，摇了摇。发现里面空空如也时，她的表情黯淡下来。“该死。真希望我留了一些。”
+
+Hikari and Touji re-entered the room with Lieutenant Growlski following them. "We er... brought him, Asuka."  
+光和真嗣带着格罗尔斯基中尉重新进入房间。“我们……把他带来了，明日香。”
+
+The two bears let out loud and happy growls on sighting each other, and smashed together in a huge, fur-and-claws hug.  
+两只熊一见到对方就发出了响亮而欢快的咆哮，随即紧紧相拥，展开了一场毛茸茸的巨爪拥抱。
+
+"I thought this would be sadder, after that terrible performance with the dog at Medieval Times the night before," Rei said, watching them. "But this is nice. Lieutenant Growlski hit it out of the park."  
+"我以为昨晚在 Medieval Times 和那只狗的糟糕表演之后，这会显得更悲伤，"丽说，看着他们。"但这挺好的。格罗夫斯基中尉真是大放异彩。"
+
+Asuka stared at her, very confused. "Rei, what the Hell are you talking about?"  
+明日香盯着她，非常困惑。"丽，你到底在说什么鬼话？"
+
+"For the mourning after a terrible knight, there's nothing like the dog of the bear that hit you," Rei said sagely, nodding.  
+"对于一个糟糕骑士的哀悼，没有什么比击倒你的熊的那只狗更合适了，"丽睿智地点头说道。"
+
+Everyone in the room stared at her in silence.  
+房间里的每个人都沉默地盯着她。
+
+"Rei," Shinji said slowly, "That was terrible. Marry me."  
+"丽，" 真嗣缓缓地说，"那真是糟糕透顶。嫁给我吧。"
+
+"Too late, already done."  
+"太迟了，已经办妥了。"
+
+"Marry me too," Asuka added.  
+"也向我求婚吧，" 明日香补充道。
+
+"And me," Kaworu echoed. "还有我，" 渚薰附和道。
+
+"Alright, but you must take me back to our room and ravish me immediately," Rei demanded.  
+"好吧，但你得带我回房间，立刻把我占有，" 绫波命令道。
+
+"Sold!" Asuka crowed, and picked up Rei over her shoulder. "Misato, you're on your own now, have the Growlskis eat anyone that acts up, yes we're staying married, and don't you dare bother us until dinnertime!" She began moving surprisingly quickly towards the door. "I love these idiots!"  
+"成交！" 明日香欢呼道，将绫波扛在肩上。"美里，你现在得自己应付了，让格罗尔斯基们对付那些捣乱的家伙，对，我们还要继续结婚，别在晚饭前打扰我们！" 她开始以惊人的速度向门口移动。"我爱死这些傻瓜了！"
+
+"What... what Hell happened?" Radontsev asked weakly. He looked up at the Growlskis, who were glaring at him. "Uh oh."  
+"什...什么鬼情况？" 拉东采夫虚弱地问道。他抬头看着格罗尔斯基们，他们正瞪着他。"呃哦。"
+
+"My kids..." Misato said, shaking her head again. "I should have expected this would happen. Vegas, man..." She looked at the unhappy bears. "Well... looks like, you, me, and the Growlskis are going to settle last nights poker bets. You got any problems with that, or should I feed you to them?"  
+"我的孩子们..." 美里再次摇了摇头。"我早该料到会这样。拉斯维加斯，伙计..." 她看着那些不高兴的熊。"好吧...看来，你、我，还有格罗尔斯基们得解决昨晚的扑克赌注了。你有什么问题吗，还是我该把你喂给他们？"
+
+"No! No! Is fine! We talk! All droogs, da?" Radontsev said hurriedly, waving his hands. He glanced at the bears again and swallowed nervously. "We make new deal on the bears, da? Good?"  
+“不！不！没事的！我们谈谈！都是兄弟，对吧？”拉东采夫急忙说道，挥着手。他又瞥了一眼那些熊，紧张地咽了咽口水。“我们重新谈一下关于熊的交易，好吗？好的？”
+
+Misato cocked her eye at Lieutenant Growlski, who shrugged. "Well, you can pacify me with the money you owe, but they might be harder to... bear."  
+美里斜眼看着格罗尔斯基中尉，后者耸了耸肩。“好吧，你可以用欠我的钱来安抚我，但他们可能更难……忍受。”
+
+Mrs. Growlski threw her fez at Misato.  
+格罗尔斯基夫人把她的菲斯帽扔向美里。
+
+"What? Where do you think my kids got it from? Eh?"  
+"什么？你以为我的孩子们是从哪儿学来的？嗯？"
+
+"This country is so fucking weird. I'm going to Monaco next time..." Radontsev said miserably.  
+""这个国家真是太他妈奇怪了。下次我要去摩纳哥……"" 拉东契耶夫痛苦地说道。
+
+Rei squeaked gleefully as Asuka tossed her onto the bed and began rapidly whipping Rei's clothes off.  
+丽一边欢快地尖叫，一边被明日香扔到床上，后者迅速地剥掉了丽的衣服。
+
+"You, Blue, are such a terrible, wicked punster and tease!" she accused as she flung Rei's pants behind her.  
+"你啊，蓝，真是个糟糕透顶、恶劣至极的俏皮话大王和逗弄高手！" 她一边指责，一边将丽的裤子甩到身后。
+
+"And yours. For our lives," Rei confessed, smiling.  
+"还有你的。为了我们的生活，" 丽坦白道，微笑着。
+
+Asuka shivered and began tearing her own clothes off too. She threw a look over her shoulder as she went. "You two sexy bakas, get naked too and get in here. I need all my loves up against me with all speed. I _want_ this now, and... and I need it. All of you."  
+明日香颤抖着也开始脱掉自己的衣服。她回头瞥了一眼，说道："你们这两个性感的大笨蛋，也快脱光了进来。我需要你们所有人尽快紧紧贴着我。我现在就要，而且……我需要你们。所有人。
+
+"We all do, Asuka," Shinji said as he lay down beside her and ran his hands through Rei's hair. "That's why it took us five years to get here. This is too much for any of us to have believed before it was real. But we all kind of knew we needed it, didn't we?"  
+"我们都是这样，明日香，" 真嗣说着在她身边躺下，手指穿过绫波的头发。"这就是为什么我们花了五年时间才走到这一步。这在成为现实之前，对我们任何人来说都难以置信。但我们或多或少都知道我们需要它，不是吗？"
+
+"Agreed," Kaworu said from Asuka's other side. "I would not even have imagined this before. This is... we have done foursomes before, yes, but... not like this. Not..." He pressed himself against Rei's side, put one arm up on Asuka's back, and the other around the top of Rei's head on the pillow to stroke Shinji's arm. "This. Us. Complete."  
+"同意，" 渚薰在明日香的另一侧说道。"我之前甚至无法想象这样的情景。我们以前也尝试过四人一起，是的，但……不是这样。不是……" 他紧贴着绫波的身侧，一只手臂搭在明日香的背上，另一只手环绕在绫波头上的枕头上，轻抚着真嗣的手臂。"这样。我们。完整。"
+
+"And in 24 hours we'll be getting on a plane, and no one can take this from us," Asuka sighed, laying down on top of Rei. "Not ever."  
+"而 24 小时后我们将登上飞机，没有人能从我们这里夺走这一切，" 明日香叹息着，躺在绫波的身上。"永远不会。"
+
+"Yes," Rei nodded. "Now please ravish your wife, Asuka?"  
+"是的，" 丽点头道。"现在请享用你的妻子，明日香？"
+
+"Little minx." "小淘气。"
+
+"I love you all." "我爱你们所有人。"
+
+-30-
+
+.
+
+---
+
+.
+
+Well, that was a fun little crackfic, wasn't it?  
+嗯，这真是个有趣的小短篇，不是吗？
+
+Me go bed now. 我现在要去睡觉了。
+
+---
+### Chapter 7
+
+I bet you thought we were done. Well, turns out, Hangover isn't quite done yet.  
+我打赌你以为我们已经结束了。然而，事实证明，《宿醉》还没完全结束。
+
+Boreas Anemos, a fan of A&T, was so stuck by Hangover that he wrote a set of omakes so good, I had to declare them canon, and then they inspired me to write another Hangover chapter to follow it. He's not done, either. I just proofread another 2 pieces covering days after their return to Japan, and I've got a few more ideas to follow.  
+Boreas Anemos，一位 A&T 的粉丝，被《宿醉》深深打动，以至于他写了一系列如此精彩的番外，我不得不宣布它们为正史。这些番外还激发我继续创作另一章《宿醉》。他也没闲着，我刚刚校对了两篇关于他们回到日本后日子的作品，还有一些其他想法即将呈现。
+
+So here we go, Hangover pt 7. Or more properly, 'The Four Of Us, 1-3', written by Boreas Anemos, not me, but included here with his permission to make it easier to fine. He's also got his own FFNet and AO3 pages, so give them a look too. He's got a very interesting new fic going, Two Souls, that takes on Eva canon from an unusual perspective: Kyoko Zeppelin Soryu's.  
+那么，我们开始吧，《宿醉》第七部分。更确切地说，是《我们四人，1-3》，由 Boreas Anemos 所写，并非我手笔，但经他许可收录于此，以便于大家查找。他还有自己的 FFNet 和 AO3 页面，不妨也去看看。他正在创作一部非常有趣的新小说《两个灵魂》，从独特的视角——赤木律子的视角——来解读《新世纪福音战士》的正史。
+
+This is the compilation of 3 pieces into one, for simplicity. It covers the flight back to Japan for our new foursome, and arrival at home.  
+这是三篇作品的合集，为了简洁起见。它涵盖了我们新四人组返回日本的飞行旅程，以及到家后的情景。
+
+.
+
+---
+
+.
+
+**Four of Us - part 1**.  
+我们四人 - 第一部分。  
+_Tale of settling in 安顿下来的故事_
+
+The flight to Japan from the eventful – and fateful – time in Las Vegas was filled with mix of residual excitement from the emotional overload they have been subjected to, worry about legitimisation on part of the newlywed quartet, thoughts on how to present the situation to their families from Hikari and Touji, and smug smiles on Misato's and Kaji part – that sometimes escalated into giggling, as Misato was clearly recalling some funnier part of their trip.  
+从拉斯维加斯那充满事件——且命运攸关——的时刻飞往日本的航班上，充满了他们经历情感超载后的余波兴奋，新婚四重奏对合法性的担忧，光和斗司如何向家人陈述情况的思考，以及美里和加持那得意的微笑——有时升级为咯咯笑声，显然美里在回忆旅途中的某些更有趣的部分。
+
+"Good to see that **someone** is not worried about anything," Asuka growled. While the worst of the hangover was long gone, and she was feeling rather good, there was no reason not to slide in a barb – especially that Misato was still all smug about the events.  
+“很高兴看到有人对什么都不担心，”明日香咆哮道。虽然宿醉最严重的部分早已过去，她感觉相当不错，但没理由不插一句刺——尤其是美里还在对那些事件得意洋洋。
+
+Misato gave her an amused look: "Well, now you're going to learn the fun parts of married life: strange socks everywhere, things you left in known places moving on their own, toilet seat left up-"  
+美里带着戏谑的表情看着她：“好吧，现在你要开始学习婚姻生活有趣的部分了：到处都是奇怪的袜子，你放在已知位置的东西自己移动，马桶座圈还立着——”
+
+"Oi, darling", up-to-now sleeping Kaji interceded. "**That** one is a slander, I never leave the lid up!"  
+"喂，亲爱的", 一直睡着的加持插话道，"那可是诽谤，我从不让马桶盖掀着！"
+
+"Yes, but I do. And you complain about it. Keep sleeping, **you** have the least to worry here", she grinned, he smiled back and returned to his slumber.  
+"是啊，但我会的。你还抱怨。继续睡吧，你在这儿最不用担心", 她咧嘴一笑，他回以微笑，又沉沉睡去。"
+
+Asuka rolled her eyes at the exchange. "Misato, I have been living with them for a few years already. Really, I know it, socks, toilet seat, hair in the shower – mostly mine, I admit – and more. Believe me, Shinji is perfect in handling those little nuisances. Well, maybe except things moving on their own, because he imposes his brand of order all the time."  
+明日香对这段对话翻了个白眼。"美里，我和他们一起生活好几年了。真的，我知道这些，袜子乱丢，马桶盖不盖，浴室里的头发——大部分是我的，我承认——还有更多。相信我，真嗣处理这些小麻烦很有一套。嗯，也许除了东西自己移动这种情况，因为他总是坚持自己的秩序。"
+
+Misato looked at Shinji with a little surprise in her eyes. "That you like to keep your place orderly, I know. But imposing anything does not sound like you."  
+美里看着真嗣，眼中闪过一丝惊讶。“你喜欢保持整洁，我知道。但强加于人听起来不像你的风格。”
+
+He raised his eyebrow on that. Misato was not sure whether she saw him fighting down a smile, or was it just a figment of her imagination. "I would not call it _imposing_. I just like to know where things are."  
+他对此挑了挑眉。美里不确定自己看到的是他在努力忍住笑意，还是仅仅是她的想象。“我不认为这是强加。我只是喜欢知道东西放在哪里。”
+
+"Well, by this you essentially trying to force them to keep their own order, or have their things ordered as you see fit", she elaborated. "Not that there is anything wrong with that – except I already had that experience, I could find **nothing** in my apartment for the first few weeks after you moved in – and I sympathise with the sufferers."  
+“好吧，这么说你实际上是在试图强迫他们保持自己的秩序，或者按照你的想法整理他们的物品，”她详细解释道，“这并没有什么错——只是我已经有过这种经历，你搬进来后的头几周，我在公寓里什么都找不到——我同情那些受影响的人。”
+
+This time, it was Shinji's turn to roll his eyes. "Misato-san… I was astonished you were able to find anything **before** I moved in. One of greatest regrets of my life is not taking photos of that place before I cleaned it up; they would be a great counterargument against most of your friendly comments."  
+这次轮到真嗣翻白眼了。“美里小姐……我真惊讶你在我搬进来之前还能找到任何东西。我一生中最大的遗憾之一就是没在打扫前给那地方拍照；它们将成为反驳你大部分友好评论的有力证据。”
+
+Misato and Asuka blinked in concert and looked on one another, while Shinji maintained his deadpan expression. Finally, Asuka spoke: "I'm not sure whether it's my influence changing you, or Rei's specific brand of humour rubbing on you. Could be either, but I am guessing it's me – you've been in my bed more often, after all."  
+美里和明日香同时眨眼，互相看了看，而真嗣保持着面无表情。最后，明日香开口道：“我不确定是你受我影响改变了，还是丽特有的幽默感传染了你。可能是其中之一，但我猜是我——毕竟你在我床上待得更频繁。”
+
+Shinji smiled, and Misato stifled a giggle; for a moment, she was pondering whether she should not be scandalised by that comment. After short deliberation, she reminded herself that while she is still dealing with "her kids", her erstwhile charges are adults, and – since that fateful night two days ago – married. Massively married. _'__Their life, their fun. I have my boy-toy and my life, let them have theirs.'_ Having reached that conclusion, she smiled, merely shaking her head at Asuka's usual brashness.  
+真嗣笑了，美里忍住笑意；有那么一刻，她在想自己是否应该对这个评论感到震惊。经过短暂的思考，她提醒自己，虽然她仍在处理“她的孩子们”，但她曾经的监护对象已经成年，而且——从两天前那个决定性的夜晚开始——结婚了。彻底结婚了。他们的生活，他们的乐趣。我有我的小男友和我的生活，让他们拥有他们的。”得出这个结论后，她微笑着，只是对明日香一贯的大胆摇了摇头。
+
+A silent giggle from behind had drawn their attention, making Asuka kneel on her seat and look back at Rei, who apparently woke sometime during the exchange and was listening in. Kaworu was still sleeping with his head in her lap, though, looking 'far cuter that it was legal in most prefectures', as Rei was fond of calling that appearance. "Do you wish to contest that claim, Rei? If you do, please share the scandalous details!", Asuka shot.  
+身后传来的一阵轻笑吸引了她们的注意，使得明日香跪在座位上回头看向绫波，显然她在对话中某个时刻醒来并开始倾听。渚仍然在她的膝上熟睡，那模样被绫波戏称为“在大多数县都算得上合法的可爱”。“你想反驳这一点吗，绫波？如果愿意，请分享那些劲爆的细节！”明日香挑衅道。
+
+The bluenette shook her head and spoke in what passed for amused voice in her case: "No, I do not wish to contest that claim, my dear wife"; Asuka blinked on that statement, her head spinning a bit: _'__it will take some time to get used to that'_, she thought. _'__But I think I like it. Somehow.'_ She shook it off, knowing that this train of thought will surely return – but she had time to deal with that.  
+蓝发少女摇了摇头，用她那难得的轻松语气说道：“不，我不想反驳那个说法，我亲爱的妻子。”明日香听到这话眨了眨眼，脑海中有些晕眩：“适应这个称呼还需要些时间，”她想，“但不知为何，我觉得挺喜欢。”她甩开这些思绪，知道这个念头肯定还会回来——但她有时间去处理。
+
+"I just sincerely hope this imbalance of bed-time will be amended in the light of recent events and our… bond. Of course, I do not wish nor dare to deprive you of your Shinji-time", Rei smiled softly. "Therefore, I am devising a plan of an arrangement that will satisfy us all. And I believe I already have one in mind." Her smile went from kind and soft to… mischievous? This confused Asuka. _'__Is it even possible for her to plan mischief?'_, she pondered. _'__She gets flirty, yes, but only when drunk, and we're still stone-sober.'_ "I shall share it with everyone once we are in more private environment", she finished with conviction.  
+"我只是真诚地希望，鉴于最近的事件和我们之间的……纽带，这种就寝时间的不平衡能得到调整。当然，我既不希望也不敢剥夺你的‘真嗣时间’，" 绫波微笑着温柔地说，"因此，我正在构思一个能让大家都满意的安排。我想我已经有了一个主意。" 她的笑容从温和柔软变得……狡黠？这让明日香感到困惑。她真的有可能策划恶作剧吗？'她会调情，没错，但只有在喝醉的时候，而我们还清醒得很。' "等我们到了更私密的环境，我会和大家分享这个计划，" 她坚定地说道。
+
+"And what is stopping you from doing it now?", Asuka asked before thinking.  
+"那现在为什么不做呢？" 明日香脱口而出，未经深思。
+
+"Public decency law", Rei replied with her usual deadpan.  
+"公共道德法，" 绫波一如既往地面无表情地回答。
+
+Asuka could only groan and sink to her seat. _'__Well, things have changed. Shinji is growing a spine. Rei is plotting – and I guess showing a side of herself I never thought she had… I wonder what surprise will Kaworu spring.'_, she mused with a sigh.  
+明日香只能呻吟一声，瘫坐在座位上。好吧，情况变了。真嗣开始变得有骨气了。丽在谋划——我想她在展示我从未想过她会有的那一面……我好奇薰会带来什么惊喜。',她叹息着思索道。
+
+_'__And I did this to myself. Me. I told them I love them and want to have them all – forever. Gott, I guess my art of self-sabotage has reached another peak, tie myself down like that… Well, this time the advantages outweigh the drama'_, Asuka concluded with a smile.  
+这一切都是我自找的。我。我告诉他们我爱他们，想要永远拥有他们。天啊，我想我的自我毁灭艺术又达到了一个新的高峰，把自己束缚得如此之紧……不过，这次的好处超过了那些戏剧性的事',明日香带着微笑总结道。
+
+_'__I hope'_, her smile dimmed a bit. _'__What if…'_  
+我希望',她的笑容稍稍黯淡了一些。万一……'
+
+She looked at sleeping Shinji's face; he was at peace. Nuzzling against his side suddenly seemed to be a good option. _'__No. Enough. I will worry about future tomorrow'_, she thought while adjusting her body pillow to her comfort. Soon, she fell into best sleep she could muster under these conditions.  
+她看着熟睡中的真嗣的脸庞；他显得很平静。突然间，依偎在他身旁似乎成了一个不错的选择。不，够了。明天再担心未来吧，她想着，调整了一下自己的抱枕以获得舒适。很快，她就在这种条件下尽力进入了最深的睡眠。
+
+Shinji was woken by numbness in his arm. Quick look to his right confirmed the leading hypothesis – Asuka was clinging to it, fast asleep. She looked so relaxed and happy, he would rather gnaw the arm off than wake her up… and it seemed a reasonable option, for she was clinging to it so hard, that he suspected that massive loss of circulation had already occurred. So, it was either wake Asuka, or lose an arm.  
+真嗣被手臂的麻木感唤醒。他迅速向右一看，证实了主要的猜测——明日香正紧紧抱着他的手臂，睡得很沉。她看起来如此放松和快乐，他宁愿咬断手臂也不愿吵醒她……而且这似乎是个合理的选择，因为她抱得那么紧，他怀疑已经发生了严重的血液循环障碍。所以，要么叫醒明日香，要么失去一条手臂。
+
+This was **not** an easy decision. But it was one he had to make fast. Otherwise, by the time of landing, he would not have that appendage.  
+这不是一个容易的决定。但他必须迅速做出选择。否则，等到落地时，他可能就没有那条手臂了。
+
+"Schatz", he whispered softly, moving his arm by a millimeter. Sleepy murmur was the only answer. "Asuka…", he pleaded a bit louder, caressing her back with the operational hand. This time, her reaction, while not really vocal, was a little bit more pronounced – she did shift her grip, which apparently unblocked some blood vessel, sending a wave of needles thorough the numb body part. He clenched and released his fist, trying to shake off the feeling. _'__Well, it is a temporary solution, but it has to do'_, he thought, watching his lover – no, wife – closer.  
+"宝贝", 他轻声细语，手臂微微一动。只有困倦的咕哝作为回应。"明日香…", 他稍稍提高了声音恳求，用能动的那只手抚摸她的背。这次，她的反应虽然没有出声，但明显了一些——她调整了握持，显然解开了某个阻塞的血管，一阵针扎般的刺痛穿透了麻木的身体部位。他紧握并松开拳头，试图摆脱这种感觉。嗯，这是个暂时的解决办法，但总比没有好', 他想着，更仔细地看着他的爱人——不，是妻子。
+
+Wife. A word that sounded so strange to him. A word he always knew now sounded… different. That word was never personal, never truly meaningful. A simple noun, a family relation that had nothing to do with him.  
+妻子。这个词对他来说听起来如此陌生。他一直知道这个词现在听起来……不同了。这个词从未个人化，从未真正有意义。一个简单的名词，一个与他无关的家庭关系。
+
+Now, that word had a face. No – _faces_. Eep.  
+现在，这个词有了面孔。不——是面孔们。哎呀。
+
+_'__I guess this is something that will take some more getting used to than I thought'_, he mused again. He looked across his shoulder, between the seats. Rei was awake, but absent – she was staring out of the window and caressing Kaworu's head. She was smiling one of her soft smiles; Shinji could only wonder what thoughts caused it.  
+我想这比我想象中还需要更多时间去适应', 他又沉思道。他回头望向座位之间，看到丽醒着，但心不在焉——她正凝视着窗外，轻抚着渚的头。她露出了她那柔和的微笑；真嗣只能猜测是什么念头让她如此。
+
+She and Asuka could not be more different in range of expression – Rei, while exactly as capable of emotion and feeling as Asuka, was one of hardest people to read; on the other hand, her feelings, once made clear, could be felt through her persistent actions: in hindsight, her long-present love and devotion was clear. Asuka, on the other hand, wore her emotions on her sleeve – and everywhere else, too – but was bad at expressing feelings. After all, it took her half a decade of mixed signals before she managed to spit it all out – and propose. Of course, when she did, she did it as everything else she thought worth doing – in an epic-proportion, grand way. He giggled at that vision: the grandeur of the speech, the facial expressions of them all, Asuka's eyes shining bright when they all accepted… that was an image to cherish. He would love to have his own memories of this, not just the recording. _'__Maybe they will come back. With all what happened there, another miracle would not be a surprise'_, he thought wishfully before returning to his reflections on emotional ranges.  
+她和明日香在表达方式上截然不同——尽管丽在情感和感受能力上与明日香不相上下，但她是最难以捉摸的人之一；另一方面，一旦她的情感变得明朗，便能通过她持之以恒的行动感受到：事后看来，她长久以来的爱与奉献显而易见。而明日香则将情绪表露无遗——不仅在脸上，无处不在——但她不擅长表达情感。毕竟，她花了五年时间发出混杂的信号，才终于吐露心声——并求婚。当然，当她这么做时，她以自己认为值得的一切方式——宏大而壮观。他想到那一幕不禁轻笑：那番壮丽的言辞，所有人的表情，当大家都接受时明日香眼中闪烁的光芒……那是值得珍藏的画面。他希望能有自己的记忆，不仅仅是录像。也许他们会回来。经历了那么多，再来一个奇迹也不足为奇，他怀着这样的愿望，继续沉思情感的广度。
+
+Kaworu was somewhere in the middle on scale of expressing emotions. He was more expressive than Rei – but far more soft-spoken than Asuka. Before all, he was curious. Adventurous, even.  
+渚薰在表达情感的尺度上处于中间位置。他比绫波零更外露，但比惣流·明日香·兰格雷更为轻声细语。首先，他充满好奇心，甚至可以说是冒险精神。
+
+Kaworu. A husband. **His** husband. Eep.  
+渚薰。一个丈夫。他的丈夫。哎呀。
+
+**That** was quite another nut to crack.  
+这可是另一个需要破解的难题。
+
+Shinji had no problem with relationships and intimacy with men – at least since the possibility entered his mind and he gave it good thought. On the other hand, he did not find men other than Kaworu attractive… which brought his train of mind back on the boy – no, a man – whose head was now resting on Rei's lap, smiling to his dreams.  
+真嗣对与男性建立关系和亲密行为并无抵触——至少自从这个可能性进入他的脑海并经过深思熟虑后。另一方面，除了渚薰之外，他并不觉得其他男性有吸引力……这让他再次想起了那个男孩——不，那个男人——此刻正枕在绫波的膝上，对着梦境微笑。
+
+_'__How it will look like now?'_, he mused. _'__All the sex we had was in presence of Asuka and Rei… well, most of it'_, he blushed at the memories and was suddenly glad Asuka's head was not in his lap. _'__I wonder how "marital duties" Asuka threatened me – us – with will differ from her perception of "boyfriend duties"'_, he pondered, smiling again. _'__Kaworu… what are we now?'_  
+现在会是什么样子呢？', 他沉思着。我们所有的性行为都是在明日香和绫波在场的情况下发生的……嗯，大部分都是', 他因回忆而脸红，突然庆幸明日香的头不在他的膝上。我想知道明日香威胁我的“夫妻义务”——对我们——会有什么不同，与她对“男友义务”的看法相比', 他思索着，再次微笑。渚薰……我们现在算什么呢？'
+
+It was not the first time Shinji asked himself that question. His thoughts went back to the time when he was lost and confused – again.  
+这已经不是真嗣第一次问自己这个问题了。他的思绪回到了他迷失和困惑的时候——又一次。
+
+_Three months ago 三个月前_
+
+It was soon after another of the usual break-ups. He and Asuka had a fight; he could not even recall over what it was, even those few days later. Quite possibly the trigger was trivial and meaningless, and the argument simply occurred because some tension had built up. Predictably, the fight ended up with Asuka's _"__We're_ _**done**__! Idiot!"_, followed by her storming out of the room and refusing to talk to him. And relegating him to the old room of his, as well – by now he was so used to that that he kept a futon ready for that occasion.  
+那是在又一次常见的分手之后不久。他和明日香吵了一架；他甚至记不清是为了什么，即使几天后也是如此。很可能触发点微不足道且毫无意义，争吵只是因为某些紧张情绪积累所致。不出所料，争吵以明日香的“我们完了！笨蛋！”告终，随后她冲出房间，拒绝与他交谈。还将他赶到了他以前的房间——到现在他已经习惯了，以至于他为此准备了一床被褥。
+
+Three days later, still ignoring him, she went out for a date with some random guy. Rei was away on one of her research excursions, and Kaworu was nowhere to be seen – he tended to forget to tell anyone where he was going to half the time. Shinji was alone, without a living creature to keep him company; due to their erratic work schedules and lack of consensus on what should it be, they never had agreed on any pet.  
+三天后，她仍然不理他，和某个随便的男人出去约会了。绫波去参加她的研究考察了，渚薰也不见踪影——他经常忘记告诉别人他要去哪里。真嗣独自一人，没有生物陪伴；由于他们不规律的工作时间和缺乏共识，他们从未就养宠物达成一致。
+
+He sat in the balcony's doorway; the cup of tea he made for himself in a vain attempt to lift his mood stood there, ignored from the beginning. Shinji adjusted his position, felt a momentary resistance to his hand, and next thing he saw was the cup keeling over, losing its handle and spilling its already cold content on the whole balcony.  
+他坐在阳台门口，为了提振心情而泡的一杯茶被他置之不理，从一开始就放在那里。真嗣调整了一下姿势，感觉到手上一瞬间的阻力，紧接着就看到杯子倾斜，把手脱落，里面的冷茶洒满了整个阳台。
+
+_'__Great'_, he thought, _'__I can't even move without breaking simple things, let alone vital parts of my life'_. He sighed and went for a rag to clean up the mess. _'__At least the floor will be cleaner. I guess this is a plus.'_  
+真糟糕', 他心想，'我连动一下都会打碎简单的东西，更别提生活中的重要部分了'。他叹了口气，去找抹布清理这摊狼藉。至少地板会干净些。我想这也算是个好处吧。'
+
+Having done the cleaning without much thought given to it, he returned to his spot in the doorway. The moon was rising. Its red tint reset his train of thoughts to Asuka – her angry face, her red hair floating freely and surrounding her like a battle aura of a mythical Fury…  
+心不在焉地完成了清洁工作后，他回到了门口的位置。月亮正在升起。它那红色的光晕让他的思绪回到了明日香——她生气的面孔，她自由飘扬的红发，宛如神话中复仇女神的战斗气场……
+
+He blinked several times, trying his best not to release tears. It was, of course, futile. _'__I guess I'm not as strong as Asuka. She never cries… except from happiness'_, he thought. He closed his eyes tight and threw his head against the doorframe. Tears flowed slowly; he ignored them, listening to the wind and letting the images of angry Asuka roll before his eyes.  
+他眨了几次眼，尽力不让泪水流出来。当然，这是徒劳的。我想我没有明日香那么坚强。她从不哭泣……除了因为幸福。”他想着，紧紧闭上眼睛，将头猛地撞向门框。泪水缓缓流淌；他无视它们，聆听着风声，让愤怒的明日香的形象在眼前浮现。
+
+Shinji jumped and snapped his eyes open when he suddenly felt a touch. A familiar face of Kaworu, washed in lunar light, was looking at him with concern, his palm resting on his shoulder and feeling so warm…  
+真嗣突然感到一阵触碰，吓了一跳，猛地睁开眼睛。熟悉的渚薰的面孔，在月光下显得苍白，正关切地看着他，手掌搭在他的肩膀上，感觉如此温暖……
+
+Shinji wanted to say something, but found himself struggling to get out words. Kaworu just smiled and placed a finger on Shinji's lips. In total silence, disrupted only by the sound of their breathing, he sat himself next to Shinji, his warm hand still in place. He moved it only to gently pull Shinji to himself. Startled at first, Shinji turned his head…  
+真嗣想说什么，却发现难以吐露字句。渚薰只是微笑着，将手指放在真嗣的唇上。在完全的寂静中，只有他们的呼吸声打破沉默，他坐在真嗣旁边，温暖的手依旧放在原处。他只是轻轻地将真嗣拉向自己。起初有些惊讶，真嗣转过头……
+
+… and found himself staring into the red eyes, smile and warmth in them. Kaworu moved his lips in an inaudible whisper: _"__come to me."_ Shinji obeyed without thinking; realising that, he hesitated for a short moment, but his mind gave him no good reason not to submit. He found himself in warm embrace – only then realising how cold he was until now – and rested his head on Kaworu's chest. A moment later, Shinji felt a soft kiss on the top of his head.  
+… 发现自己正凝视着那双红眸，眸中带着笑意与温暖。渚薰无声地动了动嘴唇，仿佛在说：“来到我身边。” 真嗣不假思索地顺从了；意识到这一点后，他短暂地犹豫了一下，但内心并未给出任何拒绝的理由。他发现自己被一个温暖的怀抱拥住——直到此刻才意识到自己之前有多么寒冷——他将头靠在渚薰的胸前。片刻之后，真嗣感觉到头顶传来一个轻柔的吻。
+
+No words were spoken, but suddenly, he felt less lonely.  
+没有言语交流，但突然间，他感到不再那么孤单。
+
+It was the strangest comfort. But it was comfort, and in the end, it was all that mattered.  
+这是一种奇怪的慰藉。但它是慰藉，最终，这正是最重要的。
+
+_Present 现在_
+
+'I suppose that was the night'  
+'我想那就是那个夜晚'
+
+, Shinji thought wistfully. _'__The night it clicked: friend, friend with party benefits, lover… it all somehow fit. Of course, I missed that, and I almost lost it. I was so confused then, too focused on Asuka to act on it.'_ He sighed. _'__As if I am less confused now; well, at least we're all in the open now. This should help communication.'_  
+，真嗣感慨地想。那个夜晚一切都变得清晰：朋友，带有派对福利的朋友，恋人……这一切不知怎么地都契合了。当然，我错过了那个时刻，差点就失去了。那时我太困惑了，太专注于明日香而没有采取行动。'他叹了口气。仿佛我现在就不困惑似的；好吧，至少我们现在都坦诚相见了。这应该有助于沟通。'
+
+Things will change – of this Shinji was certain. But for the first time in years, he was not that afraid of the coming change.  
+事情将会改变——对此，真嗣深信不疑。但时隔多年，他第一次不再那么害怕即将到来的变化。
+
+.
+
+---
+
+.
+
+Four of us - part 2.  
+我们四人 - 第二部分。
+
+Subject of Shinji's musings was not asleep, despite the appearances. Rei was not deceived – it was nearly impossible to hide one's condition from her perception, especially when she knew the person in question well and had them at hand – but she was content with caressing him and staring in the distance, lost in her own thoughts. He welcomed the caresses – physical contact has always been pleasant to him. No, not just pleasant – even after so many years, he was hungry for it – be it a handshake, a hug from someone who did not conform to Japanese no-touching taboo, a cuddly movie evening with his lovers, or full-blown sex. This has led him on a long streak of short-to-medium relationships and one-night stands in few years after the War – none of them truly satisfying despite being pleasant and quenching his appetite for affection. In the end, he found himself entangled deeper and deeper into relationship with people that have always been closest to him.  
+真嗣沉思的对象并未入睡，尽管外表如此。丽并未被蒙骗——几乎不可能在她敏锐的感知下隐藏自己的状态，尤其是当她对那个人非常了解且近在咫尺时——但她满足于轻抚他，凝视远方，沉浸在自己的思绪中。他欣然接受这些抚摸——身体接触对他来说总是愉悦的。不，不仅仅是愉悦——即便过了这么多年，他依然渴望着这种接触——无论是握手、来自不拘泥于日本非接触禁忌之人的拥抱、与爱人们依偎在一起看电影的夜晚，还是激情四溢的性爱。这导致他在战争结束后的几年里，经历了一系列短暂至中期的恋情和一夜情——尽管这些经历愉快且暂时满足了他对情感的渴望，但终究未能真正令他满足。最终，他发现自己与那些一直最亲近的人陷入了越来越深的纠葛之中。
+
+Despite this closeness, Kaworu felt slightly out of place in this new marital arrangement. He did love his spouses, even if he was still in the process of learning what that feeling entailed; and he took the passionate proposal speech of Asuka to his heart. The words and the emotions behind them were still there, warming him up and making him smile every time he thought of that moment. He agreed – on the rational level, at least – with everything Asuka had said, but on the other hand, the facts were clear: his connection to each of them was not as strong as theirs with each other. Shinji and Asuka knew each other for the longest time of them all; they were connected since they met – even accounting for on-and-off nature of their relationship, which was never **that** off, according to what Asuka told him – and he saw their bond as the strongest of all the ties that tied four of them. Rei was connected to both of them as well, in a manner he never truly understood, but never dared to doubt. On his part, he saw himself as linked with Rei – due to their shared nature, not to mention owing her his life – but his link with Asuka and Shinji was far less pronounced.  
+尽管如此亲密，在这新的婚姻安排中，渚薰仍感到些许格格不入。他确实深爱着他的伴侣们，即便他还在学习这种情感的真正含义；而明日香那充满激情的求婚誓言，他铭记于心。那些话语及其背后的情感依旧存在，温暖着他，令他每每想起那一刻都会微笑。至少在理性层面，他认同明日香所说的一切，但另一方面，事实显而易见：他与他们之间的联系，并不如他们彼此间的那么紧密。真嗣和明日香相识最久；自相遇起，他们便紧密相连——即便考虑到他们关系时好时坏的特性，据明日香所言，其实从未真正疏远——在他看来，他们之间的纽带是最为牢固的。丽与他们两人同样有着不解之缘，尽管他从未真正理解，却从未怀疑过。至于他自己，他认为与丽因共性而紧密相连——更不用说她还救过他的命——但他与明日香和真嗣的联系则远没有那么明显。
+
+_'Still, she sounded convinced that she was right, that she loved me… and when I tried to protest… well, I got yelled at. Affectionately, I assume, considering what happened later.'_ He learned – through a lot of confusion and miscommunication, followed by long and thorough analysis – how to distinguish Asuka's displays of genuine anger from her showing affection via similar angry outbursts. The success rate was still far from 100% that would satisfy him and allow to avoid incorrect reactions, but he was getting there. Once, he envied Shinji who seemed to be able to tell those apart perfectly; but once he asked for suggestions, he found out that there are far more shades than he ever thought possible.  
+尽管如此，她听起来坚信自己是对的，她爱我……而当我试图反驳时……好吧，我被吼了。考虑到后来发生的事，我想那是带着爱意的。他通过大量的困惑和误解，随后进行漫长而彻底的分析，学会了如何区分明日香真正的愤怒和她以类似愤怒爆发来表达爱意的行为。成功率仍远未达到让他满意并避免错误反应的 100%，但他正在进步。曾经，他羡慕真嗣似乎能完美区分这两者；但当他寻求建议时，才发现这其中远比他想象的要复杂得多。
+
+_"I can usually tell between 'I'm angry, stay away' and 'I'm angry, hug me'"_ – Kaworu recalled Shinji's answer – _"but there can be 'I'm angry, I don't know what to do with myself', 'I look fine, but I am few seconds from screaming'… of course, 'I'm angry and don't want to know you' is on the list as well, but this is something you needn't to worry about"_ – Shinji's smile was heartbreakingly sad when he tried to say the last one as it was a joke. All in all, this conversation did not help Kaworu understand Asuka.  
+“我通常能分辨出‘我很生气，离我远点’和‘我很生气，抱抱我’之间的区别”—— Kaworu 回想起 Shinji 的回答——“但还有‘我很生气，我不知道该怎么办’，‘我看起来没事，但我随时可能尖叫’……当然，‘我很生气，不想理你’也在列表上，但这点你不必担心”——当 Shinji 试图以玩笑的口吻说出最后一句时，他的微笑令人心碎地悲伤。总的来说，这次对话并没有帮助 Kaworu 理解 Asuka。
+
+But it did help him understand Shinji, who was no less important to him, and no less an enigma. Just a quieter one, one where pain was concealed beneath courtesy, kind smile, and overall please-don't-mind-me attitude. He understood that Japanese culture encouraged this kind of concealment, and he saw it often in Japanese people – but Shinji was not merely following his cultural programming – he raised it to a level of art. An art Kaworu did not appreciate.  
+但它确实帮助他理解了 Shinji，对他来说同样重要，也同样是个谜。只是更安静，痛苦隐藏在礼貌、友好的微笑和请不要介意我的态度之下。他明白日本文化鼓励这种隐藏，他也经常在日本人身上看到这一点——但 Shinji 不仅仅是遵循他的文化编程——他将这种隐藏提升到了艺术的境界。一种 Kaworu 并不欣赏的艺术。
+
+He preferred other kinds of art Shinji practiced. His cooking was unparalleled; this, aside being close to people he considered the family he ever had, was the greatest advantage of all Pilots living together. His love of music helped him make his decision, and in somewhat roundabout way, saved Kaworu's life. Aside that, those hands of a musician were a wonder in so many other circumstances…  
+他更偏爱真嗣所练习的其他艺术形式。他的厨艺无人能及；除此之外，与他认为的家人——那些他一直拥有的亲人——亲密相处，是所有驾驶员共同生活最大的好处。他对音乐的热爱帮助他做出了决定，并以一种迂回的方式，拯救了渚薰的生命。此外，这位音乐家的双手在许多其他场合也是奇迹般的存在……
+
+He stopped his train of thought before it went too far and deprived him of blood to the brain. _'Not now, please. Now is not the time. I am absolutely sure there will be plenty of opportunity for that later. Back. Back on track, please.'_  
+他在思绪走得太远、导致大脑供血不足之前停了下来。'现在不行，拜托。现在不是时候。我绝对相信以后会有很多机会。回到正轨，拜托了。'
+
+His brain begrudgingly obeyed.  
+他的大脑不情愿地服从了。
+
+Bonds. Initially, he saw humans – Lilim, as he called them then – as always alone, forced to live eternally separated from each other behind their AT Fields. Later, he learned it was not the truth – some were like that, but then he saw bonds that tied them.  
+羁绊。起初，他将人类——那时他称之为莉莉姆——视为总是孤独的存在，被迫永远隔绝在各自的 AT 力场之后，彼此分离。后来，他了解到这并非真相——有些人确实如此，但他也见证了那些将他们紧密相连的羁绊。
+
+And then he started to experience them himself.  
+随后，他开始亲自体验这些羁绊。
+
+It was hard to pinpoint which bond was the first. It could either be with Rei or Shinji; once one of those bonds formed, the other followed pretty soon. He knew of Shinji first, before coming to Tokyo-3, but the genuine connections – truly human emotions – came later. And along came confusion, problems with labelling what he felt, and the general chaos of the War giving him little time to introspect. The Call and his initial reason for existence did not help things. Only when the end of the War drew closer, Rei saved him from the Call, and they spent the first night together.  
+很难确定哪一段羁绊是最初的。可能是与绫波或真嗣之间的；一旦其中一段羁绊形成，另一段也很快随之而来。他在来到第三新东京市之前就听说过真嗣，但真正的联系——真正的人类情感——是在那之后才出现的。随之而来的是困惑，对自身感受的标签化难题，以及战争带来的混乱让他几乎没有时间进行内省。召唤和他最初的存在理由也未能让事情变得简单。直到战争接近尾声，绫波将他从召唤中解救出来，他们共度了第一个夜晚。
+
+That was one of the strangest and fondest memories, one he tended not to think of too often – at least not in public. First time he was truly intimate with someone on so many different levels it made his head spin. It did make him dizzy even now.  
+那是他最奇异也最温馨的记忆之一，他并不常想起——至少不在公共场合。第一次在如此多层面上与某人真正亲密，让他头晕目眩。即便现在，这仍让他感到眩晕。
+
+He took a deep breath and tried to re-focus. _'I am the Angel of Free Will. I choose'_, he chuckled internally, a grim streak tainting that thought. There were times where those words meant difference between life and death – not only to him, but to entire human race.  
+他深吸一口气，试图重新集中注意力。'我是自由意志的天使。我选择'，他在内心自嘲，一丝阴郁染上了这个念头。有些时候，这些话意味着生死之别——不仅对他，对整个人类种族亦是如此。
+
+Those times were thing of the past, thanks to Rei; thanks to Asuka and Shinji as well. Thanks to others that were now his friends. He tended to think – and say – that his participation in the victory was minimal, that he was actually one of the problems, but they usually responded with listing the ways he helped save everyone. _'I walked the strangest road: from being incarnation of doom and tool of their demise to their lover, their husband. How strong a bond is needed for that to happen?'_, he mused sometimes. Today, he knew the answer.  
+多亏了丽；多亏了明日香和真嗣。也多亏了现在成为他朋友的其他人。他倾向于认为——并说——自己在胜利中的参与微不足道，实际上他曾是问题之一，但他们通常会列举他如何帮助拯救了所有人。'我走了一条最奇特的路：从毁灭的化身、他们的灭亡工具，到他们的爱人、他们的丈夫。需要多么强大的纽带才能实现这一切？'他有时会沉思。今天，他知道了答案。
+
+In comparison to what tied him to Rei and Shinji, his connection to Asuka was easier to map out. It started with her being suspicious and him being destined to kill her along with rest of the humanity; it then moved into comradeship of arms from being Pilots – and eventually co-conspirators; then, it turned into genuine friendship after the war. Eventually, friendship turned into friendship with occasional benefits.  
+相较于他与丽和真嗣之间的羁绊，他与明日香的关系更容易梳理。起初，她对他充满怀疑，而他注定要与她及全人类为敌；随后，从作为驾驶员的战友关系发展为共谋者；最终，战后他们建立了真挚的友谊。最终，这份友谊演变成了偶尔互惠的友情。
+
+And then they got married.  
+然后他们结婚了。
+
+_'If anyone ever tries to make our lives into a screenplay, no one would consider it for realisation. It's too inane, too improbable, too… optimistic and dark at the same time?'_, he thought with amusement. _'I can imagine that: "The characters are too complex, the setting too dark, plot twists are improbable, and this conspiracy! Unrealistic!" And that before even we get into the post-War part – us coming together, breaking up, and coming together again. Rinsing and repeating. Any responsible studio would file it under "soap opera", classify it as "young adult romance", or refuse to touch it altogether for the same reason – unrealistic!'_  
+‘如果有人试图将我们的生活改编成剧本，没人会考虑将其搬上银幕。它太荒谬、太不可能、同时又太乐观和黑暗了？’他带着一丝戏谑想道。‘我可以想象：“角色过于复杂，背景过于黑暗，情节转折难以置信，还有这阴谋！不切实际！”而这些还只是战前的部分——我们走到一起，分手，又复合。反复循环。任何负责任的制片厂都会将其归类为“肥皂剧”，标为“青少年浪漫”，或干脆拒绝触碰，理由相同——不切实际！’
+
+'Well, at least it ended with a marriage, didn't it?'  
+“好吧，至少是以一场婚礼收场，不是吗？”
+
+, he smiled internally. It was amusing to think of his life as a fairy tale. A grim one, like the German fairy tales of old, but still a fairy tale. _'No… not exactly ended. Something ended, but the tale did not'_, he corrected himself.  
+，他在心里微笑。把自己的生活想象成一个童话故事，这很有趣。一个阴暗的童话，就像古老的德国童话那样，但仍然是个童话。“不……并不完全是结束。有些事情结束了，但故事并未终结”，他纠正自己。
+
+_'For better or worse, I am now one of them'_, he thought, relaxing and shifting to a more comfortable – if less pleasant – position. That was one of the few things he was certain of. With that thought, he allowed himself to drift to sleep.  
+“无论是好是坏，我现在是他们中的一员了”，他想，放松下来，调整到一个更舒适——尽管不那么愉快——的姿势。这是他为数不多确信的事情之一。带着这个念头，他让自己渐渐入睡。
+
+Kaworu moved and straightened; his head was no longer in Rei's lap: now he was sitting straight on his seat, head tilted back. Rei smiled at him; change in position made him seek a different point of contact – reflexively or consciously, he took her hand, their fingers now intertwined. Seeing no reason to disturb him, she turned her attention back to the outside.  
+渚薰移动并坐直了身子；他的头不再枕在绫波的腿上：现在他笔直地坐在座位上，头向后仰。绫波对他微笑；位置的改变使他寻求不同的接触点——本能地或是有意识地，他握住了她的手，两人的手指交缠在一起。看到没有理由打扰他，她将注意力转回到外面。
+
+Rei was happy. Of course, it did not show much on her reserved exterior, but she felt the persistent and growing warmth inside her. Actually, most of her free-floating thoughts at the moment were about exploring her current states and sensations, both physical and mental. They were numerous, and none of them was negative.  
+绫波感到快乐。当然，这在她矜持的外表上并没有太多显现，但她内心感受到了持续增长的温暖。实际上，她此刻大部分的自由浮动思绪都是关于探索她当前的状态和感觉，无论是身体上的还是心理上的。它们数量众多，且无一负面。
+
+The emotional satisfaction and residual giddiness from happiness overload she suffered – no, enjoyed – after realising the marriage and subsequent 'scientific experiments' she conducted with her now-spouses. This was certainly going to last, especially that now she had means to reignite that state with just a touch; she squeezed Kaworu's hand on that thought and had hers squeezed back in a soft, relaxed manner; clearly a reflex, not a conscious effort.  
+情感上的满足和因幸福过度而残留的兴奋感，她经历——不，享受——了意识到婚姻以及随后与现在的配偶进行的'科学实验'。这肯定会持续下去，尤其是现在她只需一个触碰就能重新点燃那种状态；她想到这一点时紧了紧渚薰的手，而他的手也以柔软、放松的方式回握了她；显然是反射性的，并非有意识的努力。
+
+Warmth coming from bond between all four of them being in close proximity; this was going to return every time they are close, and she knew this was something to cherish. Rei sometimes pitied the limited senses of others, unable to perceive bonds as she did; on the other hand, she envied their ability to express their emotions and reach beyond their self, reach to each other. _'A different set of skills, complementing each other'_ was how she thought of that difference between herself and her loved ones.  
+四人紧密相连的羁绊所带来的温暖；每当他们靠近时，这份温暖总会回归，她深知这是值得珍惜的。丽有时会怜悯他人有限的感知能力，无法像她那样感受到羁绊；但另一方面，她又羡慕他们能表达情感，超越自我，触及彼此。她认为这种差异是‘互补的技能’，是她与所爱之人之间的不同之处。
+
+Slight soreness of her skin around the newly tattooed wings on her back and Asuka's name on her face. This will pass; she already researched the proper way to take care of fresh tattoos and was eagerly awaiting the opportunity to take care of everyone's skin – and have them take care of hers. And while the soreness may pass, the tattoos shall remain.  
+背部新纹的翅膀和脸上明日香的名字周围皮肤微微的酸痛。这会过去的；她已经研究了如何妥善护理新纹身，并热切期待着照顾大家皮肤的机会——也让大家照顾她的。尽管酸痛会消退，但纹身将永远留存。
+
+The sensation in her nether parts that was a result from her kindly asking Asuka to make good on her promise to get her out of her clothes last night – and to let her apologise for the mischievousness during the day. This, along with other little marks on her body, will pass quickly… but Rei was looking forward to those sensations returning, in various configurations and with similar emotional meaning.  
+昨晚她好心请求明日香兑现帮她脱掉衣服的承诺——并让她为白天的恶作剧道歉——所带来的下体感觉。这些，连同她身体上的其他小痕迹，很快就会消失……但绫波期待着这些感觉以各种形式和相似的情感意义回归。
+
+The feeling of being loved and claimed – coming from all of the above. This was certainly going to last; she knew from observation – and her limited experience – that feelings change, mutate, differ over time – but if cared for, last. The vows they spoke, the markings on their skins, the acceptance of the circumstances they expressed in the end… All this made Rei feel as she truly _belonged_ to them, that she was truly _claimed_ by her lovers and now-spouses.  
+被爱和被占有的感觉——源自上述所有。这肯定会持续下去；她从观察和有限的体验中知道，感情会变化、变异、随时间不同——但如果被珍惜，就会持久。他们说出的誓言，他们皮肤上的标记，他们最终表达的接受环境的态度……这一切让绫波感到她真正属于他们，她真的被她的爱人和现在的配偶所占有。
+
+Rei suddenly realised that made her aroused to a surprising degree. Granted, in the last few years, sex gradually became something familiar to her, and she was no stranger to feeling arousal. Nonetheless, the intensity of feeling that accompanied the thought of belonging to people she loved was something new and unexpected.  
+绫波突然意识到这让她异常兴奋。诚然，在过去几年里，性逐渐成为她熟悉的事物，她对感到兴奋并不陌生。然而，想到属于她所爱的人所带来的强烈感觉是新的和意想不到的。
+
+Rei shelved thoughts on that for later consideration, as something certainly worth exploring; but this was hardly the place to do so. While she trusted her body and mind to exercise restraint, she had other – safer – subjects to think of. Subjects of feelings, first and foremost: remaining physical sensations she was feeling were simple things, easily alleviated or augmented as she saw fit.  
+丽将这些想法暂时搁置，留待日后深思，因为这无疑是值得探究的；但眼下显然不是合适的场合。尽管她相信自己的身心能够保持克制，但她还有其他——更安全的——话题可以思考。首先是情感方面的主题：她所感受到的残留身体感觉都是些简单的事物，可以轻易缓解或增强，全凭她的意愿。
+
+But the matter of the bonds… this was simultaneously simple and complicated. Simple, because she loved them all, they loved her back, and they were now married, with sense of permanency augmented by the tattoos.  
+但关于这些羁绊的问题……这既是简单的又是复杂的。简单，是因为她爱他们每一个人，他们也爱她，而且他们现在已经结婚了，通过纹身增强了这种永久性的感觉。
+
+Complicated, because the thought process that was trying to differentiate types of love she felt for each of her spouses repeatedly led to confusion. Asuka was expressive in her speech – Rei actually lacked an adjective to describe the sheer force of emotion behind Asuka's words – but did not provide much useful data towards naming the feelings and telling them apart. While synthetic part of Rei's mind had no problem with the amalgamation of emotions she felt, and practical part simply accepted them and rolled on, the analytical side relentlessly tried to understand the situation on its own terms.  
+复杂，因为她试图区分对每位配偶所感受到的不同类型的爱，这一思考过程反复导致困惑。明日香在言语中表现得非常直白——实际上，绫波找不到一个形容词来描述明日香话语背后那股强烈的情感力量——但她并没有提供太多有用的数据来命名这些感觉并区分它们。尽管绫波的合成思维部分对这些混合的情感处理得游刃有余，实际部分则简单地接受并继续前行，但分析性的一面却不断试图用自己的方式理解这一情况。
+
+So far, it failed. 到目前为止，它失败了。
+
+Rei's thoughts drifted off from the analysis, focusing on the proposal speech itself. While, as all then-intoxicated participants, she could only remember the recording of the event; on the other hand, she was certain that while none of the present remember the event, her mind must have preserved at least the emotional part of it, if not more. The state of elation she felt while watching the video was familiar to her, a kind of déja vu, despite of not feeling like this before. _'Maybe, if I search long enough, I can find it?'_, she mused. It was another thing to consider sooner or later.  
+丽的心情从分析中飘散，专注于提案演讲本身。虽然，像所有当时醉酒的参与者一样，她只能记得事件的录像；另一方面，她确信尽管在场的人都不记得那次事件，但她的记忆一定保留了至少情感部分，甚至更多。观看视频时她感受到的兴奋状态对她来说是熟悉的，一种似曾相识的感觉，尽管以前从未有过这种感觉。'也许，如果我寻找得足够久，我能找到它？'她沉思着。这是迟早要考虑的另一件事。
+
+A skein of geese came into view, providing a momentary distraction. Traveling in concert, following simple rules that organised them, focused on a distant goal. Rei blinked, her train of thought interrupted by the observation her mind recorded and filed away. Another train of thought entered to the vacated mindspace.  
+一群大雁映入眼帘，提供了片刻的分散注意。它们协调一致地旅行，遵循简单的规则组织自己，专注于遥远的目标。丽眨了眨眼，她的思绪被观察到并记录在脑海中的景象打断。另一条思绪进入了空出的思维空间。
+
+Asuka even called Rei a "goddess". A term Rei was not used to hear. _"Promising student"_, yes, from her teachers. _"Brilliant"_, for sure, from many. _"Fucking doll"_ was, fortunately, thing of the past, but _"cold and distant"_, _"beautiful, but inaccessible"_, or the old _"ice queen"_ still happened sometimes, used behind her back by people unaware of her acute senses. People she worked with on her research projects knew her well enough, but even they had had to adjust, and often failed to read her correctly, sometimes resulting in misunderstandings. _"Ayanami is fine to approach, but don't break her focus unless you need something urgent. Talk to her when she is not working"_ has become something of a mantra, an axiom given to people new to the research team. They usually listened, and gradually realised she could be talked to. _'But do they really understand? Did they really care?'_, Rei pondered, not for the first time. For most of the time, the answer was _"no, and I think I would like them to"_. Now, this answer was changing. The new one was still nebulous, but it was close to _"no, I have now people who understand, and the rest of the world matters less"_.  
+明日香甚至称绫波为“女神”。这个称呼是绫波不习惯听到的。“有前途的学生”，是的，来自她的老师们。“才华横溢”，毫无疑问，来自许多人。“该死的玩偶”，幸运的是，已成为过去，但“冷漠疏远”，“美丽却遥不可及”，或是老套的“冰山女王”仍偶尔出现，被那些不知她敏锐感知的人在背后使用。与她在研究项目中合作的人对她足够了解，但即便他们也需适应，并常常未能正确解读她，有时导致误解。“绫波可以接近，但除非有紧急事务，否则不要打断她的专注。在她不工作时与她交谈”已成为一种口头禅，给予新加入研究团队的人的公理。他们通常会听从，并逐渐意识到她是可以交谈的。“但他们真的理解吗？他们真的在乎吗？”绫波思索着，并非首次。大多数时候，答案是“不，我想我会希望他们理解”。现在，这个答案正在改变。新的答案仍模糊不清，但接近于“不，我现在有了理解我的人，其余的世界变得不那么重要了”。
+
+Rei was aware of dangers that lie on that path, but for now, she was content she could allow herself the freedom to think like this. She would have hated being called _"Wondergirl"_ in the past – if she has had been able to feel that in her then-condition – but now, this label was a term of endearment. She giggled when she recalled one of the times Asuka called her that. _"Wonder…girl… you r'lly work wonder with that t–", Asuka managed to get out, rest of the sentence cut off by an inarticulate moan. "Kkkkeep ittt upp" was all the redhead was able to say afterwards. Rei was pleased – her research has proven valuable and effective in bringing comfort to a woman she loved._ It was a night brought by unfortunate circumstances – another break-up, Asuka feeling stupid about it, but refusing to admit it – but it had a few good moments.  
+丽知道那条路上潜藏着危险，但此刻，她满足于自己能这样自由地思考。过去，如果她能在当时的状态下感受到，她会讨厌被称为“奇迹女孩”，但现在，这个标签成了亲昵的称呼。她想起阿斯纳叫她那次，不禁轻笑出声。“奇迹……女孩……你真的用那……”阿斯纳勉强说出，后半句被含糊的呻吟打断。“继续……”红发女孩只能如此回应。丽感到欣慰——她的研究证明是有价值且有效的，为心爱的女人带来了安慰。那是个由不幸境遇带来的夜晚——又一次分手，阿斯纳为此感到愚蠢，却又不愿承认——但其中也有几个美好的瞬间。
+
+A goddess. That term that was technically correct, for a given definition of divinity – not that she felt very divine. Rei could not stop wondering what exactly prompted Asuka to use it in that specific case. Of course, a very probable reason was _"because I could, it felt right at the time, and it fits you perfectly, so don't dissect it, Wondergirl"_; if asked, Asuka would likely provide that answer. Yet Rei knew that motivations could often laid in subconsciousness, and the could be something more behind it. _'This is another thing for later consideration – and actually ask my dear wife for explanation'_, Rei thought and silently giggled at the term. Sliding into new labels for her now-spouses came easy to her. This was a complicated subject before the wedding; the labels often changed, not only in regard to her. Shinji to Asuka could be _boyfriend_ at one point, _that-idiot-I-am-not-talking-to-and-about_ in the other, and _my best fucktoy_ few days after. For her it was a bit easier: Asuka was usually _friend_, sometimes someone between _lover_ and _friend-with-benefits_; Rei to Asuka was _friend_, _lover_, or _lovely pillow_, as she called Rei in affectionate, afterglow-tinted pillow talk after seeking comfort in her arms. Shinji was also _friend_, sometimes maybe _boyfriend_ – if they dated long enough to justify the term, of which Rei was never sure. Kaworu was always _friend_, although he tended to call her _my saviour_, a term Rei was vaguely uncomfortable with for several reasons. _'I guess I could call him "friend-with-benefits at times", but this felt too… specific, too… limiting'_, she mused over several times they shared a bed, celebrating the simple joy of life. It never developed into a steady relationship, but they always remained close – and retained the habit when time and other relationships permitted.  
+女神。这个术语在某种定义下是正确的，尽管她并不觉得自己有多神圣。丽无法停止思考，究竟是什么促使明日香在那个特定场合使用这个词。当然，一个很可能的原因是“因为我当时觉得合适，而且它完全适合你，所以别深究了，小姑娘”；如果问起，明日香很可能会这么回答。然而，丽知道动机往往潜藏在潜意识中，背后可能还有更多含义。“这又是以后需要考虑的事情——实际上，我得问问亲爱的妻子解释一下。”丽暗自发笑，对于现在称呼她的新伴侣们的新标签，她已经驾轻就熟。这在婚礼前是个复杂的课题；标签时常变化，不仅对她而言。对明日香来说，真嗣在某一刻可能是男朋友，另一刻则是那个我绝不理睬和谈论的笨蛋，几天后又成了我的最佳玩物。 对她来说，这稍微简单些：明日香通常是朋友，有时介于恋人与炮友之间；对明日香而言，绫波既是朋友、恋人，也是她亲昵地称为“可爱的枕头”的存在，尤其是在寻求安慰后依偎在她怀中，带着余韵的枕边细语时。真嗣也是朋友，有时或许是男友——如果他们约会足够久，久到能称得上这个身份的话，对此绫波从未确定过。渚总是朋友，尽管他常称她为“我的救星”，这个称呼让绫波因多种原因而感到些许不适。“我想我有时可以称他为‘有时是炮友’，但这感觉太……具体，太……局限了。”她多次思索着他们共枕时庆祝生命简单喜悦的情景。他们的关系从未稳定发展，但始终保持亲密——并在时间和其它关系允许的情况下保留这一习惯。
+
+Now it all became simple. Asuka was her _wife_, Kaworu and Shinji were her _husbands_. They had her last name, and she had their names inscribed on her flesh. She was theirs.  
+如今一切变得简单明了。明日香是她的妻子，渚和真嗣是她的丈夫。他们共享她的姓氏，而她的肌肤上刻着他们的名字。她是他们的。
+
+Rei realised a bit too late that there was a good reason she shelved that train of thought. She started to feel a bit funny, and raising her hand to her cheek, she realised she was blushing – hard. _'It's ironic that of all body functions, arousal is one that does not submit to control as much as I would like it to'_, she thought while taking deep breaths. She heard a murmur of protest from Kaworu next to her, and realised she squeezed his hand – hard. She forced another exhale, calming herself a bit, and relaxed the grip. While Kaworu's body was resilient, her own strength could easily prove a match to his resilience – and a medical emergency was the last thing they needed to add to their trouble.  
+丽意识到有点晚了，她搁置那个思绪是有充分理由的。她开始感到有些异样，抬起手摸向脸颊，发现自己脸红了——很红。'讽刺的是，在所有身体功能中，性唤起是我无法像希望的那样控制自如的'，她一边深呼吸一边想。她听到身旁的渚发出一声低沉的抗议，意识到自己紧紧握住了他的手——很紧。她强迫自己再次呼气，稍微平复了一下心情，放松了握力。虽然渚的身体很坚韧，但她的力量很容易就能与他相匹敌——他们最不需要的就是再加上一场医疗紧急情况。
+
+Rei's accelerated breathing did not remain unnoticed. A concerned eye peeked between the seats. "Rei? Are you all right?", Shinji inquired from his seat. "You seem… hot", he added in a worried tone.  
+丽的急促呼吸没有被忽视。一双关切的眼睛从座位间窥视过来。"丽？你还好吗？"，真嗣从座位上问道。"你看起来……很热"，他担忧地补充道。
+
+'Well, thank you' was something that sprang to Rei's mind as first response. She chided herself at this – this was not a laughing situation: Shinji was clearly worried, and a joke would be inappropriate. "I am… fine. Just a little…", Rei stumbled at lack of proper description; on one hand, she did not want to elaborate on her situation, not in a public place; on the other, she did not like to lie, especially to someone so close to her as Shinji was.  
+“嗯，谢谢你”是丽脑海中首先浮现的回应。她随即责备自己——这可不是开玩笑的场合：真嗣显然很担心，开个玩笑显然不合适。“我……没事。只是有点……”，丽因找不到合适的描述而结巴；一方面，她不想在公共场合详述自己的情况；另一方面，她不喜欢撒谎，尤其是对真嗣这样亲近的人。
+
+She noticed some fumbling in the seats before her, some hushed voices, and Asuka's unconscious sounds of protest. Before she could act on it, Shinji was kneeling in his seat, reaching to touch her face. She blushed harder.  
+她注意到前排座位上的摸索声，一些低语，以及明日香无意识的抗议声。还没等她有所反应，真嗣已经跪在自己的座位上，伸手去触摸她的脸颊。她的脸更红了。
+
+"Rei? You **are** hot", he repeated.  
+“丽？你发烧了”，他重复道。
+
+"Ebue", another voice joined in incoherently. "Of course she izz…", half-conscious female voice joined the discussion. "White-searing hot, actually, and she could… oi, wait, what is going on?", Asuka shook her grogginess and jumped up, joining Shinji in doting over Rei.  
+"Ebue", 另一个声音含糊地加入进来。"当然她很……", 一个半清醒的女性声音加入了讨论。"其实是白热化的热度，而且她能……哎，等等，这是怎么回事？", 明日香摇了摇头，摆脱了昏沉，跳起来，和真嗣一起关心着绫波。
+
+Rei was now blushing more from the embarrassment on the commotion she caused: "Please, nothing is going on", she protested, "I am fine", she inhaled and exhaled again. "I am little flustered, that is all." She paused for a moment: "I promise I will explain that later", she added in smaller voice.  
+绫波现在因为自己引起的骚动而更加脸红："请，没什么事", 她抗议道，"我很好", 她深吸了一口气，又呼出来。"我只是有点慌张，仅此而已。"她停顿了一下："我保证稍后会解释", 她用更小的声音补充道。
+
+Asuka and Shinji exchanged looks. "All right", Asuka agreed reluctantly. "You know best." After a pause, she added with a grin "but you **do** look hot with that blush". In response, Rei made a motion to hide from their eyes; regrettably, limited space of a plane seat gave her little options. She could only hide her head in her shoulders and drop her eyes. Shinji giggled at the sight: "I must agree with Asuka here, it's a rare but a welcome sight to see you blush to that degree."  
+明日香和真嗣交换了一下眼神。"好吧", 明日香勉强同意道。"你最清楚。"停顿了一下，她笑着补充说 "但你脸红的样子确实很迷人"。对此，绫波试图躲避他们的目光；遗憾的是，飞机座位空间有限，她几乎没有选择。她只能把头埋在肩膀里，垂下眼睛。真嗣看到这一幕笑了："我必须同意明日香的说法，看到你脸红到这种程度，虽然罕见但很受欢迎。"
+
+Rei looked up at them with exasperation and a silent plea for release from their attention. A treacherous thought in her mind chimed in: _'and I am going to explain this blush to them, and tell them how to cause it, won't I?'_ In reaction, she facepalmed softly with her free hand. "Thank you, but you are **not**helping", she muttered from behind the palm. On that cue, she noticed a stir in a seat next to her.  
+丽抬头看着他们，眼中满是无奈，无声地恳求他们放过自己。一个狡猾的念头在她脑海中响起：‘我还要向他们解释这脸红的原因，告诉他们如何引发，不是吗？’想到这里，她用空着的那只手轻轻捂住脸。“谢谢，但你们真帮不上忙”，她从手掌后低声嘟囔。就在这时，她注意到旁边座位上有了动静。
+
+"Is there some discussion I am being left out of?", Kaworu asked in a sleepy voice. Shinji and Asuka exchanged looks again: "Actually, there is", Shinji confirmed. "And your opinion is actually direly needed", she added with a tiny wry smile.  
+“有什么讨论是我被排除在外的吗？”薰用慵懒的声音问道。真嗣和明日香再次交换了眼神：“实际上，确实有，”真嗣确认道。“而且你的意见真的非常需要，”她补充道，嘴角勾起一丝微妙的笑意。
+
+Rei hid her face under her palm as best as she could and let out a small groan.  
+丽尽可能地将脸埋在手掌下，发出一声轻微的呻吟。
+
+.
+
+---
+
+.
+
+Four of us – part 3.  
+我们四人 – 第三部分。
+
+"Asuka, I refuse to bite that bait, I will not answer that question!", Shinji protested as vehemently as he could without raising his voice and causing undue commotion. "You're putting me in a corner here, **and you know it**!"  
+"明日香，我拒绝上钩，我不会回答那个问题！" 真嗣尽可能激烈地抗议，但没有提高声音引起不必要的骚动。"你这是在逼我，你自己也清楚！"
+
+"I know. It is always fun to see you squirm. And I perfectly know the answer, anyway", Asuka grinned at him and received an exasperated glare in return. Kaworu had a thoughtful expression on his face – or at least he tried to, because smile was creeping in despite his best attempts to hide it. Rei was doing what she could – at least without resorting to her less mundane abilities – to hide on her seat: she slumped and concealed her blushing face in her hands.  
+"我知道。看你挣扎总是很有趣。而且我无论如何都知道答案。" 明日香对他咧嘴一笑，换来了一个恼怒的瞪视。薰脸上带着沉思的表情——或者至少他试图如此，因为笑容还是不自觉地爬上了他的脸。丽正在尽力——至少没有动用她那些不寻常的能力——隐藏自己：她蜷缩着，用手遮住了脸颊上的红晕。
+
+"Could we _not_? Please?", she pleaded with her voice tiny and muffled. Asuka just looked at her and stated with a grin: "You look so adorable I could kiss you senseless." Another small groan was all she received in response, prompting a giggle. "Absolutely adorable. All right", she turned her attention to Shinji. "If you refuse to answer my question, I shall exact retribution!" She sank to her seat and pulled Shinji down to his. Next thing he felt was her arm across him and her lips on his, soon followed by a tongue in his mouth. Teeth joined soon after.  
+"我们能不能不这样？求你了？"她声音细小而含糊地恳求道。明日香只是看着她，咧嘴一笑："你看起来太可爱了，我真想吻得你神志不清。"她只得到了一声轻微的呻吟作为回应，这让她不禁轻笑出声。"绝对可爱。好吧"，她转向真嗣，"如果你拒绝回答我的问题，我可要报复了！"她坐下并将真嗣拉到自己身边。紧接着，他感觉到她的手臂环绕着他，她的唇贴上了他的，很快一条舌头探入了他的口中。随后，牙齿也加入了进来。
+
+Shinji relented. His girlfriend – no, his _wife_ – has returned to the known phase, known as 'maniacally in love with you and making out with you whenever I feel like it'. He could only hope it will not turn into 'stay the fuck away from me' too soon.  
+真嗣屈服了。他的女朋友——不，他的妻子——已经回到了那个被称为'疯狂地爱着你，随时随地都想和你亲热'的已知阶段。他只能希望这不会太快变成'离我远点'。
+
+Misato has been watching this scene from her seat for a while now; Asuka asking _"__who is the most beautiful woman you know?"_ could be easily an attempt to start an argument, and she was relieved when it proved to be merely Asuka's way to tease Shinji.  
+美里已经从她的座位上观察这一幕好一会儿了；明日香问"你认识的最美的女人是谁？"很容易被看作是挑起争吵的尝试，当发现这只是明日香逗弄真嗣的方式时，她松了一口气。
+
+She sighed discreetly. _'__This whole trip has been a rollercoaster – and the ride is not over yet_', she though, mixed feelings making her more troubled than she would admit. Misato was aware that her kids – she still could not shake that thinking about them, their independence be damned – were in for far more emotional turmoil than they realised.  
+她谨慎地叹了口气。这次旅行就像过山车一样——而且还没结束呢',她想着，复杂的情绪让她比愿意承认的更加困扰。美里知道，她的孩子们——她还是无法摆脱这种想法，他们的独立性就先不管了——将会面临比他们意识到的更多的情感动荡。
+
+She knew enough of their love life to be aware that the current arrangement was likely for the best – this marriage, assuming they all accept it in the end, had a chance to eliminate a lot of break-up and come-back messes that weighed heavily on them over the years. But she also knew from experience – even if it was definitely not experience she was going to discuss with them – that non-monogamy was not the easiest ground to tread on. _'__Still, what can I do? Wish them the best and let them sort it out themselves. Nothing good will come from meddling into their feelings; that I learned the hard way few years back. So, sit back, old hag, and speak only when they ask for your help'_, she concluded, trying to get her mind off that track.  
+她对他们的爱情生活了解得足够多，知道目前的安排可能是最好的——这场婚姻，假设他们最终都接受的话，有机会消除多年来压在他们身上的许多分手和复合的混乱。但她从经验中也知道——即使这绝对不是她会和他们讨论的经验——非一夫一妻制并不是最容易走的路。尽管如此，我能做什么呢？祝他们好运，让他们自己解决。干涉他们的感情不会有什么好结果；这是我几年前以痛苦的方式学到的。所以，坐稳了，老太婆，只在他们求助时才开口',她总结道，试图让自己的思绪远离这个话题。
+
+_'__I wonder whether there will be a proper wedding reception. Two grooms to dance with, and I bet they both be killing it in a proper attire. Shinji will need a new suit, though… he certainly is taking it after his father when it comes to his body developing. And I don't think Kaworu has any appropriate suit at all'_. She shook her head and leaned back. _'__Stop that, you stupid mother hen. You are_ _**not**_ _their_ _**mother**__, it's not for you to plan their weddings. Wedding. You're their friend. Think of the gift you'd give them, and the dress for yourself, maybe a suit for your husband'_, Misato chided herself. _'__Speaking of dress… I wonder how the girls would look in white dress… or maybe they'd prefer kimonos?'_  
+我好奇是否会有一个正式的婚宴。两位新郎共舞，我敢打赌他们穿上正装一定帅得要命。不过，真嗣得准备一套新西装了……他这身材发育，显然是继承了他爸的基因。而我不觉得渚薰有合适的西装。她摇了摇头，向后靠去。别这样，你这愚蠢的老母鸡。你不是他们的母亲，婚礼不该由你来筹划。婚礼。你是他们的朋友。想想你会送什么礼物给他们，还有你自己穿什么，或许给你丈夫也准备一套西装，美里自责道。说到礼服……不知道女孩们穿白色礼服会是什么样子……或者她们更喜欢和服？
+
+She smiled at the picture: boys, dressed to kill in their suits; girls, both in fairy-tale-like wedding dresses. Her perception shifted for a moment, and she saw them in more traditional Japanese wear – looking equally beautiful and handsome in wedding kimonos. _'__I'll have to poke them about that, once they manage to leave the bedroom after we're back. Do not suggest anything large, anything fancy… just a simple party for friends and family'_, she decided, and paused. _'__Family. All in all, they have a chance to finally have a proper one. Their own.'_  
+她对着照片微笑：男孩们身着西装，英气逼人；女孩们则穿着童话般的婚纱。她的视角一时转变，看到他们换上了传统的日本服饰——身着婚礼和服，同样美丽与英俊。等我们回来后，他们终于能离开卧室时，我得逗逗他们关于这件事。不要提议什么盛大的、花哨的……就简单地为亲朋好友办个聚会吧。'她决定，然后停顿了一下。家人。总的来说，他们终于有机会拥有一个真正的家了。属于他们自己的。'
+
+She looked sideways at Kaji, who was snoring softly on the seat next to her, his try-to-make-me-shave face relaxed and without a worry in the world. _'__Everyone gets their shot at happiness, hm? Don't waste yours, kids.'_  
+她斜眼看了看坐在旁边的加持，他正轻轻地打着呼噜，那张试图让我刮目相看的脸放松下来，无忧无虑。每个人都有追求幸福的机会，嗯？孩子们，别浪费你们的幸福。'
+
+Asuka woke up from an indistinct dream. She could recall something about running around a big, dark castle, looking for something, maybe hiding? The place was something out of a nightmare, but the dream itself was not: she knew her nightmares, and she knew they never came when Shinji was close. Just some dream about looking for something, but without the insane emotions that happened in nightmares.  
+明日香从一个模糊的梦中醒来。她记得梦中有在一座巨大而黑暗的城堡里奔跑，寻找着什么，或许是躲藏？那地方像是噩梦中的场景，但梦境本身并不恐怖：她了解自己的噩梦，知道它们从不会在真嗣在身边时出现。只是个关于寻找什么的梦，但没有噩梦中那种疯狂的情绪。
+
+_'__Still, funny metaphor for what happened…'_, she thought, wryly. She yawned lazily, stretched, and looked around. Everyone else was asleep; it was slowly getting dark outside and the inside of the plane was silent. Only distant, soft murmurs and some snoring suggested any human activity; quick glance at the clock told her they were less than an hour from the arrival time; the lights of – presumably – Japan were already visible.  
+她苦笑着想：‘这比喻倒也贴切。’她懒洋洋地打了个哈欠，伸了伸懒腰，环顾四周。其他人都在睡觉；外面渐渐暗了下来，机舱内一片寂静。只有远处轻微的低语和一些鼾声表明还有人的活动；她匆匆瞥了一眼时钟，得知离抵达时间不到一小时；日本——大概是日本——的灯光已经隐约可见。
+
+_'__Home, sweet home'_, she thought. _'__Heh. We left as a gaggle of misfits with issues, we're returning as a family. Of misfits with issues, of course, but this is an improvement. I think.'_  
+她心想：‘家，甜蜜的家。’呵。我们离开时是一群有问题的乌合之众，回来时却成了一个家庭。当然，还是有问题的乌合之众，但这是一种进步。我想。
+
+Asuka was conflicted. She **did** feel happy – "_I managed to cut the Gordian knot by tying the knot!"_, as she triumphantly told her spouses once her initial shock at seeing her own proposal speech wore off, deal was closed, and dust from collecting Misato and Kaji had settled. "_And become the mistress of Asia… well, those parts of Asia I hold most dear"_, she finished with a grin and led them off to a celebratory dinner – this time, on nearly everyone's insistence, with less alcohol – while those better-read explained the metaphor to those confused.  
+明日香内心矛盾。她的确感到高兴——“我通过打结解决了戈尔迪乌姆之结！”她曾得意地向她的配偶们讲述，当她最初的震惊消退，交易达成，收集美里和加持的尘埃落定后，“并成为了亚洲……嗯，我最珍视的那部分亚洲的主人”，她笑着补充道，并带领大家去庆祝晚餐——这次，几乎所有人都坚持要少喝酒——而那些博学的人则向困惑的人解释这个比喻。
+
+She grinned again at that memory. That day started truly weird but ended on a high note… at least the public part. The private part that happened later… '_Well, I guess Shinji would call it ended "forte"?'_ she grinned wider and her cheeks flushed a small bit. Even after Asuka fulfilled her thread – or promise – of getting back on Rei for all the horrible puns she made them suffer, Rei was softly insistent on 'her punishment' to continue after dinner. Asuka was having a hard time saying 'no' to her. _'__Not after accidentally reaching into my pocket and finding a reminder of that lovely minx's mischief. Not after Shinji and Kaworu behaved like damned_ _**lovebirds**_ _over the dinner. Not after they turned into_ _**fucking**_ _lovebirds afterwards. Not after Shinji's offer of assistance with Rei…'_, she blushed harder. Quick scan of the area around indicated she was safe from prying eyes, but she knew she had to stop that thinking soon, especially that a make-out session with Shinji those few hours prior left her tingling with… anticipation. She shook her head. Aside being happy, she felt confused.  
+她再次因那段记忆而咧嘴笑了。那天开始时确实很奇怪，但结局却相当圆满……至少在公开的部分。而私下的部分，发生在那之后……“嗯，我想真嗣会称之为‘强音’结束吧？”她笑得更开了，双颊微微泛红。即便明日香完成了她对绫波的“复仇”——或者说承诺——因为她那些糟糕的双关语让他们受尽折磨，绫波依然温柔而坚持地要求“她的惩罚”在晚餐后继续。明日香很难对她说“不”。不是在她无意中摸到我口袋里那只可爱小狐狸的恶作剧提醒之后，不是在真嗣和渚薰晚餐时表现得像该死的热恋中的情侣之后，不是在他们之后真的变成那种情侣之后，也不是在真嗣提出帮忙绫波之后……”她的脸更红了。快速环顾四周，确认没有窥探的目光，但她知道必须尽快停止这种思绪，尤其是几个小时前与真嗣的亲吻让她至今还感到一阵阵……期待。她摇了摇头。除了感到幸福，她还感到困惑。
+
+_'__Shouldn't I feel jealous of them? Of Kaworu? Of Rei? I suppose I should. Why aren't I?'_ She has been in the past. Girls that looked at Shinji. Girls that asked Shinji out. Shinji's date when Kaworu dragged him on a double-date after particularly long break in their relationship.  
+难道我不应该对他们感到嫉妒吗？对渚薰？对绫波？我想我应该。为什么我没有呢？'她曾经有过。那些看着真嗣的女孩。那些向真嗣表白的女孩。真嗣的约会对象，当渚薰在他们的关系中特别长时间的休息后，硬拉着真嗣去参加双人约会。
+
+_'__I wanted to go there and claw that girl's eyes out. I really considered it. Not my proudest moment'_, she sighed. _'__Yes, all of them. I was jealous. But…'_ Asuka stopped and peeked back and sleeping Rei. _'__Not of her. When they started dating, I was feeling bad… but I couldn't be angry at_ _**her**__. I was angry at_ _**him**__, but that felt so normal, so expected…'_  
+我曾想过去那里把那个女孩的眼睛挖出来。我真的考虑过。那不是我最自豪的时刻'，她叹息道。是的，所有那些女孩。我嫉妒过。但是…' 明日香停了下来，偷偷看了一眼熟睡的绫波。不是对她。当我们开始约会时，我感到很难过…但我无法对她生气。我对他是生气的，但那种感觉如此正常，如此预期…'
+
+'And then she pushed him, literally, back into my arms. Without a regret. And comforted me when it fell apart again.'  
+'然后她把他推了回来，字面意义上的，重新推回我的怀抱。没有一丝后悔。当一切再次崩溃时，她还安慰了我。'
+
+'And he forgave the stupid reasons for the break-up. As he always did. And always apologised, sincerely, when he thought it was his fault. And often when he wasn't.'  
+“他原谅了分手的那些愚蠢理由。一如既往。每当他认为错在自己时，总是真诚地道歉。即使并非他的过错时，也常常如此。”
+
+'And this stupid Angel of Fluff, Love and Fluffy Love. He was always there. Comforting me, over and over. Comforting Shinji, caring for him. Loving Rei.'  
+“还有这个愚蠢的绒毛天使，爱与绒绒爱的化身。他总是在那里。一次又一次地安慰我。安慰真嗣，关心他。爱着丽。”
+
+'I don't deserve them' “我不配拥有他们。”
+
+, she hid her face in her hands. _'__But I do love them. And they do love me. They took me, the worthless Drama Queen, the girl that caused a whole lot of mess in their lives. The girl that ran away so many times, that almost ran away for good. They just accepted me.'_  
+，她将脸埋在双手中。但我确实爱他们。他们也确实爱我。他们接纳了我，这个无用的戏剧女王，这个在他们生活中制造了一大堆麻烦的女孩。这个多次逃跑，几乎永远逃离的女孩。他们就这样接受了我。
+
+Asuka realised her face was wet, and so were her hands. Tears rolled freely down her cheeks, but she failed to notice that until now. For a second, panic gripped her: she never let anyone see her like that in public, not since she was four. Only her lovers – now, her spouses – saw her that vulnerable, and it was not that common, either. _'__Yet another reason I don't deserve them. They saw my lows, all of them, and still said "yes".'_ She bit hard on her lip and took a deep breath. Fortunately for her, another quick scan confirmed no one was looking.  
+明日香意识到她的脸湿了，手也是。泪水自由地顺着她的脸颊滑落，但她直到现在才注意到。有那么一瞬间，恐慌抓住了她：她从不在公共场合让别人看到她这样，自四岁起就没有过。只有她的爱人——现在，她的配偶——见过她如此脆弱，而且这种情况也不常见。'又是一个我不配他们的理由。他们看到了我的低谷，所有的低谷，却依然说“愿意”。'她用力咬住嘴唇，深吸了一口气。幸运的是，再次快速环顾四周确认没有人注意到她。
+
+_'__And I am_ _**not**_ _letting them go. Not one of them. Not anymore. Not ever. Not until death us part. And perhaps even not then.'_  
+我不会让他们离开。一个都不。不再。永远不会。直到死亡将我们分开。甚至可能在那之后也不会。
+
+The silence that surrounded Asuka was the only witness to her thoughts. She let the tears flow in silence for a little while longer before doing her best to recover and prepare to look fine.  
+包围着明日香的寂静是她思绪的唯一见证。她让泪水默默流淌了一会儿，然后尽力恢复，准备让自己看起来无恙。
+
+The world did not have to know.  
+世界无需知晓。
+
+"What do you mean 'wrong'?! Nothing is **wrong** with them!", Asuka's voice was approaching the sound of a snarling predator. She was annoyed already, when their flight had to wait for landing. She was clearly irritated heading out through long passageways of the airport. Now, when they had been stopped on some desk over a data discrepancy, she was quickly heading towards 'livid'. People who knew her were aware that 'furious' was not far off, and not a good thing.  
+“你说的‘不对’是什么意思？！他们哪里不对了！”明日香的声音接近咆哮。她已经很烦躁了，当他们的航班不得不等待降落时。她显然对穿过机场长长的通道感到恼火。现在，当他们在某个柜台因数据差异被拦下时，她正迅速变得怒不可遏。了解她的人都知道，‘暴怒’不远了，这不是什么好事。
+
+"I am sorry, ma'am, something seems to be out of order with your papers. If you calm down, I will do my best to work it out", a young official was doing his best to placate a scary, redheaded ball of irritation in front of him. Rest of the group tried their best not to draw attention. They were all tired; trans-oceanic travels are never easy on body and mind, and while some of the people involved were used to them more than the others – for Kaji, it was like another day on the job – most were not.  
+"非常抱歉，女士，您的文件似乎有些问题。如果您能冷静下来，我会尽力解决", 一位年轻的官员正尽力安抚眼前这位火冒三丈的红发女士。其余的人则尽量不引人注意。他们都疲惫不堪；跨洋旅行对身心从不轻松，尽管其中一些人比其他人更习惯这种旅程——对 Kaji 来说，这不过是日常工作——但大多数人并非如此。
+
+"While your numbers check out, there seems to be some confusion regarding the names… there are no direct matches, but some of them seem similar…", the clerk trailed off, clearly trying to make heads and tails of the data in front of him. Hikari's reasoning clicked first. "Of course. Yes", she rummaged through her bag for a moment. "Here", she addressed the clerk while handing him the marriage certificate. "I got married abroad. It's _Hikari Suzuhara_ now." Her face lit up a bit banishing the signs of exhaustion for a moment.  
+"虽然数字核对无误，但在名字方面似乎有些混淆……没有直接匹配的记录，但有些名字看起来相似……", 办事员话音渐弱，显然在努力理清眼前的数据。Hikari 首先明白了原因。"当然。是的", 她翻找了一会儿背包。"这里", 她一边递给办事员结婚证书一边说。"我在国外结婚了。现在我是 Hikari Suzuhara。" 她的脸上闪过一丝喜悦，暂时驱散了疲惫的痕迹。
+
+"Oh. I see. I see", the man nodded. "It seems the wedding location transferred the information to prefecture's office… and it's in our new citizen registration system now. Amazing efficiency, it's country-wide… I see." He quickly scanned the passport and recorded information. "Thank you, ma'am, please keep in mind you will have to request new identification", he added.  
+"哦，我明白了，明白了。" 那人点头道，"看来婚礼地点已经把信息转到了县办公室……现在我们的新公民登记系统里已经有了。真是高效率，全国范围的……我明白了。" 他迅速扫描了护照并记录信息，"谢谢您，女士，请记住您需要申请新的身份证件。" 他补充道。
+
+"Yes, of course, I will. Thank you", Hikari bowed.  
+"当然，我会的，谢谢您。" 光鞠了一躬。
+
+In the meantime, the quad of newlyweds was engaged in internal discussion. Asuka managed to cool down – good news for everyone involved, and for the national security. But the issue at hand still stood: they were trying to determine who had the certificate. It took about ten minutes of thorough searches, whispered accusations, and fifteen other passengers passing the desk before they managed to find the document, orient it properly, and decide who was going to present it. Last part gathered them some glares: apparently, quick paper-scissor-rock matches were not common in airport queues.  
+与此同时，四位新婚夫妇正在进行内部讨论。明日香终于冷静下来——这对所有相关人员以及国家安全来说都是好消息。但眼前的问题依然存在：他们正在试图确定谁持有证书。经过大约十分钟的彻底搜寻、低声指责，以及十五名其他乘客经过柜台后，他们终于找到了文件，正确地摆放好，并决定由谁来出示。最后一部分引起了些许不满：显然，在机场排队时快速进行剪刀石头布的比赛并不常见。
+
+Kaworu stepped forward, followed by the rest. He handed the officer the marriage certificate: "We got married as well", he stated, as calmly as he could.  
+渚薰向前一步，其他人紧随其后。他将结婚证书递给官员：“我们也结婚了”，他尽可能平静地说道。
+
+"Ah, yes, Mr… Mr… Soryu-Ayanami… Hmmmm…"  
+“啊，是的，先生……先生……碇-绫波……嗯……”
+
+Kaworu found himself starting to sweat. Not that he was not used to social situations but dealing with authority was something he was not used to, and certainly not something he _liked_. Especially in a situation that could prove complicated. His legal status might have been established properly in the wake of NERV-related changes after the War, but he never truly tested how thorough his legalisation was.  
+渚薰发现自己开始冒汗。并非他不习惯社交场合，而是与权威打交道是他不习惯的，也绝非他所喜欢的事。尤其是在可能证明复杂的情况下。他的法律地位可能在战后 NERV 相关变革中得到了妥善确立，但他从未真正检验过他的合法化有多彻底。
+
+"I am afraid this does not make much sense", the clerk started with increasingly confused voice. "Your papers say 'Kaworu Nagisa', and you seem to have assumed a double name that has nothing to do with yours… same for Mr. Shinji… Ikari, now Soryu-Ayanami… Mrs. Soryu, now Soryu-Ayanami… Mrs. Ayanami… oh. This starts…", the clerk paused, making everyone light up with hope. "No, this still makes little sense. If you excuse me and please wait a moment", the clerk picked up the phone, making everyone slump back into tiredness.  
+“恐怕这不太说得通。”店员的声音越来越困惑，“您的文件上写着‘渚薰’，而您似乎用了一个与您无关的双重名字……同样的情况也发生在碇先生……现在是惣流·绫波……惣流夫人，现在是惣流·绫波……绫波夫人……哦。这开始……”店员顿了顿，让所有人都燃起了一丝希望。“不，这还是没什么意义。请原谅，我稍等一下。”店员拿起电话，让众人又陷入了疲惫。
+
+Kaworu sighed. He did not envy the man; this had to be a problem for him as well, and while he had to know English due to his line of work, the marriage certificate was far from what one would expect from a clear and standard document. Suzuharas had the same type of certificate, but it had the expected two names and one of the people had a name change – a simple case, a common one. On their certificate, there were **four** names, and all of them were changed in the process. Everything was within the realms of possibility, and within the law – although Kaworu was not entirely sure what _Japanese_ law said about their quad arrangement – but the amount of the unusual events and circumstances most likely crossed the young official's threshold of "I can handle that routinely", speeded past "I have to think how to handle it", and was rapidly passing "I need to consult my superiors lest I make a mistake that will shame me forever" level.  
+渚薰叹了口气。他并不羡慕那个男人；这问题对他来说肯定也是个麻烦，尽管由于工作性质他必须懂英语，但这份结婚证书远非人们所期待的那种清晰标准的文件。铃原家的证书也是同类型，但上面只有两个名字，其中一人还改了名——一个简单常见的案例。而他们的证书上有四个名字，且每个名字都在过程中发生了变化。一切都在可能和法律允许的范围内——虽然渚薰不完全确定日本法律对这种四人关系有何规定——但这些不寻常的事件和情况很可能已经超出了这位年轻官员的“我能常规处理”的阈值，迅速越过了“我得想想怎么处理”，正急速逼近“我需要请示上级以免犯下终身耻辱的错误”的级别。
+
+Kaworu understood the man's plight. But he was also perfectly aware that Asuka's temporary lack of violent approach could be very temporary indeed. And that was the thought that disturbed him most at the time, trumping even his own exhaustion.  
+渚薰理解那个男人的困境。但他也非常清楚，明日香暂时的非暴力态度可能确实非常短暂。而这正是当时最让他感到不安的想法，甚至超过了自身的疲惫。
+
+In the end, the resolution required calling in a senior clerk who had more experience in handling 'irregular' cases – Kaworu found it slightly amusing how the official fought to keep to the proper terminology and avoided calling the case _insane_ or _messed-up_ – recounting of the entire story – Kaworu had to remind himself to focus on _marriage_, omitting the _party_ before and _consummation_ after, not to mention the whole _recovery and rescue_ process the next day – and reassurances that they will bring the documents in order as soon as reasonably possible. By the end of it, his patience has worn thin.  
+最终，解决这一问题需要请来一位经验丰富的资深职员，他更擅长处理“非正常”案件——碇真嗣觉得官方人员努力坚持使用恰当术语，避免称案件为疯狂或混乱，这一点颇为有趣——他详细叙述了整个故事——碇真嗣不得不提醒自己专注于婚姻部分，省略之前的派对和之后的圆房，更不用说第二天的康复和救援过程——并保证他们会尽快合理地整理好文件。到最后，他的耐心已经所剩无几。
+
+The fear of Asuka-originating explosion came around once more at luggage pick-up. But the delay has proven to be minimal, and Asuka was simply too tired to care. The party split in three, said their good-byes, and each returned to their own place by a separate taxi. On the way, the four simply kept close; too tired to talk, but not too tired to look out for each other. Once they reached the apartment, suitcases went into corners, and bathrooms became things most desired.  
+在取行李时，再次感受到了来自明日香可能引发的爆炸性恐惧。但延迟时间很短，明日香也实在太累了，根本不在乎。一行人分成三组，互相道别，各自乘坐不同的出租车回家。途中，四人紧紧相依；虽然疲惫得无法交谈，但还不至于累到忽视彼此。一到达公寓，行李箱就被扔到角落，浴室成了最渴望的地方。
+
+They were home. 他们到家了。
+
+Shinji pulled out some frozen ingredients and started on a simple supper; they did have a meal on the plane, of course, but it was hours ago, food never tasted well in the clouds, and sleeping with an empty stomach did not sound well to anyone. Once basics were set up, Shinji gladly accepted Kaworu's offer to watch over the pots and took a shower himself; only distraction that happened on the way was being stopped by freshly-showered Asuka and given a warm and steamy hug. "Thank you", she whispered in his ear before moving on. He blinked in confusion; _'__I'll have to ask later'_, he thought. Actually, there were many things to touch on later. But this was a proper qualification: later. Now, it was time to shower, eat, and go to sleep. Jet lag was a murder.  
+真嗣拿出一些冷冻食材，开始准备一顿简单的晚餐；当然，他们在飞机上吃过饭，但那已是几小时前的事了，云端上的食物总是难以令人满意，而空腹入睡对任何人来说都不太好。基本料理完成后，真嗣欣然接受了渚薰帮忙照看锅子的提议，自己去洗了个澡；途中唯一的插曲是被刚洗完澡的明日香拦下，得到了一个温暖而热气腾腾的拥抱。“谢谢你。”她在耳边低语后便离开了。他困惑地眨了眨眼；‘待会儿得问问她’，他想。实际上，还有许多事情需要稍后探讨。但此刻，他决定将这些都留到以后。现在，是时候洗澡、吃饭然后睡觉了。时差真是个折磨人的东西。
+
+He got out of the shower just in time to assist in serving the food. He smiled at the fact that everyone was in the most comfortable clothing they could find: Asuka, Kaworu, and he in their pyjamas, Rei in her soft bathrobe. For a second, part of his brain wondered why Rei did not put her pyjama; less tired part of his brain reminded her she never owned any. This conclusion did not help his cognitive capabilities; suddenly, he was glad that he was already sitting behind a table.  
+他刚洗完澡，正好帮忙上菜。他笑着看到大家穿着最舒适的衣物：明日香、薰和他自己都穿着睡衣，丽则裹着柔软的浴袍。有那么一瞬间，他的大脑一部分在想为什么丽不穿睡衣；而较为清醒的那部分提醒他，丽从未有过睡衣。这个结论并没有改善他的认知能力；突然间，他很庆幸自己已经坐在餐桌后面了。
+
+"Goodnight, every-", Shinji tried to say once he got out of the bathroom after brushing his teeth. He stopped in his tracks once he saw his spouses performing some manoeuvres with futons. "Guys?"  
+“晚安，各位——”，真嗣刷完牙从浴室出来时试图说道。他停下脚步，看到他的配偶们正在铺被褥。“大家？”
+
+"Ah, good. Do you prefer us on the left, the right, or on both sides?", Rei asked in a very matter-of-fact tone. Before Shinji could answer, Asuka chimed in with sleepy voice: "Just push the bed to the wall, put them on the other side in case someone falls, and come to bed, all of you. I'm tiiiiree-" a large yawn cut the rest off.  
+“啊，很好。你更喜欢我们在左边、右边，还是两边都有？”，丽用一种非常实事求是的语气问道。真嗣还没来得及回答，明日香就带着困倦的声音插话道：“把床推到墙边，另一边铺上以防有人掉下去，然后大家都上床睡觉吧。我好困——”一个大大的哈欠打断了她的话。
+
+Rei looked at Kaworu, and Kaworu looked at Rei. They both smiled, and the bed with Asuka on it slowly levitated towards the wall. Shinji rolled his eyes: _'__Well, yes, this_ _**is**_ _the fastest way, but I am sure some hapless technician at Geofront is now scrambling to check the Blue Pattern Alarm. They will see it originated here and ceased, and hopefully not call for recon or Eva alarm…'_. The War was over, but the sensor networks have not been dismantled. After all, no one truly knew whether it was all over, and in military, paranoia tended to be the way of life – or, as they preferred to call it, 'being prepared'.  
+丽看着渚薰，渚薰也看着丽。两人相视而笑，而装着明日香的床缓缓向墙边飘去。真嗣翻了个白眼：好吧，这确实是最快的方法，但我敢肯定，地表基地的某个倒霉技术人员现在正手忙脚乱地检查蓝色警报。他们会发现警报从这里开始又在这里结束，希望他们不会派人来调查或启动 EVA 警报……'。战争已经结束，但传感器网络并未被拆除。毕竟，没有人真正知道是否一切都结束了，而在军队中，偏执往往是一种生活方式——或者，正如他们喜欢称之为'有备无患'。
+
+He shook the thoughts off and approached the newly-placed bed. It was technically Asuka's room, and she had a large bed they both slept in when they were on good terms – but large meant 'fit for three', not for four. _'__Well, I guess one or two nights with one more will not kill us. And then we'll have to think of something else.'_  
+他甩开这些念头，走向新安置的床。严格来说这是明日香的房间，她有一张大床，两人关系好时会一起睡——但大床意味着'适合三人'，而不是四人。嗯，我想一两个晚上多一个人不会要了我们的命。之后我们再想办法吧。
+
+He turned around to ask Kaworu a question about futons – and realised this might have been a mistake. Rei already disrobed – and was standing less than half a meter from him, smiling her small smile, perfectly innocent in her nudity. Perfectly distracting, as well. "Yes, dear husband?", she smirked. "Should I put something more… decent… on, to avoid distracting you?"  
+他转过身来想向渚薰询问关于被褥的问题——随即意识到这可能是个错误。绫波已经脱掉了衣服——站在离他不到半米的地方，带着她那淡淡的微笑，赤裸的身体显得无比纯真。同样也极具诱惑力。“是的，亲爱的丈夫？”她微微一笑。“我是不是该穿得更……得体些……以免让你分心？”
+
+_'…_ _and perfectly aware of the effect she is having on me. If she keeps up this game, next few days may be… interesting. Or few next weeks'_, he realised.  
+“……而且她完全清楚自己对我的影响。如果她继续这样玩下去，接下来的几天可能会……有趣。或者接下来的几周。”他意识到。
+
+Little did he know how wrong he was.  
+他不知道自己错得有多离谱。
+
+Despite his brain still operational – at least marginally – Shinji found himself unable to answer coherently. Kaworu entered the room carrying his futon and stopped in his track. Rei looked at him equally sweetly and asked the same question, in the same innocent tone. Brains of both men were whirring, deciding between a bluescreen and turning off due to lack of blood. Rei seemed… amused.  
+尽管大脑仍在运转——至少勉强如此——真嗣发现自己无法连贯地回答。薰抱着他的被褥走进房间，突然停下脚步。绫波同样甜美地看着他，用同样天真的语气问了同一个问题。两人的大脑都在飞速运转，决定是蓝屏还是因缺血而关闭。绫波似乎……觉得有趣。
+
+The stalemate was broken by a muffled voice from the bed: "Shtop fooling 'round! I want my body pillow, sho come to **bed**! Or'll come to youu…" Asuka made a threat, waving her hand, fingers curled in claws, rest of her body wrapped in covers.  
+僵局被床上一个闷闷的声音打破：“别闹了！我要我的抱枕，快来睡觉！不然我就去找你……”明日香挥舞着手，手指弯曲成爪状，身体其余部分裹在被子里，发出威胁。
+
+Rei put her finger on her lips and cocked her head. "I believe I have a solution for this. All of this. Kaworu, please put the futon down next to the bed, as we discussed; Shinji – please go assist Asuka in acquiring a body pillow. You are one she is most familiar with in that capacity. I believe I can take care of the remaining issues that have arisen."  
+绫波将手指放在唇边，歪了歪头。“我想我有一个解决办法。所有这些问题。薰，请把被褥放在床边，就像我们讨论的那样；真嗣——请去帮明日香拿抱枕。她在这个方面最熟悉你。我相信我能处理剩下的问题。”
+
+_'__Rei certainly makes good on her word'_, Shinji thought, drifting to sleep while holding Asuka, being held by Rei, and feeling Kaworu's hand on his side. He wondered briefly whether the bruises that had to be forming on his thighs will be recognizable as bite marks – if so, it would be wise to think of an explanation before resuming his training routine – but decided to worry about that in the morning. His last conscious thought was: _'__Will it last? I'd like to see it last…'_.  
+丽确实信守承诺', 真嗣想着，在抱着明日香、被丽抱着、并感受到薰的手放在他身侧的情况下渐渐入睡。他短暂地思考了一下大腿上必定形成的淤青是否会被认出是咬痕——如果是的话，在恢复训练前想出一个解释会是明智的——但他决定留到早上再担心。他最后的意识是：这会持续吗？我希望它能持续……
+
+Surrounded by happy murmurs and soft snoring from all sides, he drifted away.  
+四周环绕着愉快的低语和轻柔的鼾声，他渐渐进入了梦乡。
+
+---
+### Chapter 8
+
+**Evangelion: The Hangover pt 8  
+新世纪福音战士：宿醉 第 8 章**
+
+**.**
+
+---
+
+.
+
+The next morning after homecoming was a slow and lazy one, at least partly due to jet lag still insisting it was the middle of the night. But the larger reason was a mix of joy at waking up with the four of them comfortably wrapped around each other entirely openly, and of all of them sharing a residual fear that this was all a grand dream and not wanting to break the spell by getting up. Asuka certainly didn't want to move, at least. However, Kaworu's stomach loudly declaring it was empty and Shinji's bladder alerting him it was full required the happy, if somewhat cramped, pile in the bed to yield to the requirements of nature and start to stir.  
+返校节后的第二天早晨，由于时差作祟，感觉还是深夜，所以显得格外缓慢而慵懒。但更主要的原因是，他们四人醒来时舒适地相互依偎，毫无保留地拥抱在一起，这种喜悦与他们心中残留的恐惧交织——担心这一切只是一场美梦，不愿起身打破这魔咒。至少，明日香绝对不想动弹。然而，渚薰的肚子大声宣告饥饿，真嗣的膀胱也发出警告，这使得床上虽有些拥挤但幸福的一堆人不得不屈服于自然的召唤，开始慢慢苏醒。
+
+Kaworu already had the beginnings of breakfast underway by the time Shiniji exited the bathroom. While no one questioned or contested Shinji's title as King of the kitchen in their household (which it had functionally been for months, despite Rei and Kaworu still technically having their own apartments next door), Kaworu had developed a not-inconsiderable talent of his own for cooking, fueled in part by his sheer delight that it was a relatively simple way for him to elide the still lingering creative blindness that many other Lilim fields harbored for him.  
+当真嗣走出浴室时，渚薰已经开始准备早餐了。尽管没有人质疑或挑战真嗣在家中厨房之王的地位（尽管丽和渚薰在隔壁仍拥有自己的公寓，但几个月来这个称号实际上已经属于真嗣），渚薰也发展出了相当不错的烹饪才能，部分原因是他对烹饪的纯粹喜爱，这相对简单的方式让他能够避开其他许多人类领域对他仍存在的创造性盲点。
+
+That their new marital status meant Kaworu had also decided to treat his wives and husband to a traditional 'naked apron' morning was a treat, though.  
+他们新婚的身份意味着渚薰决定以传统的“裸体围裙”早晨来款待他的妻子们和丈夫，这确实是个惊喜。
+
+Shinji stopped dead in his tracks on entering the kitchen at the sight, and flushed as he contemplated that he was now staring at his _husband's_ bare ass as said cook worked on breakfast while humming contentedly. It took a moment for Shinji to kick himself back into gear and move in to cuddle up against Kaworu's delightfully warm back. "Good morning," he murmured into his ear. "Breakfast in bed for our wives?"  
+真嗣一进厨房就愣住了，看到这一幕，他的脸颊泛起红晕，因为他意识到自己正在盯着丈夫赤裸的臀部，而那位厨师正愉快地哼着歌做早餐。过了一会儿，真嗣才回过神来，走上前去拥抱渚薰温暖的后背。“早上好，”他轻声在他耳边说，“给我们的妻子们准备床上早餐？”
+
+Kaworu purred happily at Shinji's hands sliding under the apron to meet on his stomach. "If they haven't moved when we're done cooking, certainly. Or if nothing distracts us out here~..." he trailed off suggestively, giving his hips a little wiggle against Shinji.  
+渚薰在真嗣的手滑入围裙下，贴在他肚子上时，开心地低声哼哼。“如果我们做完饭它们还没动，那当然可以。或者如果这里没有什么能让我们分心的话~...”他意味深长地拖长了声音，轻轻扭动臀部贴着真嗣。
+
+Shinji shivered himself and failed to stop an outburst of compassion. "Ah... I say no only because I'm sure our ladies would be sad they missed the show. But I like your thinking."  
+真嗣自己颤抖了一下，没能阻止一阵同情心的爆发。“啊...我之所以说不，是因为我确信我们的女士们会因为错过这场表演而难过。但我喜欢你的想法。”
+
+"Well then, let's hurry and get some food to them so we can resume," Kaworu said with a wink over his shoulder.  
+“那么，让我们快点给他们弄些食物，然后继续，”渚薰回头眨了眨眼说。
+
+"And here I thought _Rei_ was the most naughty one," Shinji said with a smile. He forced himself to let go of the toned Nephilim and start finding the breakfast plates. "I think she's been a bad... _good_ influence on you."  
+"我还以为丽是最调皮的呢，" 真嗣笑着说。他强迫自己放开那健美的奈非天，开始寻找早餐盘子。"我觉得她对你影响不好... 好的影响。"
+
+Thus motivated, assembly of breakfast moved quickly. Toast, butter, jam, tea, and some rice for everyone was sufficient to get them started for the day, which happily was still part of vacation. They didn't have to worry about returning to their various jobs for a few more days. Shinji already had plans for them, most of which did not include spending much time away from either his new spouses or their bed. He imagined the others had similar thoughts.  
+受到这样的激励，早餐的准备工作迅速进行。吐司、黄油、果酱、茶，还有每人一份的米饭，足以让他们开始新的一天，幸运的是，这一天仍然是假期的一部分。他们不必担心在接下来的几天内回到各自的工作岗位。真嗣已经为他们制定了计划，其中大部分时间都不打算远离他的新配偶们或他们的床。他猜想其他人也有类似的念头。
+
+Well, he imagined Asuka and Kaworu did. With Rei, he was _certain_.  
+嗯，他猜想明日香和薰也是这样。至于丽，他确信如此。
+
+Very deliberately, he let Kaworu precede him back into the bedroom, enjoying the view the whole way. _'Gods, it feels so... liberating, not to have to hold back at all anymore that I love Kaworu too. I don't know if I ever could have admitted that out loud without Asuka, too. I... I just... I need both of them. And Rei.'_ Rei's words from that hungover morning came back to him. _''I am currently experiencing the most fascinating combination of arousal and romantic joy. I would prefer that this state last as long as possible.' Yeah, me too, Rei. Me too.'_ He'd spent half his life so lonely it hurt to even remember, and now here he was, the first morning in his own home, bringing breakfast to his wives, plural, in the company of his husband.  
+他故意让渚先他一步回到卧室，一路上尽情欣赏着这番景象。'天啊，这种感觉真是...解放了，不再需要有任何保留，我也爱着渚。没有明日香，我可能永远无法大声承认这一点。我...我只是...我需要他们两个。还有丽。' 丽那次宿醉早晨的话又浮现在他脑海中。''我现在正经历着一种最迷人的兴奋与浪漫喜悦的结合。我希望这种状态能持续得越久越好。' 是啊，我也是，丽。我也是。' 他大半辈子都孤独得连回忆都痛苦，而现在，他就在这里，在自己的家中，第一个早晨，为他的妻子们——复数——端来早餐，身边还有他的丈夫。
+
+Red and blue hair were mixed together on the bed, the only parts of their wives visible above the covers they'd pulled back over themselves once he and Kaworu rose. Kaworu placed tray he was carrying on the bedside table and snaked a hand underneath the blankets to gently rouse Rei. "Breakfast in bed, my loves. Time to wake a little."  
+红色和蓝色的头发在床上交织在一起，这是他们妻子们唯一露在被子外面的部分，被子是他们和渚起床后重新拉回来的。渚把他端着的托盘放在床头柜上，伸手到被子下面轻轻唤醒丽。"早餐在床上，亲爱的们。该醒醒了。"
+
+"Grmphlbix," Asuka replied.  
+"咕噜布西，" 明日香回答道。
+
+"But it's warm and cuddly under here, and Asuka is being cute and sleepy," Rei said drowsily.  
+“但这里温暖又舒适，明日香还那么可爱又困倦，”绫波懒洋洋地说道。
+
+"Naked apron beefcake," Kaworu said with a small smile.  
+“裸体围裙的肌肉男，”渚薰微微一笑说道。
+
+Rei sprang upright into a sitting position, eyes open. "I'm up!" She ran her eyes up and down Kaworu. "Ohhhh, I like being married. Can I untie the apron?"  
+绫波猛地坐直身子，眼睛睁得大大的。“我醒了！”她上下打量着渚薰。“哦，我喜欢结婚。我能解开围裙吗？”
+
+Kaworu smiled wider. "Of course. Unless Asuka wants to thumb-wrestle you for the chance."  
+渚薰笑得更开了。“当然可以。除非明日香想和你比试拇指摔跤来争取这个机会。”
+
+Asuka likewise sat up, yawning. "I'm up, but I'm only not trying to kill you because I love you and you're really hot," she complained. "Rei can have this one. I will de-pants Shinji and have him feed me breakfast."  
+明日香也坐起身，打着哈欠。“我起来了，但我不打算杀你只是因为我爱你而且你真的很性感，”她抱怨道。“丽可以接手这个。我要扒掉真嗣的裤子，让他喂我吃早餐。”
+
+Shinji moved to her side of the bed, only too happy to put himself in reach of her hands. But before he could get to the fun part, his phone began to ring on the table behind him.  
+真嗣移到她床边，非常乐意让自己进入她的手可及范围。但就在他准备享受乐趣之前，他身后的桌子上手机开始响了起来。
+
+Asuka glared death at the smartphone. "Shinji, I do want you to answer that, if only so we can tell them to die in a fire for interrupting the breakfast-foreplay for what was supposed to be our first proper morning four-way in our own home."  
+明日香恶狠狠地瞪着智能手机。“真嗣，我确实希望你接电话，哪怕只是为了告诉他们去死，因为他们打断了我们本该在家中第一次正式四人早餐前的调情。”
+
+Shinji handed the tray to Asuka, and retrieved his phone, glancing at the caller ID. The display on his cutting-edge smartphone said 'CPT Aida, K.' "It's Kensuke," he reported to the others. "It... could be NERV related?"  
+真嗣将托盘递给明日香，拿起自己的手机，瞥了一眼来电显示。他那尖端智能手机的屏幕上显示着‘相田剑介少尉’。“是剑介，”他向其他人报告，“可能是与 NERV 有关的事？”
+
+"At this hour? On a Saturday?" Asuka scoffed. "Oh, fine, answer him. If nothing else, we can tell him to leave us alone for," she glanced around, "eh, at least three or four days. We're going to be _busy_."  
+“这个时间？还是周六？”明日香嗤之以鼻，“好吧，接吧。如果没什么重要的事，我们可以告诉他至少三四天内别来打扰我们，我们有得忙了。”
+
+Shinji snorted. Asuka's tone said volumes about exactly _how_ she expected them to all be 'busy'. He clicked 'Accept' on his phone. "Hello, Kensuke."  
+真嗣哼了一声。明日香语气中的意味，清楚地表明了她预期他们都会有多‘忙’。他在手机上点击了‘接受’。“你好，健介。”
+
+"Shinji! Man! I have the _best news_ you're never going to believe!"  
+“真嗣！伙计！我有天大的好消息，你绝对不会相信的！”
+
+"A kaiju has appeared offshore, and you've been selected to pilot Jet Alone 2 against it while your girlfriends watch?" Shinji asked dryly.  
+“一只巨兽在近海出现了，而你被选中驾驶 Jet Alone 2 去对抗它，同时你的女朋友们在旁边观看？”真嗣干巴巴地问道。
+
+"No, though that would be almost as awesome. I want to show you! Can you put on video mode?" Kensuke asked excitedly.  
+“不，虽然那也几乎同样精彩。我想给你看个东西！你能切换到视频模式吗？” 真嗣兴奋地问道。
+
+Shinji looked at his spouses. Rei had successfully dispensed with Kaworu's apron, and the chiseled and toned Nephilim was now sprawled across her lap, with Rei teasingly feeding him bits of toast and jam... ...while also exploring his compassion. Asuka watched with interest, and when she noticed Shinji looking, smirked at him and put her hands behind her head to arc her back into a stretch. "Er... I'm not really dressed..." he said into the phone.  
+真嗣看着他的配偶们。丽已经成功地脱掉了薰的围裙，这位轮廓分明、肌肉线条优美的天使现在正躺在她的腿上，丽调皮地喂他吃着吐司和果酱……同时也在探索他的温柔。明日香饶有兴趣地看着，当她注意到真嗣在看时，朝他微微一笑，双手放在脑后，身体向后伸展。“呃……我还没穿好衣服……”他对着电话说。
+
+"Please? I promise, it's worth it! It'll only take a minute! I've got something I _really_ want to show you and Asuka! I know she's there. You two are 'on again' this month."  
+“拜托了？我保证，绝对值得一看！只需要一分钟！我有样东西真的很想给你们俩看，我知道她在那儿。你们这个月又‘和好了’。”
+
+Shinji sighed, and covered the phone's mic with his thumb. "Ah... Rei, cover yourself and Kaworu with a blanket enough for Kensuke. I'll try and keep you two out of shot, but I don't want to accidentally give him a show if I mistake the view angle."  
+真嗣叹了口气，用拇指捂住手机的麦克风。“啊……绫波，用毯子把自己和薰盖好，足够让剑介看到。我会尽量让你们不出现在镜头里，但我不希望万一角度没掌握好，让他意外看到不该看的。”
+
+"He has inconvenient timing," Rei pouted slightly, but flipped the blankets up enough that Kaworu was no longer displaying his strong compassion to the world.  
+“他的时机总是那么不凑巧，”绫波微微噘嘴，但还是拉起毯子，足够让薰不再向世界展示他的深切同情。
+
+Shinji sat down on the bed and placed himself in front of Asuka enough that her own state of undress wasn't immediately visible. Getting a nod from her, he clicked the call over to video. "Alright, Kensuke, we're here. What is it?"  
+真嗣坐在床上，让自己挡在明日香前面，确保她的衣衫不整不会立刻被看到。得到她的点头同意后，他切换到视频通话。“好了，剑介，我们在这儿。有什么事吗？”
+
+A view of three hands greeted him, one male and two female, all wearing a ring on their ring finger. "We got _married!_" Kensuke, Sayaka, and Kyoko chorused.  
+三只手映入眼帘，一男两女，每只手的无名指上都戴着戒指。“我们结婚啦！”健介、沙耶香和京子齐声欢呼。
+
+Rei slapped both her hands over her mouth and did her best to stifle an explosion of giggling. Kaworu rolled over and smashed his face into a pillow in a similar effort.  
+丽双手捂住嘴，尽力压抑着爆发的笑声。薰则翻了个身，将脸埋进枕头，同样努力克制自己。
+
+Asuka didn't even try. "Ha! About time, you three! Congratulations. Now... unless you stowed away in our luggage and snuck over to Las Vegas without telling us, how the Hell did you get the Japanese Government to agree to that? You three may have been a 'thing' since high school, but I thought you'd all decided to just live together since you couldn't do a three-way marriage."  
+明日香连掩饰都懒得掩饰。“哈！终于等到这一天了，恭喜你们！不过……除非你们偷偷藏在我们的行李里，没告诉我们就溜去了拉斯维加斯，否则日本政府是怎么同意这种事的？你们三个从高中起就是‘那种关系’，但我记得你们不是决定就住在一起，因为三方婚姻是不可能的吗？”
+
+"Turns out, it's legal in the United States!" Sayaka crowed from Kensuke's left. "Kyo-chan read about it when she was tormenting herself reading some bridal and wedding magazines. Once she told us, Ken-chan had us on a plane to Reno, Nevada in less than 24 hours! The sweetie!"  
+"结果发现，这在美国的法律上是允许的！" 真由香从健介的左边欢呼道，"京子在折磨自己看一些新娘和婚礼杂志时读到了这个。她告诉我们后，健介不到 24 小时就让我们登上了去内华达州里诺的飞机！真是贴心！"
+
+"Less than twelve hours after we landed, we were the Aidas, all three of us!" Kyoko said from the other side. "It's legal in America, and we figure with a good lawyer and playing the NERV card, we can probably make the Japanese Government take it. NERV for sure, anyhow, and if we have to live in the Geofront to make it work, then we'll do it."  
+"我们落地后不到十二小时，就成了三个相田！" 京子从另一边说道，"在美国这是合法的，我们觉得找个好律师，再利用 NERV 这张牌，或许能让日本政府接受。无论如何，NERV 肯定会支持，如果为了实现这一点我们必须住在地下空间，那我们也愿意。"
+
+Asuka's grin would have done credit to a shark. "As usual, Geek-Stooge, anything you can do, I can do better!" Without taking her eyes off the phone, she reached blindly to her right and found Rei's left hand, dragging her closer.  
+明日香那得意的笑容简直能媲美鲨鱼。"一如既往，书呆子小丑，你能做的，我都能做得更好！" 她眼睛不离手机，盲目地向右伸出手，找到了丽左手，将她拉近。
+
+The image on the phone pulled back enough to show all three Aidas looking at them in confusion. They were apparently still walking out of the airport, a luggage cart in front of Kensuke. "What?" he blinked at her.  
+手机上的画面拉远，显示出三位 Aida 困惑地看着他们。他们显然还在机场出口处，Kensuke 面前推着一辆行李车。“什么？”他眨眼看着她。
+
+"Oh, Shinji and I got married two days ago, so we did it first. _And_ we did it better because we did it _bigger_."  
+“哦，真嗣和我两天前结婚了，所以我们先办了。而且我们办得更好，因为我们办得更盛大。”
+
+"How can you and Shinji possibly be 'bigger' than the _three_ of us, Red Demon?"  
+“你和真嗣怎么可能比我们三个更‘大’，红魔？”
+
+Asuka's smirk ran from ear to ear. She pulled Rei close enough to be seen behind her, and draped Rei's arm over her shoulder, be-ringed hand prominently on display. "Because Shinji and I and _Rei_ got married... and Kaworu for good measure! Ha! Beat a four-way marriage, Stooge!"  
+明日香得意地咧嘴笑着，将绫波拉到自己身后，让她环抱住自己的肩膀，戴着戒指的手格外显眼。“因为我和真嗣还有绫波结婚了……还有加持，为了保险起见！哈！你能比得过四人联姻吗，笨蛋！”
+
+She paused for a second. "Oh, yeah, Jock-Stooge and Hikari finally got hitched too. Seems to have been a thing this week."  
+她顿了一下。“哦，对了，肌肉笨蛋和光也终于结婚了。看来这周是个结婚周。”
+
+Kesuke just stared at her. Then at Shinji, who raised his left hand to show his own ring and shyly nod confirmation. "Wut."  
+美里只是盯着她。然后看向真嗣，后者举起左手展示自己的戒指，羞涩地点头确认。“什么鬼。”
+
+Kaworu stuck his head in to the edge of the field of the phone's camera. "Hi, Kensuke, ladies! Good morning!" He was grinning like an idiot too.  
+カヲルは携帯のカメラの視野の端に頭を突っ込んで、「ケンスケ、みんな！おはよう！」と言った。彼もまた馬鹿みたいに笑っていた。
+
+Kensuke stared at Kaworu's sideways tilted head like he'd grown antlers. "You guys are... you're fucking with us, right?"  
+ケンスケはカヲルの横に傾いた頭を見て、まるで角が生えたかのようだった。「お前ら... お前らは俺たちをからかってるんだろ？」
+
+Kaworu stuck his hand into view, ring glittering. "Nope! Asuka decided I was as lovable as Shinji and Rei, somehow, and decided to keep me. The Asuka has spoken, I must obey."  
+カヲルは手を視界に入れ、輝く指輪を見せた。「ノップ！明日香は何故か僕をシンジやレイみたいに愛おしいと思って、僕を連れて行くことにした。明日香様の言うことは絶対なので、従わなければならない。」
+
+"Damn skippy," Asuka nodded. Her imperious tone was somewhat spoiled by a rising blush. "Mister Aida, Mrs Aida, Mrs Aida, say hello to the Soryu-Ayanamis!"  
+"当然啦，" 明日香点头道。她那傲慢的语气被逐渐升起的红晕稍稍破坏了。"相田先生，相田太太，相田太太，来见见索伦-绫波一家！"
+
+"How... how... how... what? I mean... all of you?" Kensuke babbled. Beside him Sayaka just smiled and shook her head at him. Kyoko started laughing. "You owe me 500 yen, Sayaka! You bet Rei and Kaworu would get married _first_!"  
+"怎...怎...怎...什么？我是说...你们所有人？" 真嗣结结巴巴地说。他旁边的沙耶香只是微笑着对他摇头。绫波开始笑了起来。"沙耶香，你欠我 500 日元！你赌绫波和薰会先结婚的！"
+
+"Sayaka, Kyoko... you have been my friends for many years, and you know your husband was one of my first friends, yes?" Rei said suddenly from behind Asuka.  
+"沙耶香，绫波...你们多年来一直是我的朋友，而且你们知道你们的丈夫是我最早的朋友之一，对吧？" 绫波突然从明日香身后说道。"
+
+"Yes?" "是的？"
+
+"Yes?" "是的？"
+
+"So do take it in the full spirit of our friendship when I say 'Congratulations on your marriage, now stop interrupting me when I'm feeding a naked and aroused husband in my lap and don't call us for at least 24 hours'."  
+"所以请以我们友谊的全部精神来接受我的祝福：‘恭喜你们结婚，但请在我给坐在我腿上赤裸且兴奋的丈夫喂食时不要打断我，并且至少 24 小时内不要联系我们。’"
+
+Kensuke's face reddened. "Rei, are you sure you should be quite phrasing it that way?"  
+健介的脸红了。“丽，你确定应该这样表达吗？”
+
+"I dunno, I could stand to hear a little more," Sayaka said. "It sounds like a good plan. Love ya, Rei! We'll see you all tomorrow night for dinner or something!" She reached out over Kensuke's arm and pressed the 'End Call' button on his phone.  
+“我不知道，我还想再听一点，”沙耶香说。“听起来是个好计划。爱你，丽！我们明天晚上一起吃晚饭或者其他什么活动再见吧！”她伸手越过健介的手臂，按下了他手机上的‘结束通话’按钮。
+
+Rei nodded with satisfaction. She reached up to grab Kaworu by the upper arm and pulled him back to fall into her lap again. "Now, where were we? Ah, yes: Nutrition. Breakfast."  
+丽满意地点点头。她伸手抓住卡罗尔的上臂，将他拉回，再次跌坐在她的腿上。“那么，我们刚才说到哪儿了？啊，对了：营养。早餐。”
+
+Shinji dropped his phone onto the bedside table and sat down facing Asuka. "Rei, why am I suspicious that you're planning something lewd with that train of thought?"  
+真嗣把手机丢在床头柜上，面对着明日香坐下。“丽，为什么我觉得你用这个思路在策划什么下流的事情？”
+
+"Because we know this insatiably horny little minx we married, Shinji?" Asuka supplied. "Also, the way she's got her hand wrapped around Kaworu's 'Lance of Longinus' is a hint."  
+“因为我们了解这个欲求不满的小妖精，真嗣？”明日香补充道，“而且，她把手缠在卡罗尔的‘朗基努斯之枪’上的样子也太明显了。”
+
+"I was just thinking of our dietary needs, Asuka," Rei said piously, hand moving slowly. "I'm going to watch Kaworu eat some toast, then he's going to eat me, while I eat you, while you eat Shinji. A good breakfast is important, and the best way to start the day."  
+"我只是在考虑我们的饮食需求，明日香，" 绫波虔诚地说道，手慢慢移动。"我要看着渚薰吃些吐司，然后他吃我，我吃你，你吃真嗣。一顿丰盛的早餐很重要，这是开始新一天的最好方式。"
+
+"And what am I supposed to eat?" Shinji inquired, raising an eyebrow. "Or who, maybe?"  
+"那我该吃什么呢？" 真嗣挑眉问道。"或者说，该吃谁呢？"
+
+Rei smiled... angelically. "I'm warming you up some sausage right now."  
+绫波微笑了...天使般地。"我现在正在给你热一些香肠。"
+
+"Rei, that was terrible. I'm giving you 70 or 80 years to stop that," Asuka said, leaning over to kiss her shoulder.  
+"丽，那太糟糕了。我给你 70 到 80 年的时间来改掉这个习惯，" 明日香说着，侧身过去亲吻她的肩膀。
+
+"If I said you have a beautiful body, would you hold it against me?" Rei said without the slightest change to her expression.  
+"如果我说你有一个美丽的身体，你会因此怪罪我吗？" 丽面无表情地说道。
+
+"I love breakfast," Kaworu mumbled around a mouthful of toast.  
+"我喜欢早餐，" 渚薰嘴里塞满吐司含糊不清地说。

@@ -14953,7 +14953,7 @@ Meanwhile, Zeruel touched down in Tokyo-3 and started the destruction that await
 这与我之前所做的截然不同，你大概能看出来...**
 
 ---
-### Chapter
+### Chapter 17: Tragic Reunions
 
 ---
 ### Chapter 35: Finality

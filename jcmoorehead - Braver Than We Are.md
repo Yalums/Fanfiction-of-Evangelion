@@ -7758,7 +7758,7 @@ Kaworu hands up immediately and I'm left simply staring at my phone in silence. 
 渚薰立刻举手投降，我只能默默地盯着手机。他挂电话时在哭。我应该打回去道歉吗？他还想再和我说话吗？我感到一滴泪滑过自己的脸颊，紧紧握住手机。对不起，渚薰。
 
 ---
-### Chapter 13: Realization 第十三章：领悟  
+### Chapter 13: Realization
 
 **30th September 2021 – Rei Ayanami  
 2021 年 9 月 30 日 – 绫波零**
@@ -8745,4 +8745,3261 @@ Fuyutsuki actually looked quite surprised at what I've said, "Would Ikari agree 
 "我确信他会理解的。" 我又一次安慰他，"你只需与你需要的人交谈，并告诉我需要做什么。我会在这里做我该做的事。"
 
 ---
-### 
+### Chapter 15: Keep Talking  
+第十五章：继续交谈  
+
+**1st October 2021 – Kaworu Nagisa  
+2021 年 10 月 1 日 – 渚薰**
+
+I approach the front door to the apartment feeling quite different to how I did when I left to go to work this morning. This morning I felt like there was something of a dark cloud hovering over me, I felt regret at the situation with Shinji. I was finding it hard to convince myself that things would work out. I did believe Asuka when she told me that she would work on fixing the situation but I also did not want to rely completely on her.  
+我走向公寓的前门，感觉与今早出门上班时截然不同。今早，我感到头顶仿佛笼罩着一片乌云，对与真嗣的处境感到后悔。我很难说服自己事情会好转。当明日香告诉我她会努力解决问题时，我确实相信她，但也不想完全依赖她。
+
+After the conversation with Rei my outlook changed. I felt as if a weight had been lifted from my shoulders. I took some time afterwards to go and walk along the riverside as I said I would and contemplated the situation more. If Rei is able to forgive me despite her admitted hatred of myself then perhaps there is a chance for the situation to be fixed.  
+与绫波的对话之后，我的心态发生了变化。我感觉肩上的重担被卸下了。之后，我如约去河边散步，进一步思考了当前的状况。如果绫波能原谅我，尽管她承认自己恨我，那么或许这个局面还有转机。
+
+I unlock the door and step through, announcing my return as I kick off my shoes, "I'm home!"  
+我打开门，一脚跨进去，脱鞋的同时宣告我的归来，“我回来了！”
+
+I step through the small corridor into the main living space and see it emptier than it was when I left this morning. The stack of boxes containing all of Asuka's signed books have now gone and Asuka herself is not in the room. A few moments later I hear a muffled shout from our bedroom, "Welcome home!"  
+我穿过狭小的走廊，进入主生活区，发现这里比今早离开时还要空荡。那一堆装着明日香签名书的箱子已经不见了，明日香本人也不在房间里。片刻后，我听到卧室里传来一声闷闷的喊声，“欢迎回家！”
+
+I take a few steps towards the bedroom door and open it to see her kneeling down and stuffing a few items of clothing into one of the drawers. She looks up at me and smiles, I can see the sweat trickling down her forehead, "Give me a minute or two, I'm just finishing up sorting those boxes I brought over."  
+我朝卧室门走了几步，推开门，看到她跪在地上，正把几件衣服塞进抽屉里。她抬头对我微笑，我可以看到汗水顺着她的额头流下，“给我一两分钟，我刚把那些搬来的箱子整理完。”
+
+I nod and smile back at her, "Okay then."  
+我点头回以微笑，“好的。”
+
+I close the door behind me and the smile does not leave my lips. So Asuka has started to unpack her things and put them into the wardrobes and drawers. I was wondering if such a thing was going to happen. She has been starting here with me for a few weeks now, only returning to her apartment to bring more items over if necessary. As those weeks have gone on more and more of her possessions have been put out here.  
+我关上身后的门，笑容依旧挂在唇边。看来明日香已经开始整理她的物品，放进衣柜和抽屉里了。我曾想过这样的情景是否会出现。她已经和我一起住在这里几周了，只是偶尔回公寓取些必需品。随着时间的推移，她的东西越来越多地出现在这里。
+
+What was once a spacious and barren flat, occupied by an alien and consisting of a single book case with a television, basic furniture and a piano has now been expanded. We've added a couple more bookcases, an array of games consoles and even a small fake plant. It not feels less like an alien lives here and more like it's inhabited by a person. I suppose that is true, when I arrived her many months ago I did not know how to be human, I was an alien and as time has gone on I have become more human.  
+曾经空旷而简陋的公寓，住着一个外星人，仅有一架书柜、一台电视、基本家具和一架钢琴，如今已大为改观。我们增添了几架书柜，各种游戏主机，甚至还有一盆小假植物。这里不再像住着外星人，而更像是一个人居住的地方。我想这是真的，几个月前我刚来时，还不懂如何做人，我是个外星人，但随着时间的流逝，我变得越来越像人类。
+
+My ongoing transformation is not something I have accomplished alone. I have others to thank for it, Fuyutsuki for giving me the opportunity, Kodama for starting me on the journey and of course the person who will be living with me and the one I love, Asuka. It is weird to think that she is living with me. It was not something we have ever discussed, it is just something that seems to have happened organically. I'm not sure why it happened in this way, I would have been more than happy to move to hers and it might have been easier, it's not like I had a lot of possessions. Yet she decided to move here.  
+我的持续转变并非我一人所能完成。我要感谢许多人，包括福津津吉给予我机会，儿玉引领我踏上旅程，当然还有将与我同住并深爱着的人——明日香。想到她与我同住，感觉颇为奇妙。我们从未讨论过此事，它似乎自然而然地发生了。我不确定为何会这样，我本愿意搬到她那里，或许那样更简单，毕竟我并没有太多财物。然而，她决定搬来这里。
+
+I don't mind either way though. To know that I will be waking up every day to see her fills my heart with such joy. To know that I will continue to share meals with her, continue to play games, listen to music and watch movies, plan trips out makes me so very happy.  
+不过，我对此并不介意。知道每天醒来都能见到她，我的心充满了喜悦。知道我们将继续共享餐食，玩游戏，听音乐，看电影，计划外出，让我感到无比幸福。
+
+I sit myself down and wait for Asuka to come back into the room. A few moments later she does and I get another smile from her. Unfortunately, the smile fades fairly quickly and she lets out a sigh. I feel myself frown as I stand up to hug her, "Asuka, are you alright? Is everything okay?"  
+我坐下来，等待明日香回到房间。片刻后她回来了，我又看到了她的微笑。遗憾的是，笑容很快消失，她叹了口气。我皱起眉头，站起来拥抱她，“明日香，你还好吗？一切都好吗？”
+
+She nods at me, "It will be but..."  
+她朝我点点头，“这将会是……”
+
+She moves away from me and makes her way towards the window and looks out of it for a moment. I wonder what could be wrong and a number of scenarios fly through my mind. I try to ignore them for the moment.  
+她从我身边走开，向窗户走去，向外望了一会儿。我不知道出了什么问题，脑海中闪过许多情景。我试图暂时忽略它们。
+
+"...There is something I need to speak to you about. I wasn't sure when the best time to say it would be but I guess I should get it out of the way. I was visited by Fuyutsuki easier today."  
+“……有件事我需要和你谈谈。我不确定什么时候说最合适，但我想还是早点说出来比较好。今天早些时候，我见到了冬月。”
+
+I let out a sigh of relief as she says that. It is fortunately none of the scenarios that went through my mind. I am still concerned though, why would Fuyutsuki have visited her today?  
+听到她这么说，我松了一口气。幸好不是我脑海中闪过的那些糟糕情景。不过我还是有些担心，为什么冬月今天会来看她呢？
+
+"Fuyutsuki was here?" I ask.  
+“冬月来过？”我问道。
+
+She nods again, "Yes, he was here about your application to visit Japan in December."  
+她再次点头，“是的，他是来谈你十二月申请去日本的事。”
+
+"Ah... I see." I feel myself smile dryly and I can already guess from the look on her face what has happened. I suppose this explains why he wasn't at work today and why he said I should take the afternoon off. I go ahead and ask her to confirm it, "My application has been denied hasn't it?"  
+"啊... 我明白了。" 我干笑了一下，从她的表情中已经猜到了发生了什么。我想这解释了为什么他今天没来上班，以及为什么他说我应该下午休息。我直接问她确认，"我的申请被拒绝了，对吧？"
+
+"I'm sorry..." Asuka lowers her head.  
+"我很抱歉..." 明日香低下头。
+
+"Don't be..." I reply and shake my head. I find that for some reason I am still smiling, I'm not quite sure why. I'm not especially happy by the decision, I'm disappointed, I'm even a little bit angry by their decision. Yet, I also expected it in some way. I have known from the start that they haven't trusted me so this decision doesn't surprise me.  
+"别这样..." 我回答并摇了摇头。不知为何，我发现自己仍在微笑，不太确定为什么。我对这个决定并不特别高兴，我感到失望，甚至对他们决定有点生气。然而，我也以某种方式预料到了。从一开始我就知道他们不信任我，所以这个决定并不让我感到意外。
+
+"I'm going to fight it though." Asuka says, her voice quiet yet containing a fierce confidence, "I already told Fuyutsuki. I'll do whatever I can."  
+"我还是要抗争到底。" 明日香说道，她的声音虽轻，却蕴含着坚定的自信，"我已经告诉了冬月。我会尽我所能。"
+
+"Thank you." I nod, "I appreciate that."  
+"谢谢你。" 我点头，"我很感激。"
+
+She looks up at me, "It isn't fair that you should have to be restricted because they refuse to see the truth."  
+她抬头看着我，"他们拒绝看清真相，你却因此受到限制，这不公平。"
+
+I nod, "I know, I understand their fear… Humans are… fearful creatures, I have become well acquainted with the emotion myself since I have returned. I know how it can twist your logic, make you see things that aren't there but… I have also seen that it is something that people can overcome. I know you will make them see the reality of what I am."  
+我点头，“我知道，我理解他们的恐惧……人类是……容易害怕的生物，自从我回来后，我自己也深切体会到了这种情感。我知道它如何扭曲你的逻辑，让你看到并不存在的东西，但是……我也看到了人们可以克服它。我知道你会让他们看清我真正的样子。”
+
+"Damn right I will." She replies and smiles across at me, "It won't just be me as well, Shinji will speak to them as well."  
+“当然会。”她回答，并朝我微笑，“不只是我，真嗣也会跟他们说的。”
+
+"Shinji?" I look at her in confusion, "He agreed to do that?"  
+“真嗣？”我困惑地看着她，“他同意这么做吗？”
+
+"Not quite…" Asuka looks away sheepishly, "I… Might have told Fuyutsuki he would, I figured if we had two pilots speaking for you then they couldn't ignore us right? I mean… I know I could do it myself without any problems but I don't want to take any risks."  
+“不太准确……” 明日香有些尴尬地别开视线，“我……可能告诉了冬月他会，我想如果我们有两个驾驶员为你说话，他们就不能忽视我们了，对吧？我是说……我知道我自己一个人也能搞定，但我不想冒任何风险。”
+
+"Ah… I see…" I lower my eyes, "So he…"  
+“啊……我明白了……” 我垂下眼帘，“所以他……”
+
+"Look…" She cuts me off, "Just… don't worry about it, I know we have a lot to sort out but… just don't worry about it. If I didn't think I could sort it out then I wouldn't have said it. Just leave it to me."  
+“听着……” 她打断了我，“只是……别担心了，我知道我们有很多事情要处理，但是……别担心。如果我不认为我能解决，我就不会说出来。交给我吧。”
+
+**2nd October 2021 – Shinji Ikari  
+2021 年 10 月 2 日 —— 碇真嗣**
+
+It is a fairly warm day and I'm currently sat on my own in a small café near to the space we're using to rehearse in. We've just finished another practice session and I'm relaxing here with a warm cup of tea and my cello and backpack sat at my feet.  
+今天天气相当暖和，我独自坐在离我们排练场地不远的一家小咖啡馆里。我们刚刚结束了一次练习，我在这里放松，手里捧着一杯热茶，大提琴和背包放在脚边。
+
+I look around and see it's fairly busy for this time of the day, I suppose people are wanting to enjoy the little glimpses of warmer weather before it moves fully into Autumn. It is a variety of people out from businessmen and women on a break from work, students or the general population just out and about. Some of them are with a friend, some in groups or just on their own, not a single one of them looks at me as they go about their business, not a single one glances at me or notices me. No one here knows who I am.  
+我环顾四周，发现这个时间段的咖啡馆相当热闹，我想人们是想在天气完全转凉之前享受这短暂的温暖时光。这里形形色色的人都有，有工作间隙休息的商务人士，有学生，也有普通市民外出闲逛。他们有的和朋友一起，有的成群结队，有的则独自一人，但没有任何一个人注意到我，他们各自忙碌，没有一个人瞥我一眼或注意到我。这里没有人认识我。
+
+I... I do not feel afraid of these people as I sit here and sip my tea. I feel calm and safe here just as I always should have done. These people don't know who I am, they have never known who I am but for several years I've lived with that fear that someone or all of them will know. I've lived myself thinking that one day the world will wake up and know who Shinji Ikari was and all know of what it was he had done.  
+我……我坐在这里品茶时，并不觉得这些人可怕。我感到平静和安全，就像我本该一直感受到的那样。这些人不知道我是谁，他们从未了解过我，但多年来我一直生活在恐惧中，担心某个人或所有人会知道。我曾以为有一天世界会醒来，知道碇真嗣是谁，以及他所做的一切。
+
+This is not the first time I have noticed the freeing of myself from that fear. It's been happening more and more recently. As I've been going to and from rehearsals, as I've been spending more time talking to others I find I'm no longer as afraid as I used to me. I'm finding I no longer have that reliance on needing a friend with me when I go out. I am... I'm fine.  
+这已经不是我第一次注意到自己从这种恐惧中解脱出来了。最近这种情况越来越频繁。当我往返于排练场地，当我花更多时间与他人交谈时，我发现我不再像以前那样害怕了。我发现我不再需要依赖朋友陪伴才能出门。我……我很好。
+
+Although, I do know that this feeling may only be temporary and I need to ready myself for that. I need to know how to fight it, I know that there will be moments where I feel that fear again. It might happen when I'm in a store and I suddenly see someone out of the corner of my eye, it might happen when I'm on a crowded street or waiting for a bus of the train. I might feel that anxiety come back to me but I am trying, and I am getting better at fighting it.  
+尽管我知道这种感觉可能只是暂时的，我需要为此做好准备。我得学会如何与之抗争，我知道会有那么一刻，恐惧感会再次袭来。也许是在商店里，我眼角余光突然瞥见某人；也许是在拥挤的街道上，或是在等公交或火车时。那种焦虑可能会再次找上我，但我正在努力，我正逐渐学会如何与之抗争。
+
+As I slowly start to combat one worry it is replaced by another. A more understandable one perhaps, the upcoming concert is making me nervous. Rehearsals so far are going well; all of the group get along fine and we are managing to progress with learning the songs and arrangements without much difficulty. There are times when one or a couple of us might make a mistake but we will get it under control.  
+当我慢慢克服一种担忧时，另一种担忧又取而代之。或许是更易理解的一种，即将到来的音乐会让我感到紧张。到目前为止，排练进展顺利；团队成员相处融洽，我们学习歌曲和编排的过程也没有遇到太多困难。有时，我们中的一两个可能会犯错，但我们能控制住局面。
+
+I know on my end there are a few tricky sections to watch out for in some of the songs but I am practicing a lot at home so should be able to get it right. I even have something of an audience, Rei will sit and listen to me play and compare it to the original and she is even recording my playing to send to Asuka. It's not exactly the live audience of a couple of a thousand or so we're expecting when we put on the show but it is something.  
+我知道在我这边，有些歌曲中有几处棘手的地方需要注意，但我正在家里大量练习，应该能够掌握。我甚至有了一个小观众，丽会坐下来听我演奏，并与原曲进行比较，她甚至还录制我的演奏视频发给明日香。虽然这并不是我们预计演出时面对的几千名观众，但总归是个开始。
+
+I am worried about performing in front of an audience though. I've never done something like that before. Back when I started playing my teacher did try to get me to play for the class but I never wanted to. It was probably the only thing I refused to do, I was quite content to just practice on my own.  
+不过，我对在观众面前表演感到担忧。我从未做过这样的事。当初我开始学琴时，老师确实试图让我在班上演奏，但我从未愿意。这可能是我唯一拒绝做的事情，我非常满足于独自练习。
+
+I guess I was worried about what would happen to me if I did though. I never really had friends when I went to that school, I was always seen as a bit of a weird kid because of my family history. People spoke about me behind my back in whispers. There were rumours about my father and what sort of person I was.  
+我想我当时担心如果我这么做会发生什么。在那所学校时，我从未真正有过朋友，因为我的家庭背景，我总是被视为有点古怪的孩子。人们在我背后窃窃私语。关于我父亲和我是什么样的人，有很多流言蜚语。
+
+I guess it's no surprise I have issues with being fearful of people now. Even without what had happened five years ago it would probably still have been a problem.  
+我想现在我对人感到恐惧并不奇怪。即使没有五年前发生的那件事，这问题可能依然存在。
+
+So, I was worried that me doing such a thing, playing a cello, not exactly a fashionable activity would lead to me being bullied, more so than I was. Things will be different in November though, I'm not performing in front of a class of school children. I'm on stage in a theater, with a group and performing to an audience who wants to be there, who paid to be there.  
+所以，我担心自己这样做，拉大提琴，并不是什么时尚活动，会让我比以前更受欺负。不过到了十一月，情况就不同了，我不是在教室里给一群小学生表演。我是在剧院的舞台上，和一群人一起，为那些愿意来、花钱来的人表演。
+
+Amongst those people will be people I know too, people who have given so much love and support over the last few years. My family, Misato and Rei. Although I might not be blood related to Misato she has been more of a parent to me than anyone else I've been put in the care of over the course of my life.  
+那些人中也会有我认识的人，过去几年里给予我很多爱和支持的人。我的家人，美里和绫。虽然我和美里没有血缘关系，但她比我在生活中遇到的任何其他照顾者都更像一个家长。
+
+Rei, my sister, who has struggled over the last five years to find out who she truly is but has always been there for me.  
+丽，我的姐姐，在过去五年里一直努力寻找真正的自我，但始终陪伴在我身边。
+
+My close friends, Touji, Kensuke and Hikari will be there. They were the first proper friends I had in my life. It was rough to start off with but they have all helped me so much and been there for me.  
+我的挚友们，东治、健介和光将会到场。他们是我生命中第一批真正的朋友。起初相处并不容易，但他们都给予了我极大的帮助，始终支持着我。
+
+Finally, two more people will be there, people I haven't seen for a long time. Both of which I didn't expect to ever see again. Asuka... The girl I fell in love with many years ago, we had a... complicated friendship when she was here. I couldn't understand her and I don't think she could understand me. We both hurt each other and when she left five years ago I never thought I'd see her again.  
+最后，还有两位久未谋面的人也将出席，这两位我本以为此生再无缘相见。明日香……多年前我深爱的女孩，她在这里时，我们的友情颇为复杂。我无法理解她，我想她也无法理解我。我们彼此伤害，五年前她离开时，我从未想过还能再见到她。
+
+Kaworu is the other person I never expected to see again. Kaworu died, people don't normally come back after death... well except for Asuka, Misato and Ritsuko but that was different, they were killed just on the cusp of Third Impact. Kaworu wasn't, he was killed days before so surely, he wouldn't have been caught up in it, right?  
+渚薰是我从未预料到会再次见到的人。渚薰已经死了，人们通常不会死后复生...嗯，除了明日香、美里和律子，但那是不同的，她们是在第三次冲击即将发生时被杀的。渚薰不是，他在那之前几天就被杀死了，所以按理说，他不应该被卷入其中，对吧？
+
+I guess it's too much for me to understand, maybe someone smarter like Ritsuko would make sense of it but does it matter about why? The fact is that he has returned and I will be seeing him again in December. I need to prepare for that, I just hope that things are... better between us by that time.  
+我想这对我来说太难理解了，也许像律子那样聪明的人能搞清楚，但为什么重要吗？事实是他已经回来了，我将在十二月再次见到他。我需要为此做好准备，我只希望到那时我们之间的关系...能有所改善。
+
+I do feel bad about upsetting him the other day. I... never wanted to upset anyone, I hate the idea that I could have been responsible for hurting someone. I hate being hurt myself so the idea of me doing that to someone else upsets me. Most of the time if I'm upset with someone or annoyed with something I'll just not say anything, I'll keep it bottled up.  
+我对前几天让他难过感到很抱歉。我...从不想让任何人难过，我讨厌自己可能是伤害别人的原因。我自己也讨厌被伤害，所以想到自己可能伤害了别人让我很难过。大多数时候，如果我对某人感到不满或对某事感到恼火，我只会保持沉默，把情绪憋在心里。
+
+I have argued and disagreed with people in the past. I've had arguments with Rei, Misato and when she was here Asuka but I hated it. I always felt awful afterwards and I was also the first to apologize even if I wasn't at fault.  
+我过去曾与人争论和意见不合。我和丽、美里还有阿斯卡争吵过，但我讨厌那样。事后我总是感到糟糕透顶，而且即使不是我的错，我也总是第一个道歉。
+
+This is how I feel about the situation with Kaworu. I feel awful for upsetting him and being angry at him even though I know I am justified in being upset and angry at him. Everyone understands why I'm that way, even Asuka understands that and she is his friend. When Kaworu spoke to me even he understood that.  
+我对与薰之间的情况就是这种感觉。我为他感到难过，也为对他发怒而感到内疚，尽管我知道自己有理由感到不安和愤怒。每个人都能理解我为什么这样，就连阿斯卡也明白，她是他的朋友。就连薰自己和我说话时也理解这一点。
+
+What he did to me all those years ago hurt me, in fact it went beyond hurting me. His actions, whether he meant it or not pushed me to a point lower than I had ever been before. I realize now that it was not just his betrayal and then revealing himself to be an Angel that hurt me, it was the fact that he made me kill him. Kaworu... knowing what it was like to pilot an Eva asked me to kill him, after already hurting me he made me do that.  
+多年前他对我的所作所为伤害了我，实际上，这伤害远超我的想象。无论他是有意还是无意，他的行为将我推到了前所未有的低谷。我现在意识到，不仅仅是他的背叛和他后来暴露出的天使身份伤害了我，更重要的是，他让我亲手杀了他。薰……知道驾驶 EVA 是什么感觉的他，在已经伤害了我之后，还让我去做那件事。
+
+I felt every part of it as well. I could feel his body within the grasp of Unit 01s hand as if it was within my own hand. I could feel it as his body was crushed leaving barely a trace of it to clean away from the hand of that damn Evangelion. I don't think that he, no I don't think that anyone could ever understand how that felt. No one should ever have to understand it.  
+我同样感受到了这一切。我仿佛能感觉到他的身体被初号机紧握在手中，就像握在我自己的手中一样。我能感受到他的身体被碾压，几乎不留痕迹，只能从那该死的 EVA 手中清理掉残余。我想，他，不，我想没有人能真正理解那种感觉。没有人应该去理解这种感受。
+
+I have thought about those moments so many times. I have had nightmares about it and since I was told of his return I've had more. A part of me always wanted to be forgiven for having to kill him and another part of me always felt that it should have been me rather than him. I even felt like I should have been punished for killing another human, despite him not actually being human.  
+我无数次回想起那些时刻。我为此做过噩梦，自从得知他归来后，噩梦更多了。我总希望自己能被原谅，因为我不得不杀了他；而另一部分的我则始终觉得，本应是我而不是他。我甚至觉得自己应该因为杀害了一个“人”而受到惩罚，尽管他实际上并非人类。
+
+Kaworu returning was something I never prepared myself for. It was not something I ever imagined unlike the idea of Asuka making contact again. To me the idea of Kaworu returning would have been similar to the idea of seeing my father again, it just wasn't something that was going to happen. So, I don't really know how to handle it.  
+渚薰的归来是我从未准备面对的。这与想象明日香再次联系的情况不同。对我来说，渚薰的归来就像再次见到我父亲一样，这根本是不可能发生的事。所以，我真的不知道该如何应对。
+
+I guess, now that I've had time to think about it I know that I want to hear him out properly. I want to try to forgive him if I can. I don't want to hate someone, I don't want to go my life being angry at someone and I know... there is more to his story than I know. I just... I wasn't ready to hear it when I call him. When I heard his voice, when I heard him try to explain I got scared, I just couldn't handle it. So, I did what I do best, I ran away.  
+我想，现在有时间思考了，我知道我想好好听他说。如果可以的话，我想尝试原谅他。我不想恨某个人，不想一生气就过日子，而且我知道……他的故事比我了解的要多。我只是……我打电话给他时还没准备好听这些。当我听到他的声音，当他试图解释时，我害怕了，我无法承受。所以，我做了我最擅长的事，我逃走了。
+
+I know that I should speak to Asuka about it all properly too. I've been avoiding doing that since it happened though. I'm worreid that Asuka is going to be mad at me, I'd understand it if she was. After all, I did upset her friend, if someone had upset someone like Rei then I'd be mad at them too. In fact, I was, I upset Rei the other week and spent a good amount of time being angry at myself.  
+我知道我也应该和明日香好好谈谈这一切。尽管自从事情发生后我一直在回避这样做。我担心明日香会生我的气，如果她生气了，我也能理解。毕竟，我确实让她的朋友不高兴了，如果有人让像丽这样的人不高兴，我也会生他们的气。事实上，我确实如此，前几天我让丽不高兴了，花了很多时间生自己的气。
+
+I pick up my phone and scroll to Asuka's contact page. I hesitate as my thumb hovers over the call button. In the back of my mind I can already hear that voice telling me this is pointless, that she is probably angry at me and doesn't want to hear from me.  
+我拿起手机，滚动到明日香的联系页面。我的拇指悬在通话按钮上犹豫不决。在我脑海深处，我已经能听到那个声音告诉我这是徒劳的，她可能生我的气，不想听到我的消息。
+
+I hate that voice so much. My thumb makes contact with the screen and I wait for her to answer. It rings a couple of times and then she answers, _"Hello, Shinji?"_  
+我讨厌那个声音讨厌得要命。我用拇指触碰屏幕，等待她接电话。铃声响了几下，然后她接了，“喂，真嗣？”
+
+"H-Hey Asuka, are you okay?"  
+“呃-嘿，明日香，你还好吗？”
+
+_"Yeah, pretty good. I was going to call you later on today actually!"  
+“嗯，挺好的。其实我正打算今天晚些时候给你打电话呢！”_
+
+She doesn't sound mad at me when she speaks, I allow myself a little sigh of relief.  
+她说话时听起来并不生我的气，我暗自松了一口气。
+
+"Oh!" I reply to her, "I just... I know Rei already spoke to you but I thought I should apologize for upsetting Kaworu the other day."  
+“哦！”我回答她，“我只是……我知道丽已经和你谈过了，但我觉得我应该为前几天让薰不开心而道歉。”
+
+_"Really?"_ I can hear the confusion in her voice. I guess she probably doesn't think I have anything to apologize for.  
+“真的吗？”我能听出她声音中的困惑。我想她可能觉得我没什么需要道歉的。
+
+I nod my head, "Y-Yeah... I... I shouldn't have contacted him immediately after you suggested it. I... I wasn't ready so... I'm sorry."  
+我点点头，“嗯...我...我不该在你提议后立刻联系他。我...我还没准备好，所以...对不起。”
+
+_"You're right... you shouldn't have done..."_ Asuka lets out a sigh, _"But I guess I can't blame you for being impulsive we all have our moments."_  
+“你说得对...你不该这么做...”明日香叹了口气，“不过我想我也不能怪你冲动，我们都有那样的时刻。”
+
+"I know but... I should have known better." I offer in reply before following up, "Also... I spoke to my teacher, I was able to get tickets put aside so if he wants to be here in December then... I'm happy to have him here."  
+“我知道，但是...我应该更明白的。”我回答道，接着补充说，“还有...我和老师谈过了，我设法留了票，所以如果他想十二月来的话...我很高兴他能来。”
+
+There is a bit of a lengthy pause and I start to wonder if maybe the call has been dropped, I hear a small amount of shuffling from the other side indicating she is still there though, "Asuka?"  
+电话那头沉默了一会儿，我开始怀疑是不是通话断了，但随即听到对方那边传来轻微的响动，表明她还在，“Asuka？”
+
+_"I see..."_ She finally speaks, _"That's good but... there has been a... problem."_  
+“我明白了……”她终于开口，“那挺好的，但是……出了点问题。”
+
+Her voice has gone quiet and little familiar worries come rushing back to me. Has something happened to her? Does she not want to come anymore? Did something happen between herself and Kaworu? She sounded happy a moment ago and then I mentioned Kaworu and all of a sudden that was lost. Did he hurt her in some way?  
+她的声音变得低沉，那些熟悉的担忧又涌上心头。她出什么事了吗？她不想来了吗？她和 Kaworu 之间发生了什么吗？她刚才听起来还很开心，我一提到 Kaworu，那种喜悦就突然消失了。他是不是以某种方式伤害了她？
+
+I don't get a chance to ask anything myself. Asuka speaks again, only this time there is anger in her voice, _"Kaworu has been told he can't go to Japan."_  
+我自己没机会问任何问题。明日香再次开口，只是这次她的声音中带着怒气，“渚薰被告知不能去日本。”
+
+I wait for a follow up to her words, for her to reveal maybe this was some weird joke that I just haven't understood. The anger in her voice tells me that this is no joke and no follow up actually comes. Instead I sit in silence trying to fully grasp the meaning of what she has said.  
+我等待她的话后续，期待她揭示这或许是个我还没理解的奇怪玩笑。但她声音中的愤怒告诉我这不是玩笑，也没有后续。我只能沉默地坐着，试图完全理解她所说的话的含义。
+
+"What do you mean?" I finally ask.  
+“你这是什么意思？”我终于问道。
+
+_"Exactly what I said!"_ She replies instantly, the anger in her voice replaced by annoyance, _"Kaworu has been told he can't go to Japan!"_  
+“正是我说的那样！”她立刻回应，声音中的愤怒被不悦所取代，“渚薰被告知不能去日本！”
+
+"I know that but... why?" I ask her. I still don't really understand, why would Kaworu be unable to come to Japan. Who would stop him from coming over? This doesn't make sense.  
+“我知道，但是...为什么？”我问她。我仍然不太明白，为什么渚薰不能来日本。谁会阻止他过来？这说不通。
+
+I hear Asuka let out a sigh, _"They, the UN Security Council have decided they don't trust him. Actually, they have never done, they don't believe he is fully human yet and think he is still up to something. So, they've said no. I was going to call you and tell you later."_  
+我听到明日香叹了口气，“他们，联合国安理会，决定不信任他。实际上，他们从未信任过他，他们不相信他是完全的人类，还认为他另有图谋。所以，他们拒绝了。我本来打算晚点打电话告诉你的。”
+
+"So... Does that mean Kaworu won't be coming?" I ask her.  
+"那么...这是不是意味着卡罗不会来了？" 我问她。
+
+She replies instantly, _"No, Kaworu WILL be coming!"_  
+她立刻回答，"不，卡罗会来的！"
+
+"but you just said..." "但你刚刚说..."
+
+She interrupts me, _"I know what I said, but what I said has happened and what is going to happen are different things. Kaworu will be coming to Japan in December. You said you wanted him there, right?"_  
+她打断我，“我知道我说的，但我说的已经发生和将要发生的，是两码事。卡沃鲁会在十二月来日本。你说过希望他在那儿，对吧？”
+
+"What do you mean?" I can already hear her annoyance as soon as the words leave my lips.  
+“你什么意思？”话一出口，我就能听出她的不悦。
+
+_"Do you want Kaworu to be there in December? Do you actually want to see him again? Do you feel comfortable with the idea of having him there? After the other day I need to know, otherwise there is no point..."  
+“你希望卡沃鲁十二月在那儿吗？你真的想再见到他吗？你对他出现在那儿感到自在吗？那天之后我需要知道，否则就没有意义了……”_
+
+I take a moment to think about it. I've already said to her I want him there, I've already put aside a ticket but I actually think about it properly. Do I genuinely want him there? Would I be better off not seeing him? I feel like I should discuss this with Rei or Misato first but it also seems like I don't have that luxury. I have to go with what I said before, yes, I do want him there.  
+我花了一点时间认真思考。我已经告诉她我希望他在那里，已经预留了一张票，但我现在真的在仔细考虑。我真心希望他在那里吗？不见他我会不会更好？我觉得应该先和丽或美里商量一下，但似乎我没有这个余裕。我必须坚持之前的说法，是的，我确实希望他在那里。
+
+_"Shinji?" "真嗣？"_
+
+Asuka's impatient prompting brings me back to reality, I feel myself nod again, "I... Yes, I would."  
+明日香不耐烦的催促让我回到了现实，我感到自己再次点头，“我……是的，我愿意。”
+
+"Yeah I..." I pause for a moment, even if I didn't want him here it wouldn't be right for me to say no. He has the right to come here, doesn't he?  
+“是啊，我……”我停顿了一下，即使我不想让他来，我也不应该说不同意。他有权利来这里，不是吗？
+
+"I know it didn't go well the other day but... I trust what you've told me. If you say he is worth listening to and you're his friend then... I can't say no. It'd be unfair."  
+"我知道那天情况不太好，但是……我相信你告诉我的。如果你说他值得倾听，而且你是他的朋友，那么……我不能拒绝。那会不公平。"
+
+_"Good, that makes the next part a little bit easier then."_ Asuka pauses and I get a strange feeling of dread, _"I told him and Fuyutsuki that me and you would get the security council to see sense and let him travel."_  
+"很好，那接下来的部分就容易一些了。" 明日香停顿了一下，我感到一种莫名的恐惧，"我告诉他和冬月，我和你会说服安全委员会，让他们同意他出行。"
+
+"Oh, okay then." I smile, that sounds reasonable and I start to lift my tea to my lips to take another sip. The rim of the cup reaches my lips and then I realize exactly what it is Asuka has just said. I slowly set the cup down with a horrified look on my face, "Wait... WHAT?"  
+"哦，好吧。" 我微笑着，听起来很合理，我正要举起茶杯再喝一口。杯子边缘触到我的嘴唇，然后我突然意识到明日香刚才说了什么。我缓缓放下杯子，脸上露出惊恐的表情，"等等……什么？"
+
+_"I said the Security Council would be made to see sense!"  
+"我说过安理会会明白道理的！"_
+
+"No, before that!" "不，在那之前！"
+
+_"I was just making sure you wanted him over here."_ She expertly avoids the part I mean.  
+""我只是确认一下你是不是真的想让他过来。"" 她巧妙地避开了我指的那部分。
+
+"Not that part, between you asking me and saying that they'd see sense, you said... me and... you?"  
+"不是那部分，在你问我之后和说他们会明白之前，你说了...我和...你？"
+
+"Oh... Yeah I... Told Kaworu and Fuyutsuki that me and you would get them to see sense..."  
+"哦...是的，我...告诉了渚薰和冬月，我和你会让他们明白的..."
+
+She actually sounds sheepish when she says it, I on the other hand feel fear, "Me... and you?"  
+她说起这话时真的显得有些不好意思，而我则感到恐惧，"我...和你？"
+
+_"Yes! I mean... I could of course do it all by myself, I am more than capable."_ She boasts to me, _"But... I figured I didn't want there to be any risks, they might still refuse to hear me out. You know what old men can be like. I figured having two pilots there would be better than one and ensure they can't refuse."_  
+"是的！我是说...我当然可以自己搞定一切，我完全有能力。" 她向我夸口道，"但是...我觉得不想有任何风险，他们可能仍然会拒绝听我解释。你知道那些老头子是什么样的。我想有两个飞行员在场会比一个更好，确保他们无法拒绝。"
+
+"I-I see..." Her words make sense but do little to make me feel any less scared.  
+"我...我明白了..." 她的话虽然有道理，但并没有让我感到不那么害怕。
+
+_"It's not even like you'd have to do much, just follow my lead and it'll be fine. You know, just like you did when we beat the Ninth Angel, just there will be less acid I suppose."  
+"你甚至不需要做太多，只要跟着我的引导就行了，一切都会顺利的。你知道的，就像我们打败第九使徒时那样，只是这次应该不会有那么多酸液了。"_
+
+I have nothing to offer in reply to that, I can feel my heart pounding rapidly in my chest with each word. What she is saying does make sense but... I can't do something like that. Even if I did follow her lead I'd probably still mess it up. This isn't like piloting an Eva, this is... so different. I mean, I messed up speaking to Kaworu so how can I possibly do this?  
+对此我无言以对，每听她说一个字，我的心就狂跳不已。她的话确实有道理，但是...我做不到那样的事。即便我跟随她的引导，恐怕还是会搞砸。这不像驾驶 EVA，这是...如此不同。我的意思是，我跟渚薰说话都搞砸了，我怎么可能做到这个？
+
+"I... I don't know if I can Asuka..." I admit to her and lower my head in shame. I'm being truthful though, I really don't know if I could do something like this.  
+“我...我不知道我能不能做到，明日香...”我向她坦白，羞愧地低下头。虽然我说的是实话，我真的不确定自己能否做到这样的事。
+
+I expect her to reply immediately and angrily, I expect to hear her shout at me and tell me to be a man. I'm being unfair on her but I can hear her old voice from years ago, asking me if I'm stupid or what kind of man I am. She doesn't do any of that though, I hear that shuffling sound on the phone again and I speak again, "I'm sorry Asuka but..."  
+我以为她会立刻愤怒地回应，以为会听到她对我大喊大叫，让我像个男人一样。我对她不公平，但我能听到她多年前那熟悉的声音，问我是不是傻了，或者我算什么男人。然而她没有那样做，我又听到了电话那头窸窸窣窣的声音，于是我再次开口：“对不起，明日香，但是...”
+
+I'm cut off, "Please... Shinji I... I can't do this alone."  
+我被切断了，“请……真嗣，我……我一个人做不到。”
+
+Her reply surprises me and she continues, _"I... I'm frightened I'll mess it up. I... Me and you... When we worked together, when we fought together there was nothing that could stop us. It'll... It'll be the same this time... I... I need you."_  
+她的回答让我惊讶，她继续说，“我……我害怕会搞砸。我……我和你……当我们一起工作，一起战斗时，没有什么能阻挡我们。这次……这次也会是一样的……我……我需要你。”
+
+My mouth goes dry and the rapid beating of my heart continues, "But... I wouldn't know what to do or say. I don't really know who Kaworu is, how could I help?"  
+我的嘴巴发干，心跳依旧急促，“但是……我不知道该做什么或说什么。我并不真正了解渚薰是谁，我怎么能帮忙呢？”
+
+_"How should I know? You think I have any idea of what to do or say either?"_ She asks me, _"I don't know Shinji, I don't know what to do but I'm not going to let them do this. We just have to show he can be trusted right? We need them to see he is human and that we want him to be there. Think about who we are, we were hurt the most by what happened, so if we can say he can be trusted then... they'll have to take notice, won't they?"_  
+"我怎么知道？你以为我有任何主意该怎么做或说什么吗？" 她问我，"我不知道，真嗣，我不知道该怎么做，但我不会让他们这样做的。我们只需要证明他值得信任，对吧？我们需要让他们看到他是人类，而且我们希望他在那里。想想我们是谁，我们是最受伤害的人，所以如果我们能说他是可信的，那么...他们就不得不注意了，不是吗？"
+
+"I... I guess... Do you really think I can help?"  
+"我...我想...你真的认为我能帮忙吗？"
+
+_"I know you can."_ She answers me, _"Shinji you... You know who I am, you know how much I hate asking for help but... I need your help, please... I can't do this alone."_  
+"我知道你能。" 她回答我，"真嗣，你...你知道我是谁，你知道我有多讨厌求助，但是...我需要你的帮助，请...我不能独自完成这件事。"
+
+A part of me is still pulling to say no, to turn it down. I'm scared that I'll mess this up somehow but if she needs my help then how can I really say no?  
+我的一部分仍在抗拒，想要拒绝，想要推辞。我害怕自己会搞砸这一切，但如果她需要我的帮助，我又怎能真正说出口拒绝呢？
+
+"Okay I... I'll do what I can."  
+“好吧，我……我会尽力而为。”
+
+_"Thank you." "谢谢你。"_
+
+**Rei Ayanami 绫波零**
+
+I feel a deep sense of unease as I step through the security checkpoint and look towards a waiting Misato. I do not yet know why she has asked me to come to this place. All she has told me is that there are some things here for me to see. There has been no indication of what these things might be as of yet.  
+当我穿过安检口，望向等待着的美里时，心中涌起一股深深的忧虑。我还不清楚她为何要我来到这个地方。她只告诉我这里有几样东西要给我看。至于这些究竟是什么，至今仍未有任何提示。
+
+I have tried to figure out just what it might be that is here but on the journey to this place I was unable to do so. I cannot imagine where might be left here for me in this city that I once called my home, in this city that was once my prison.  
+我曾试图弄清楚这里究竟有什么，但在前往此地的旅途中，我未能找到答案。我无法想象在这座我曾称之为家的城市里，在这座曾是我的牢笼的城市里，还有什么地方留给我。
+
+By all rights there should not be anything left of myself here. My apartment and meagre belongings were destroyed. The laboratories within NERV that I was created and raised in were also surely destroyed too. As far as I can see there is nothing left for me here, so why am I here? What could they possibly have found that has any relevance to me?  
+按理说，这里应该没有任何属于我的东西了。我的公寓和微薄的财物已被摧毁。我在 NERV 中诞生并成长的研究室也肯定被毁了。就我所见，这里已无我容身之地，那我为何还在这儿？他们究竟发现了什么与我相关的东西？
+
+As I walk towards Misato I look around my environment. We currently sit on the outskirts of what was once Tokyo-3. The land here is tinged with a burnt red and the scenes before me show nothing but abandoned and half destroyed buildings. Most curious of all is that nature does not seem to have dared to reclaim any of this land, perhaps it is allowing the city to remain as a permanent scar upon the Earth, serving as a reminder to humanity of the mistakes it once made.  
+当我走向美里时，我环顾四周的环境。我们目前位于曾是第三新东京市的郊外。这片土地泛着焦红，眼前尽是废弃和半毁的建筑。最奇怪的是，自然似乎不敢收回这片土地，也许它让这座城市作为地球上永久的伤疤，提醒人类曾经犯下的错误。
+
+Truthfully, I am surprised that anything is left at all of this place. That which the JSSDF did not destroy when they attacked us must surely have been destroyed when I completed the forbidden union of Lilith and Adam within myself. Third Impact saw the Black Moon rise up, there should not be anything here. Still I would not dare to try and understand the strange sciences and logic at play on that day. Perhaps I should not focus on how or why this is, and just accept that it Is the way it is.  
+说实话，我对这个地方居然还剩下些什么感到惊讶。日本自卫队攻击我们时未摧毁的东西，肯定在我体内完成了莉莉丝与亚当的禁忌结合后被摧毁了。第三次冲击让黑月升起，这里本不该留下任何东西。但我还是不敢尝试去理解那天发生的奇异科学和逻辑。也许我不该纠结于这是如何或为何发生的，而只是接受它就是这样。
+
+With each step I get a strange feeling within myself, as if there is something or someone watching over me. It is a familiar feeling but one I have not felt in many years. I try to ignore it, it is surely just my mind playing tricks on me as a result of my presence in this place.  
+每走一步，我内心都有种奇怪的感觉，仿佛有什么东西或某个人在注视着我。这是一种熟悉的感觉，但我已经很多年没有感受到了。我试图忽视它，这肯定是由于我身处此地，我的大脑在捉弄我。
+
+Misato nods at me and we move towards a large 4x4 and get inside. The driver greets Misato and she tells him that we are ready to get moving. I put my seatbelt on just as the vehicle starts to pull away, ahead of us is another 4x4 and a there is a third one behind us. I look from the window to Misato, "Why am I here?"  
+美里向我点头示意，我们走向一辆大型四驱车并坐了进去。司机向美里打招呼，她告诉他我们准备出发了。我刚系好安全带，车子就开始驶离，前方还有一辆四驱车，后面也有一辆。我从车窗望向美里，“我为什么在这里？”
+
+As I ask her I see us pass a still standing building housing a familiar sight. It is a small café, I came here once with Shinji and Asuka. I had green tea and tried Black Forest gateaux for the first time. I believe I also had pocky for the first time on that day. That was day was a warm day but overcast with grey clouds, my memories of it are nice and it brings me sadness to see the state of the café now.  
+当我问她时，我看到我们经过一栋依然矗立的建筑，里面有着熟悉的景象。那是一家小咖啡馆，我曾和真嗣与明日香来过这里。我喝了绿茶，第一次尝试了黑森林蛋糕。我想那天也是我第一次吃百奇饼干。那是个温暖但多云的日子，灰色的云层密布，我对那天的记忆很美好，但看到咖啡馆现在的状况，我不禁感到悲伤。
+
+Misato speaks as our journey continues, "We found something when we were exploring NERV, a few things actually."  
+随着我们的旅程继续，美里说道：“我们在探索 NERV 时发现了一些东西，实际上是几样东西。”
+
+"And these things concern me?" I ask.  
+“这些东西让我担心吗？”我问道。
+
+She nods, "Most of it, yes. The other thing... It'd be best to see if for yourself, I... I don't know if you will understand it but at the moment you're one of the only ones who could. I can't really say more until we arrive there unfortunately."  
+她点点头，“大部分是的。另一件事……最好你自己亲眼看看，我……我不知道你是否能理解，但目前你是少数可能理解的人之一。很遗憾，在我们到达那里之前，我无法多说。”
+
+Her words pique my curiosity and I begin to wonder what could be down there. Nothing is coming to mind, as it was I had very few possessions. I am even more curious to learn about what this other thing is. It is somewhat frustrating that Misato cannot tell me now, but I understand the many layers of security in place.  
+她的话激起了我的好奇心，我开始猜测下面可能有什么。脑海中一片空白，毕竟我拥有的东西本就不多。我对这个“另一件事”更加好奇了。Misato 现在不能告诉我，虽然有些沮丧，但我理解这层层安保的必要性。
+
+I wonder what could be left of the NERV building, if these things concern me then I assume they were found in my old rooms amidst the lower levels. This means the laboratories that I was born in and visited frequently for checkups and testing, it means the Dummy Plug facility that was also home to the spare bodies of mine, it means the room that acted as a perfect mirror of my own apartment.  
+"我想知道 NERV 大楼还剩下什么，如果这些事让我担忧，那它们应该是在我以前的房间里，位于较低的楼层。这意味着我出生的实验室，经常去进行检查和测试的地方，意味着也是我备用身体存放地的 Dummy Plug 设施，意味着那个与我公寓完全相同的房间。”
+
+I am fearful of seeing any of those things again, unlike the memories of the café the ones I have of those places are not pleasant. The memories of needles and sickness, of lies and secrets, the memories of the tests and being made to stand naked in large tanks whilst I was poked and prodded. Worst of all are the memories of him, the father who abandoned his son, and the father who created a daughter from the ashes of his wife only to use it as a tool for his own gain. I do not wish to be here.  
+我害怕再次见到那些东西，与咖啡馆的记忆不同，我对那些地方的记忆并不愉快。关于针头和疾病的记忆，关于谎言和秘密的记忆，关于测试和被迫赤身裸体站在大水箱中被戳戳弄弄的记忆。最糟糕的是关于他的记忆，那个抛弃儿子的父亲，以及那个从妻子灰烬中创造出女儿只为利用她谋取私利的父亲。我不想待在这里。
+
+I suddenly feel a warm hand on top of mine, it squeezes it gently and I turn to see Misato smiling at me, "I'm sorry to bring you back to this place Rei, I know it is probably the last place you would want to be right now."  
+我突然感到一只温暖的手放在我的手上，它轻轻地握住我的手，我转头看到美里微笑着对我说：“很抱歉带你回到这个地方，丽，我知道这可能是你现在最不想待的地方。”
+
+"That is true." I admit to her, "But... I know what you are doing is important and if I can aid in that I will do so. I would not want to put a barrier in your way."  
+“确实如此。”我向她承认，“但是……我知道你所做的工作很重要，如果我能为此出一份力，我会去做的。我不想成为你的阻碍。”
+
+Our journey continues in silence for a couple more minutes and Misato speaks to me again, "How does it feel for you, to be back here?"  
+我们的旅程在沉默中又持续了几分钟，Misato 再次对我说话，“回到这里，你感觉如何？”
+
+"It makes me feel uneasy." I answer as I once again feel that strange sensation of someone watching me, "I did not expect there to be anything left of the city or NERV itself. Nor did I think I would ever return here, it makes me feel... uneasy."  
+“这让我感到不安。”我回答道，再次感受到那种被人注视的奇怪感觉，“我没想到城市或 NERV 还会有任何残留。我也没想过我会再回到这里，这让我感到...不安。”
+
+She nods, "I know what you mean, we saw this whole thing be destroyed, it isn't... natural for it to be like this."  
+她点点头，“我明白你的意思，我们亲眼目睹了这一切被摧毁，现在这样...不自然。”
+
+There is a pause before she speaks again, "To tell you the truth, I didn't ever want to come back here either. When we first started looking into this I had hoped there would be nothing left but a hole in the ground. I didn't want to come back."  
+她停顿了一下，然后再次开口，“说实话，我其实也不想再回到这里。当我们最初开始调查这件事时，我曾希望这里只剩下一个空洞。我不想回来。”
+
+Her words confuse me, as far as I was aware she had to go to a lot of effort to get the opportunity to come back here. Surely, she must have wanted to do so, "Then why did you come back?"  
+她的话让我困惑，据我所知，她为了能回到这里付出了很多努力。显然，她一定是有回来的意愿，“那你为什么还要回来？”
+
+She shrugs, "It's something I've been asking myself for a while. I could have left it alone and not gotten involved but... I couldn't."  
+她耸了耸肩，“这个问题我已经问过自己很久了。我本可以置之不理，不参与其中，但……我做不到。”
+
+"Why not?" “为什么不呢？”
+
+"Fear, I was scared that if they found something here then they wouldn't do the right thing with it, that it could lead to something bad happening. At least with me here I can try to make sure that doesn't happen... I can protect people."  
+“恐惧，我害怕如果他们在这里发现了什么，就不会正确处理它，可能会导致不好的事情发生。至少我在这里，我可以尽力确保这种情况不会发生...我可以保护人们。”
+
+"I see." “我明白了。”
+
+She lets out a sigh, "I guess... A part of me also got caught up believing that there might have been something here that could help the world."  
+她叹了口气，“我想...我的一部分也陷入了相信这里可能有什么能帮助世界的东西。”
+
+"It is understandable, do you no longer believe that?"  
+"这是可以理解的，你不再相信了吗？"
+
+She shakes her head, "No, I don't. I'm starting to agree with Ritsuko, I think anything we do find should be destroyed. Humanity can go on without the things that NERV created."  
+她摇了摇头，"不，我不信了。我开始同意律子的观点，我认为我们找到的任何东西都应该被销毁。人类可以在没有 NERV 创造的这些东西的情况下继续生存。"
+
+I contemplate her words as the car continues its journey through the city. I have noticed that we are now travelling downwards into the main Geofront itself, we move through a series of tunnels and I can see the vast underground space before me. There is a wide hole above where the centre of the city once stood, allowing sunlight to pour into the chamber.  
+我沉思着她的话，车子继续在城市中穿行。我注意到我们现在正向下进入主 Geofront，穿过一系列隧道，我能看到眼前广阔的地下空间。曾经是城市中心的上方有一个巨大的洞口，让阳光倾泻进这个地下大厅。
+
+From this point I can see the lake, now much wider than it used to be after the large number of battles that took place in and around it. Other relics of battle litter the landscape, fallen farmhouses and torn up fields. At the edge of the lake is the gigantic form of the NERV pyramid. My stomach twists into a knot as I lay my eyes on it for the first time in years.  
+从这里，我可以望见湖面，如今它比以往宽阔许多，那是在湖区及其周边发生的大量战斗之后。战火的遗迹遍布四周，倒塌的农舍和毁坏的田野。湖畔矗立着 NERV 那巨大的金字塔形建筑。当我多年后首次将目光投向它时，我的胃不禁紧缩成一团。
+
+"It is… intact, such a thing is impossible."  
+“它……完好无损，这简直不可能。”
+
+I turn to Misato to see her nod, "I know… We all thought the same thing."  
+我转向美里，只见她点头道，“我知道……我们都曾这么想。”
+
+As we creep closer the various things I was feeling intensify, the unease, the fear and the feeling of something watching. I wish I could leave but I cannot, I have to see this through now. Thankfully we soon arrive at the security checkpoint, we are moved through it.  
+随着我们逐渐靠近，我感受到的各种情绪愈发强烈，不安、恐惧以及被注视的感觉。我真希望能离开，但现在我必须坚持下去。幸运的是，我们很快到达了安检口，顺利通过了检查。
+
+Much like the parts of the city that remain intact I do not understand how this building is here. I saw the roof of it get torn off during Third Impact. The insides of it were blown apart and damaged by whatever the JSSDF did to it. How can it be that it is still standing as if nothing had been done at all? Was this perhaps Shinji's doing when he decided to allow us to return? Was it my doing when I became that being?  
+就像城市中那些完好无损的部分一样，我不明白这座建筑是如何存在的。我亲眼看到它在第三次冲击中屋顶被掀飞。内部也被自卫队所做的一切炸毁和破坏。它怎么可能依然屹立不倒，仿佛什么都没发生过？这难道是真嗣允许我们返回时的作为？还是我变成那个存在时的结果？
+
+We step inside the building, armed guards flanking us further adding to my feelings of unease. Misato recognizing this places a calming hand on my back and motions for the guards to adjust their distance to us. As we start to move through the corridors I feel some slight relief to see the interiors are still in some disrepair.  
+我们走进建筑内部，武装警卫紧随左右，更加剧了我的不安感。美里察觉到了这一点，轻轻把手放在我的背上，示意警卫调整与我们之间的距离。当我们开始穿过走廊时，看到内部仍有些许破损，我感到一丝宽慰。
+
+Finally we come to one of the elevators, we step inside and I watch as Misato selects one of the lower floors. It was as I suspected, we are going down to those rooms.  
+终于，我们来到了一部电梯前，踏入其中，我看着美里选择了其中一个较低的楼层。正如我所料，我们要去那些房间。
+
+"You know where we are going don't you?" She asks me, a look of concern on her face.  
+“你知道我们要去哪儿，对吧？”她问我，脸上带着关切的神情。
+
+I nod my head, "Yes."  
+我点点头，“是的。”
+
+"Are you scared?" “你害怕吗？”
+
+"Yes." I answer. “是的。”我回答道。
+
+Misato moves close and puts an arm around me pulling me into a hug, "I understand."  
+美里靠近了些，伸出一只手臂搂住我，将我拉进一个拥抱，“我理解。”
+
+A few moments later the elevator comes to a stop and the door slides open slowly. I take a deep breath as I follow Misato and the guards out into the corridor. The feelings I have had since I arrived in the city are more intense now, as I take those tentative steps forward I hear a voice in my head, almost mocking me.  
+片刻后，电梯停了下来，门缓缓滑开。我深吸一口气，跟着美里和警卫们走出电梯，进入走廊。自从来到这座城市后，我心中的感觉愈发强烈，当我小心翼翼地迈出脚步时，脑海中响起了一个近乎嘲弄的声音。
+
+_'Welcome home' '欢迎回家'_
+
+I try to focus on what might be waiting for me in this building. We seem to be going towards my former quarters but I do not know what could be there that would concern me. In addition I do not know what this thing is that Misato and the others cannot figure out. Any knowledge I had concerning NERV has already been shared with Misato and others, I do not know what possible help I could be.  
+我试图集中精神，思考这座建筑里可能有什么在等着我。我们似乎正走向我以前的住处，但我不知道那里会有什么让我担心的事。此外，我也不清楚美里和其他人无法解开的这个谜团是什么。我对 NERV 的所有了解已经与美里等人分享过了，我不知道自己还能提供什么帮助。
+
+We finally reach the door to what was the room made to mirror my home. Misato says something to the man guarding it and shows him her security pass. I show him mine and he lets the two of us into the room. I cross the threshold into the room itself, feeling sick as I do so. I take a quick look around, this place is exactly as I remember it. Every single detail from the look, the temperature and even the smell is as I remember.  
+我们终于到达了那扇门前，这里曾是为了模仿我的家而特别布置的房间。美里对守卫说了些什么，并展示了自己的安全通行证。我也出示了我的通行证，他便让我们两人进入了房间。我跨过门槛进入房间，感到一阵恶心。我迅速环顾四周，这个地方和我记忆中一模一样。从外观、温度到气味，每一个细节都如我所记得的那样。
+
+I take a moment to silently wander around. In the back corner I can see the bed, the set of drawers with tablets and a jug of water placed on top, the dirty clothing and screen surrounding it. I feel embarrassed to think that I once lived like that. To think that I allowed myself to live in such conditions and not care. I did what was functional, I showered because I was instructed to, I cleaned clothes because I was instructed to, and I wore clothes because I was instructed to. Those things, they never mattered to me, I was not human. I was something that had been programmed.  
+我稍作停留，静静地四处游走。在角落里，我看到了那张床，上面放着一堆药片和一壶水，还有脏衣服和屏风环绕。想到自己曾经那样生活，我感到羞愧。我竟然允许自己生活在那样的环境中，毫不在意。我做的一切都只是为了实用，洗澡是因为被指示要洗，洗衣服是因为被指示要洗，穿衣服也是因为被指示要穿。那些事情，对我来说从未重要过，我不是一个真正的人。我只是一个被编程的工具。
+
+In other parts of the room are worktops and carts with powered down computers and other medical equipment. I ignore them and wander over to the bed. To my surprise I see a number of things laid out on top of the bed, things I recognize but had forgotten about.  
+房间的其他地方摆放着工作台和装有已关闭电脑及其他医疗设备的推车。我无视它们，走向那张床。令我惊讶的是，床上摆放着一些我认得但已遗忘的物品。
+
+"Is this what you wanted me to see?" I turn to look at Misato as I ask her the question.  
+“这就是你想让我看到的吗？”我转头看向美里，向她提出这个问题。
+
+Misato nods, "Part of it, the other thing is out of this room but… I wanted you to see this first."  
+美里点点头，“一部分是，另一部分不在这个房间，但是……我想让你先看看这个。”
+
+My hands are trembling as I look and pick up the first items on the bed. A small stack of A4 drawings that I had done over the years. To the right of them is a pink stuffed bear. I feel tears well up in my eyes as I look at the first drawing in the pile.  
+我看着床上的东西，双手颤抖着拿起第一件物品。一小叠 A4 大小的画作，是我这些年来的作品。它们右边是一个粉红色的毛绒熊。看着这堆画中的第一张，我感到泪水涌上了眼眶。
+
+"You did these, right?" Misato asks me as I slowly look through the drawings. I recognize each and every one of them and I feel a smile come to my face as a tear slowly rolls down my cheek. The ones on top are from when I was very young, when I was in my first body. They are very typical drawings that would be done by a human child. Stick figures of me and the commander in a house, a sun drawn in the top with a smiley face. Some of them curiously have a third person, a brother that I had dreamed of and one that I didn't know I had back then.  
+“这些都是你画的，对吧？”美里问我，我慢慢地翻看着这些画。我认出了每一张，脸上不由得露出了微笑，泪水缓缓滑过脸颊。最上面的是我小时候，还在第一个身体时的画作。它们非常典型，就像一个人类孩子会画的。我和指挥官的火柴人站在房子里，太阳画在顶部，带着笑脸。其中一些画里还有一个好奇的第三者，一个我曾梦想过的哥哥，那时我还不知道自己真的有一个。
+
+I continue to go through them, and now see the drawings I made when I was in my second body. These are portraits, much more realistic than the childlike drawings of before. The first few are of myself and people I knew in the area. I remember they would sit for me to make these, there is one of Commander Ikari, one of Ritsuko and another of Fuyutsuki. Other pictures are ones I did from memory, they show Misato, Asuka and Shinji. I set the papers down and see Misato looking at me as I wipe away another tear.  
+我继续翻阅着，现在看到了我在第二具身体时画的画。这些是肖像画，比之前的孩童画作要写实得多。前几幅是我自己和当地认识的人。我记得他们会坐着让我画这些，有一幅是碇司令的，一幅是律子和另一幅是冬月的。其他的画是我凭记忆画的，展示了美里、明日香和真嗣。我把纸放下，看到美里正看着我，我擦去另一滴泪水。
+
+"You were very good, I had no idea you were so talented."  
+“你画得很好，我完全不知道你这么有才华。”
+
+I feel myself blush at her comment, "I never told you or anyone… I… keep it to myself mostly but I do still draw. I… I like to teach the kids art when I work at the school."  
+听到她的评论，我感到自己脸红了，“我从没告诉过你或任何人……我……大部分时间都自己保留，但我确实还在画画。我……我喜欢在学校工作时教孩子们艺术。”
+
+"I see." “我明白了。”
+
+"Thank you… for showing me this." I say as I now look towards the stuffed bear. I pick it up and squish it slightly in my hands. This was given to me as a 'present' by the commander. It served me well in my first body but I had no use for it in my second and I suppose I have little use for it now. This bear is a relic and not one I want. I have no place for this anyway, I have stuffed toys, gifts given to me by friends and loved ones.  
+"谢谢你……带我来看这个。" 我边说边转向那只毛绒熊。我把它拿起来，在手中轻轻挤压。这是指挥官送给我的'礼物'。它在我第一个身体时很有用，但在第二个身体里我已不需要它，现在想来也没什么用处。这只熊是个遗物，不是我想要的。无论如何，我没有地方放它，我有填充玩具，是朋友和爱人送给我的礼物。
+
+Still… this toy is in good condition and it would be a shame to see such a thing left. Despite it no longer having purpose for me it could still have a purpose for someone else. This could make another child happy.  
+尽管如此……这个玩具保存得很好，让它被遗弃真是可惜。虽然它对我已无用处，但对其他人可能仍有用途。这或许能让另一个孩子开心。
+
+"I will keep all of this."  
+"我会保留这一切。"
+
+Misato nods again, "Very well. I will see to it that it is all packaged up for us when we return. If you are ready, I will take you to the other thing now."  
+美里再次点头，“很好。我们回来时我会确保一切都为我们打包好。如果你准备好了，我现在就带你去看另一个东西。”
+
+I place the toy back down on the bed and follow her back out of the room. I feel her arm around me again as we walk and I try to not let my mind wander as to what might be waiting for me. The feelings I felt before have only gotten more intense, not helped by the wave of emotion I felt at seeing my childhood drawings and stuffed bear.  
+我把玩具放回床上，跟着她走出房间。她再次搂住我的手臂，我努力不让思绪飘散，不去想可能等待着我的事情。之前感受到的情感变得更加强烈，看到我童年的画作和填充熊时涌起的情绪更是加剧了这种感觉。
+
+We continue towards another elevator which I know leads further down into Terminal Dogma. We will be travelling past the Dummy Plug facility, where my spares were kept and then destroyed. We will pass through the graveyard containing bodies of failed Evangelions. The knot in my stomach tightens.  
+我们继续向另一部电梯走去，我知道它通向更深处的终端教条区。我们将经过模拟插入栓设施，那里存放并销毁了我的备用身体。我们还将穿过一个墓地，里面埋葬着失败的 EVA 机体。我胃里的结越发紧绷。
+
+"When we came back to this place, the first thing people were really interested in seeing was Terminal Dogma." Misato explains as we step into the elevator, "I suppose it makes sense. That was where NERVs darkest secrets were kept. We couldn't get down there immediately but we can now."  
+"当我们回到这个地方，人们最感兴趣的首先是 Terminal Dogma。" 我们走进电梯时，美里解释道，"我想这很合理。那里藏着 NERV 最黑暗的秘密。我们当时无法立即下去，但现在可以了。"
+
+"What were you hoping to find down there?"  
+"你希望在那里找到什么？"
+
+"Me personally? Nothing, I was hoping we would find nothing down there." She answers, "Unfortunately we did find something but… we don't know what it is. Ritsuko won't have anything to do with this place now and the rest of us don't know. We haven't got the MAGI online so we can't identify it."  
+"我个人吗？什么也不希望找到，我希望那里什么也没有。" 她回答，"不幸的是，我们的确找到了一些东西，但……我们不知道那是什么。律子现在不愿与这个地方有任何瓜葛，而我们其他人也不清楚。MAGI 系统还没上线，所以我们无法识别它。"
+
+"Why do you think I can help?"  
+“你为什么认为我能帮忙？”
+
+She shakes her head, "Aside from Ritsuko and Fuyutsuki you know more about this place than any of us. You know more about… what this might be than any of us. As I said Ritsuko won't entertain the idea of anything and Fuyutsuki is in Germany, we can't risk transmitting anything to him, if it's intercepted by the media then they can stir something up."  
+她摇摇头，“除了律子和冬月，你对这里的了解比我们任何人都多。你比我们任何人都更了解……这可能是什么。正如我所说，律子不会考虑任何可能性，而冬月在德国，我们不能冒险向他传输任何信息，如果被媒体截获，他们可能会煽风点火。”
+
+"I understand." I nod, "Although I am not sure I will be able to help you. I will… do what I can."  
+“我明白了。”我点头，“虽然我不确定能否帮上忙。我会……尽力而为。”
+
+As we get lower the feeling of a presence intensifies. It is not what I used to feel from Lilith but something else entirely. I do not understand how I can be feeling such things though, I am human now. Strangely the presence has a warmth to it, it seems to not want me to be afraid. I wonder though if it is just my imagination.  
+随着我们逐渐下降，一种存在感愈发强烈。这并非我过去从莉莉丝那里感受到的，而是完全不同的东西。尽管如此，我不明白为何现在身为人类的我能感受到这些。奇怪的是，这种存在感带着温暖，似乎并不想让我感到害怕。不过，我怀疑这或许只是我的想象。
+
+This elevator comes to a stop and we make our way out into the darker corridors of Terminal Dogma. I feel my body shiver, the last time I was here was on the day of Third Impact. I reach out for Misatos hand and grip it firmly as we move forward. We are still flanked by the security personnel and I can feel their unease as well.  
+电梯停了下来，我们走出进入终端教条更深处的昏暗走廊。我不禁打了个寒颤，上次来到这里是在第三次冲击那天。我伸手握住美里手，紧紧地随着她前行。我们仍被安保人员包围着，我能感受到他们的不安。
+
+It is not long before we come to the large double doors that once housed Lilith. Could it be that Lilith has somehow returned? No, that cannot be and if it was they would not need me. Still, there is something there, this presence I am sensing, it is behind these doors.  
+不久，我们来到了曾经安置莉莉丝的那对巨大双门前。难道莉莉丝以某种方式回来了？不，那不可能，如果是的话，他们也不需要我。尽管如此，那里确实有东西，我感受到的这种存在感，就在这些门后。
+
+The doors slowly open revealing the inside, I audibly gasp at the sight before me. Ahead of me is the walkway up to the giant cross that Lilith was bound to. Lilith is not on the cross but something else is, it seems to be embedded into the structure.  
+门缓缓打开，露出了内部景象，我不禁倒吸一口凉气。在我面前的是通往巨大十字架的走道，莉莉丝曾被束缚在那里。但十字架上并非莉莉丝，而是某种嵌入结构的东西。
+
+I step closer to see it is a circular object held in place by a white pillar that surrounds the structure and spreads into the LCL surrounding the platform. As I get closer I can make up more details on the disk, I can see two identical shapes on it, no, not shapes but… creatures, embryonic creatures. There is what seems to be a rounded head, with an eye situated in the middle, the body extends out and spirals around itself. Both creatures are identical and seem to be joined in some way.  
+我走近一看，发现那是一个圆形物体，由一根白色柱子固定在结构周围，并延伸至平台周围的 LCL 液体中。随着我越走越近，我能看清圆盘上的更多细节，我看到两个相同的形状，不，不是形状，而是……生物，胚胎生物。它们似乎有一个圆形的头部，中间有一只眼睛，身体向外延伸并螺旋缠绕。两个生物完全相同，似乎以某种方式相连。
+
+"This is it." Misato speaks, "We found it when we first came down here. We tried to get close but it's surrounded by some sort of A.T. Field. We don't know what it is or where it came from."  
+“就是它。”美里说道，“我们第一次下来时就发现了。我们试图靠近，但它被某种 A.T.力场包围着。我们不知道它是什么，也不知道它从何而来。”
+
+As I stand before it I feel that presence once again and I look towards the strange object. I feel like the eyes are looking directly at me but I sense no malice from it. Instead I feel something else, a sense of… gratitude. My mouth slowly opens in shock as I come to realize what this is, I understand why this is here.  
+当我站在这面前，那种感觉再次袭来，我望向那奇怪的物体。仿佛它的眼睛正直视着我，但我并未感受到恶意。相反，我察觉到的是一种……感激之情。我震惊地慢慢张开嘴，逐渐意识到这是什么，我明白了它为何在此。
+
+I had forgotten over the years but now I remember. These beings were once separate but I brought them together. I felt them within me, I saw what they were, I saw their lives, I saw their purpose and I saw a glimpse of the ones who originally created them. Most of it I can no longer remember but I know what they are.  
+多年过去，我已遗忘，但现在我记起来了。这些存在曾各自独立，是我将它们汇聚。我在内心感受到它们，我看到了它们的本质，它们的生活，它们的使命，以及那些最初创造它们者的模糊影像。大部分记忆已模糊不清，但我知晓它们的身份。
+
+I smile, the fear is gone, "I… I understand."  
+我微笑着，恐惧已消散，“我……我明白了。”
+
+I now understand what this presence is that I have been feeling. It is from this, it is from this union of the two beings. The former seeds of life that are now as one. They have been trying to express themselves to me all this time. In a way this is beautiful, these two beings that should not have been able to co-exist are now as one.  
+我现在明白了这种我一直感受到的存在是什么。它来自这里，来自这两个存在的结合。曾经的生命种子如今合二为一。它们一直在试图向我表达自己。从某种意义上说，这是美丽的，这两个本不应共存的存在如今合为一体。
+
+Misato looks at me with a look of confusion, "Do you know what this is?"  
+美里困惑地看着我，"你知道这是什么吗？"
+
+I nod my head, "It is… Adam and Lilith, unified as they were on Third Impact."  
+我点点头，"这是……亚当和莉莉丝，正如他们在第三次冲击时那样统一。"
+
+A look of fear spreads across her face, "Adam and Lilith? Are you sure?"  
+她的脸上掠过一丝恐惧，“亚当和莉莉丝？你确定吗？”
+
+I nod again, "Yes but… they do not mean us any harm. Instead I believe they wish to… thank us. We have given them what they wanted, we have freed them from their loneliness, they are together… as one."  
+我再次点头，“是的，但是……他们并无恶意。相反，我相信他们是想……感谢我们。我们给了他们想要的，我们让他们摆脱了孤独，他们在一起……合二为一。”
+
+She still looks confused, "You know all of this?"  
+她依旧一脸困惑，“这些你都知道？”
+
+"On the day of Third Impact I unified the two of them, I saw their loneliness and that they wanted to end it. I do not know how but perhaps they learned through us how to accomplish that, they learned that much like humans they too could co-exist without hurting one another, now they live as one."  
+"在第三次冲击那天，我将他们两位合而为一，我看到了他们的孤独，以及他们想要结束这一切的愿望。我不知道他们是如何做到的，但或许是通过我们，他们学会了如何实现这一点，他们学会了像人类一样，彼此共存而不互相伤害，现在他们融为一体生活着。"
+
+"I… I… See, so… what…. What do we do?" She asks me, "I mean… How do we explain this…? What about NERV and the city, I mean… this is… complicated."  
+"我……我……你看，所以……我们该怎么办？" 她问我，"我是说……我们怎么解释这一切……？关于 NERV 和这座城市，我是说……这很……复杂。"
+
+"I do not know what you should do." I answer he honestly, "But I believe we should leave them be. I think… leaving the city as it is would be the best thing. Humanity has nothing to fear from them any longer and… we should not give them a reason to fear us."  
+"我不知道你们应该怎么做。" 我诚实地回答，"但我认为我们应该让他们自己待着。我想……保持城市的原样会是最好的选择。人类不再需要害怕他们，而且……我们也不应该给他们害怕我们的理由。"
+
+Misato looks at the two beings, "So… we should leave them be? Can we communicate with them at all?"  
+美里看着这两个存在，“那么…我们应该让他们自己待着吗？我们能和他们交流吗？”
+
+"Yes." "是的。"
+
+"Very well… I will… Think of something to say in my report." She turns towards the door, "Thank you Rei."  
+“很好…我会…在报告中想些话来说。”她转向门口，“谢谢你，绫波。”
+
+---
+### Chapter 16: The Only Unforgivable Thing  
+第十六章：唯一不可原谅之事  
+
+**5th October 2021 – Misato Katsuragi  
+2021 年 10 月 5 日 – 葛城美里**
+
+"So, this is really it then?" She asks me, "You're actually going to turn around and tell them to walk away? You... are actually going to walk away from it as well?"  
+“那么，这真的是最后了吗？”她问我，“你真的要转身告诉他们离开？你……真的也要离开这一切吗？”
+
+I can see the suspicion in her eyes as she speaks, I can hear it in her words and I know exactly what lives behind that suspicion. She needs to know that what I have said to her is the honest truth and after everything she has experiences I can't quite blame her for not believing me.  
+我能从她说话时眼中看到怀疑，能从她的言辞中听出疑虑，也清楚那怀疑背后隐藏着什么。她需要知道我对她说的都是真心话，而经历了那么多之后，我无法完全责怪她不相信我。
+
+Ritsuko saw the huge amount of work and effort I put into getting this project going. Ritsuko was the first person I confided in when I told her of my plans and she was also the one who objected to it the most. She never wanted this to happen, she always said that it was best leaving that place untouched and when it came down to it, she was right. I had it when she is right.  
+律子看到了我为推动这个项目所付出的巨大努力和心血。当我第一次向她透露我的计划时，她是第一个我倾诉的人，也是最强烈反对的一个。她从未希望这件事发生，她总是说最好让那个地方保持原样，而事实证明，她是对的。我承认她是对的。
+
+I nod my head in confirmation and also go about setting my now empty coffee cup down on the table. As I do so her cat sprinting over to me, it puts its paws up on the table making my attempt to set the cup down somewhat difficult.  
+我点头确认，同时将已经空了的咖啡杯放在桌上。就在这时，她的猫飞奔过来，把爪子搭在桌上，使得我放杯子的动作变得有些困难。
+
+"Yes, It's true." I tell her.  
+“是的，这是真的。”我告诉她。
+
+I finally set the cup down just as the cat leaps up onto the table. If sniffs at the rim of the cup wondering if perhaps the substance that was within might be suitable for a cat. It then sniffs at my hand for a moment. Its curiosity satisfied it rubs its head firmly against my hand, demanding attention from me. I tickle the animal under its chain as we continue our conversation.  
+我终于放下杯子，就在这时，猫跳上了桌子。它嗅了嗅杯沿，想知道里面的东西是否适合猫吃。然后它又嗅了嗅我的手。好奇心得到满足后，它用力地用头蹭我的手，向我讨要关注。我挠了挠它的下巴，我们继续交谈。
+
+"I guess you were right all along Ritsuko, we never should have gone down there." I explain, "There was nothing for us and as you saw, what we did find we were probably better off not finding."  
+“我想你一直都是对的，律子，我们根本就不该下去。”我解释道，“那里什么都没有，而且正如你所见，我们找到的东西，可能不知道反而更好。”
+
+To my surprise Ritsuko shakes her head, "I'm not so sure about that."  
+令我惊讶的是，律子摇了摇头，“我对此并不那么确定。”
+
+"Oh?"
+
+"I objected to you going there for personal reasons and because I was scared of it. There is nothing in that place anymore for me but memories, bad memories of all the mistakes I made. I feared the ghosts of my past that lived there, that maybe they would come back to haunt me in some way." Ritsuko admits, "But... From a more rational and logical standpoint going back in made sense. Your reasons for doing so made sense, to prevent others from making a mistake with what might be salvaged. Even then it is not just about what could be salvages."  
+“我反对你去那里，是出于个人原因，也因为害怕。那个地方对我来说只剩下回忆，全是糟糕的回忆，关于我所犯的所有错误。我害怕那里的过去幽灵，也许它们会以某种方式回来纠缠我。”律子承认道，“但……从更理性、逻辑的角度来看，回去是有意义的。你这样做的原因是有道理的，为了防止别人用可能挽救的东西犯错。即便如此，这不仅仅关乎能挽救什么。”
+
+She pauses to sip her coffee, "There could have been survivors there or something dangerous that we needed to know about. In the end the right course of action was to go back and you certainly should have been the one to do it."  
+她停下来喝了一口咖啡，“那里可能有幸存者，或者我们需要了解的危险事物。最终，正确的行动是回去，而你确实应该是去执行的那个人。”
+
+I feel a smile come to my lips, "Thank you and... thank you for actually agreeing to help us. I know and understand you wanted to remain distant from it all."  
+我感到唇边浮现微笑，“谢谢你，还有……谢谢你真的同意帮助我们。我知道并理解你本想保持距离。”
+
+"Remaining distant was an impossible task," She sets her cup down, "As long as I do not need to travel to the place then all will be fine. Besides this is... an important find, it would be irresponsible of me to not do what I can. How are the others taking it?"  
+“保持距离是不可能的任务，”她放下杯子，“只要我不需要亲自前往那个地方，一切都会没事的。况且这是……一个重要的发现，我若不尽我所能，就显得不负责任了。其他人对此反应如何？”
+
+I shrug, "It's mixed so far, same as it has been throughout the entire project. They didn't really want to believe it at first. They accused Rei of lying or just being wrong."  
+我耸耸肩，“目前反应不一，和整个项目一直以来的情况一样。他们起初并不真的相信。他们指责丽说谎或只是搞错了。”
+
+"I meant Rei and Shinji..."  
+"我是指丽和真嗣..."
+
+"Oh!" I shake my head, "Rei seems to be okay with it it, a little bit disturbed and I... I haven't told Shinji yet. I will but... I don't really know what to say. I barely know what it is myself. I'm not a scientist I'm just someone who once told people to blow stuff up and then told others where to go and what to pick up."  
+"哦！" 我摇摇头，"丽似乎对此没太大问题，只是有点困扰，而我...我还没告诉真嗣。我会说的，但...我真的不知道该说什么。我自己对这东西也几乎一无所知。我不是科学家，我只是曾经告诉人们去炸毁东西，然后告诉其他人去哪里以及该捡起什么。"
+
+"You're downplaying your own abilities there Misato." She smiles, "We're only alive because of some of the things you said. I'm sure you'll be fine at telling Shinji."  
+"你这是在贬低自己的能力，美里。" 她微笑着说，"我们能活着，多亏了你的一些指示。我相信你告诉真嗣时也会没问题的。"
+
+"I guess..." I let out a sigh, "It's just he... he has his own concerns with the concert coming up and of course him speaking to Asuka again, I know he'll be nervous about seeing her."  
+"我想……" 我叹了口气，"只是他……他对即将到来的音乐会有自己的顾虑，当然还有再次与明日香交谈，我知道他会紧张见到她。"
+
+Mentioning Asuka's name draws a surprised look from Ritsuko, "So she has actually remained in contact with him?"  
+提到明日香的名字让律子露出惊讶的表情，"这么说她真的还和他保持联系？"
+
+"She has." I nod my head, "I still... wish I could have done more for her. I feel like it was my fault she left, I never really treated her the same as Shinji and when I took Rei in she got more of the attention. Asuka was..."  
+"是的。" 我点点头，"我仍然……希望我能为她做得更多。我觉得她离开是我的错，我从未真正像对待真嗣那样对待她，而当我收养绫波时，她得到了更多的关注。明日香她……"
+
+Ritsuko looks at me and nods, "You made mistakes with Asuka."  
+律子看着我，点了点头，“你对明日香犯了一些错误。”
+
+"Yes, I did." I admit, "When she said she was strong and an adult I believed her... No, that isn't true, I didn't believe her, not really. I knew she was hurting, how could she not be but it was easier and more convenient to just let her do her own thing."  
+“是的，我确实犯了错。”我承认道，“当她说她很坚强并且是个成年人时，我相信了她……不，那不是真的，我并没有真正相信她。我知道她在痛苦中，她怎么可能不痛苦呢，但那样做更简单也更方便，就让她自己处理自己的事情吧。”
+
+I have had these thoughts many times but I've never really been able to speak them out loud. I don't really know why I'm saying it to Ritsuko now either. She isn't the one who needs to hear this, it's Asuka who does.  
+这些念头我曾多次有过，但从未真正大声说出来过。我也不太明白为什么现在要对律子说这些。她并不是需要听这些的人，明日香才是。
+
+"Tell that to her then." Ritsuko speaks up, as if reading my mind, "Same as I did to Maya when I saw her again. Admit your mistakes and move forward."  
+"那就告诉她吧。" 赤木律子开口道，仿佛看穿了我的心思，"就像我再次见到真希波时对她说的那样。承认你的错误，然后向前看。"
+
+"I will." I look down, now is not the time for this discussion, we have gotten sidetracked enough. I'm not here to chat about Shinji and Asuka, I'm supposed to be briefing Ritsuko on what we found and her role in this.  
+"我会的。" 我低下头，现在不是讨论这个的时候，我们已经偏离主题太远了。我来这里不是为了聊真嗣和明日香的事，我本该向赤木律子汇报我们的发现以及她在这件事中的角色。"
+
+"We should discuss what we found. I know Maya has already told you but I should probably give you a more official version."  
+"我们应该讨论一下我们的发现。我知道真希波已经告诉你了，但我或许应该给你一个更正式的版本。"
+
+I reach into my satchel and pull out a handful of papers and set them down on the table, taking care to avoid the cat. I see Ritsukos eyes widen at what she sees.  
+我伸手进背包，掏出一把文件放在桌上，小心翼翼地避开那只猫。我看到 Ritsuko 的眼睛因她所见而睁大了。
+
+"We have designated it FAR3, other suggestions were Adlith or Lilam, both of which, as I'm sure you'd agree sound stupid."  
+“我们将其命名为 FAR3，其他建议如 Adlith 或 Lilam，想必你也会同意，听起来都很愚蠢。”
+
+She nods, "You have of course confirmed what it is then?"  
+她点头道，“那么，你自然已经确认了它的身份？”
+
+"Yes, we were able to bring in equipment to create a proper 3D scan of it. We could separate the two forms and see that one was an exact match for the embryonic form of Adam. We were of course unable to confirm Lilliths embryonic form as we had not encountered that." I pause, "It was Maya who did that."  
+“是的，我们设法引进了设备来制作一个精确的 3D 扫描。我们可以将两种形态分离，并发现其中一种是亚当胚胎形态的完全匹配。当然，我们无法确认莉莉丝的胚胎形态，因为我们尚未遇到过。”我停顿了一下，“这是玛雅做的。”
+
+Ritsuko gives a small smile of pride, "Oh?"  
+律子露出一丝自豪的微笑，“哦？”
+
+"She modified some of the systems we were using down there, originally we were looking for orange of blue blood patterns thinking. It was based on the UN early warning systems set up outside of NERV."  
+“她对我们在那儿使用的某些系统进行了修改，最初我们是在寻找橙色或蓝色的血液模式。这是基于联合国在 NERV 外部设立的早期预警系统。”
+
+Ritsuko gives a nod, "Reasonable."  
+律子点了点头，"合理。"
+
+"But... NERV wasn't exactly forthcoming with the UN about other potential patterns. Probably to avoid questions like, 'Why is there a progenitor of life in your basement'? Maya did have knowledge of other patterns so was able to expand the range. Right away it picked up the hybrid as blood pattern red."  
+"但...NERV 并没有向联合国透露其他潜在的模式。可能是为了避免类似'为什么你们地下室有一个生命起源'这样的问题。真希波确实知道其他模式，因此能够扩大搜索范围。很快，它就识别出了那个混合体，血型模式为红色。"
+
+"She really is something special that girl." Ritsuko nods, "So. I suppose you'll need me for further tests that won't risk agitating the being."  
+"她真的很特别。"律子点头道，"那么，我想你需要我来进行进一步的测试，以避免激怒那个存在。"
+
+I nod, "Something like that, something to ensure but it and our safety as well might be useful."  
+我点头，“差不多吧，确保它和我们安全的东西可能会有用。”
+
+She lets out a sigh, "I shall... do what I can. I'm not making any promises though but I think I might be able to modify some of the old Eva tech to produce something. We lost a lot of it but there were other facilities that produced parts which we could use. After this though... I am done and so are you."  
+她叹了口气，“我会……尽力而为。虽然不作任何承诺，但我想我可以改造一些旧的 Eva 技术来制造点什么。虽然我们失去了很多，但还有其他生产零件的设施可以用。不过在这之后……我就彻底收手了，你也是。”
+
+"Agreed... After this we both walk away. I just... I want to make sure this is done properly. I don't trust them to make the right decision. Unless I'm there then they'll either try to destroy it or use it. I need someone like you there to examine it, to learn about it and the risks. After that... no more involvement, it's truly over."  
+“同意……这件事后我们各自离开。我只是……想确保一切妥善处理。我不信任他们会做出正确决定。除非我在场，否则他们要么试图摧毁它，要么利用它。我需要像你这样的人在场检查，了解它及其风险。之后……不再参与，真的结束了。”
+
+"Good." She nods, "In which case I'll help."  
+"好。" 她点头，"既然如此，我会帮忙。"
+
+"Thank you." "谢谢你。"
+
+"And after this, then what happens?"  
+"之后呢，会发生什么？"
+
+I shake my head, "I don't really know. I don't want to be involved in this for much longer. I can't take all this bureaucratic crap any longer, it's just meetings about setting up further meetings without getting anything done. I just... I want to leave this behind and... maybe take a break for myself and actually spend some time with Shinji and Rei."  
+我摇摇头，"我真的不知道。我不想再卷入这些事情太久。我再也受不了这些官僚主义的废话了，全是关于安排更多会议的会议，却什么都没做成。我只是……我想放下这一切，……也许给自己放个假，真正花些时间和真嗣还有绫波在一起。"
+
+I lower my head, "I just haven't been there enough for them recently."  
+我低下头，“我只是最近没能好好陪在他们身边。”
+
+"You've done what you can Misato, all things considered you've done a good job with them."  
+“你已经尽力了，美里，考虑到所有情况，你对他们已经做得很好了。”
+
+Once again, the thought of how I failed Asuka flashes through my mind, "I've done nothing, I've just given them a place to live, they've done most of the work. Me? I'm useless, I can't cook, I can't really talk to them, I..."  
+又一次，我脑海中闪过自己如何辜负了明日香的念头，“我什么都没做，只是给了他们一个住的地方，大部分事情都是他们自己完成的。我呢？我毫无用处，我不会做饭，也无法真正与他们交流，我……”
+
+Again, I shake my head, "This isn't important right now we should go and I'll introduce you to the team you'll be working with."  
+我又摇了摇头，“现在这不重要，我们应该过去，我会把你介绍给团队，你将和他们一起工作。”
+
+We both get up from our seats and move out of the front door of her house and we move towards my car. I feel significantly lighter than when I arrived here today. Having Ritsuko on board for this will make things that little bit easier.  
+我们俩都从座位上站起来，走出她家前门，朝我的车走去。我感觉比今天刚来时轻松多了。有了律子加入，事情会变得稍微容易一些。
+
+**9th October 2021 – Shinji Ikari  
+2021 年 10 月 9 日 – 碇真嗣**
+
+Today I feel a fear and nervousness that I haven't felt in quite some time. It's different to how I've been feeling for the past five years, it isn't a fear of people recognizing me, no this is a fear similar to how I felt before I would pilot. I feel unease in the pit of my stomach, I'm sweating and I keep pacing back and forth.  
+今天我感到一种久违的恐惧和紧张。这与过去五年的感受截然不同，不是害怕被人认出，不，这是一种类似于我驾驶前的感觉。我胃里翻江倒海，浑身冒汗，不停地来回踱步。
+
+I'm not prepared to do this today but I can't back out, I can't run away. I just wish we had more time to figure this out, I wish we had been told more of what would be expected. Instead we were given very little and with it we were able to produce very little. When I spoke to Misato she warned me this is how it was likely to be, she gave me a few questions that she would ask me but said it might not represent what they ask.  
+今天我还没准备好面对这一切，但我不能退缩，不能逃避。我只希望我们有更多时间来理清头绪，希望有人能告诉我们更多预期的情况。相反，我们得到的很少，能做的也很少。当我向美里求助时，她警告我这很可能是常态，给了我几个她可能会问的问题，但也说这可能不代表他们真正的问题。
+
+I feel weird for being so scared and nervous, it's not as if my life is at risk or the fate of the world is at stake. If I fail then nothing changes for me. No, it's just the fate of a single person, to help them actually be able to live a proper life. Their future is in my hands, no pressure at all.  
+我为自己如此害怕和紧张感到奇怪，毕竟我的生命并未受到威胁，世界的命运也未悬于一线。如果我失败了，对我来说一切都不会改变。不，这只是关乎一个人的命运，帮助他们真正过上正常的生活。他们的未来掌握在我手中，一点压力都没有。
+
+I feel sick. 我感觉不舒服。
+
+I take a deep breath and try to remember that I won't be alone in this. Asuka will be playing her part in this as well, it isn't all on my shoulders. Fuyutsuki is doing what he can too. It isn't just down to me, and yet I feel like it is. I feel like if this doesn't work then I'll be at fault. Ironically, I feel like if we succeed then it'll be because of Asuka.  
+我深吸一口气，试图记住在这件事上我不会孤单。明日香也会在这件事中扮演她的角色，并非全压在我肩上。副司令冬月也在尽力而为。并非全靠我，然而我却感觉如此。我觉得如果这事不成，责任将归咎于我。讽刺的是，我觉得如果我们成功了，那将是因为明日香。
+
+I wish I could travel there with Misato and Rei but they will both be meeting me there. Apparently, they wanted us to travel separately for some reason. Both of them have been supportive in this though which did surprise me, especially Misato.  
+我希望能和美里与绫波一起前往，但他们都会在那里与我汇合。显然，他们出于某种原因希望我们分开旅行。尽管如此，他们在这件事上都给予了我支持，这确实让我感到惊讶，尤其是美里。
+
+I could tell it was difficult for her when I told her what I was going to do. I know what Kaworu must represent to her. Kaworu was not only the last Angel who betrayed me, the one she took in as her own son but he also represents the beings that killed her father. I feel like a part of her wanted me to have no part of this but she fought it.  
+当我告诉她我要做什么时，我能感觉到这对她来说很艰难。我知道渚薰对她意味着什么。渚薰不仅是最后一个背叛我的使徒，那个她视为己出的孩子，他还代表着那些杀害了她父亲的生物。我觉得她的一部分希望我不要参与其中，但她努力克制了这种想法。
+
+I know that must have been difficult for her. The Angels were at times her personal white whale. She sworn revenge on them, she let her own crusade get in the way of her judgement. She put lives at risk for it. She wanted to see them all die because of what they had done to her. It really can't have been easy for her to accept this.  
+我知道这对她来说一定很困难。使徒有时是她个人的白鲸。她发誓要向他们复仇，她让自己的十字军行动影响了她的判断。她为此置生命于危险之中。她想看到他们因为对她所做的事而全部死去。她接受这一点真的不容易。
+
+It seemed to be important to Rei as well. She asked if there was anything she could do but it seemed the security council didn't want her getting involved. I'm not sure why, we did ask but it seems they were only willing to hear from myself and Asuka. Rei however reminded me and Misato of what she used to be and how similar her upbringing was to Kaworu's. She mused that given more time perhaps the two could have been allies but it was not to be.  
+这对绫波来说似乎也很重要。她问是否有什么她能做的，但安全委员会似乎不想让她参与。我不确定为什么，我们确实问过，但他们似乎只愿意听我和明日香的声音。然而，绫波提醒我和美里她曾经是什么样的人，以及她的成长经历与渚薰有多么相似。她沉思说，如果有更多时间，也许两人本可以成为盟友，但事实并非如此。
+
+I am certain that Kaworu deserves a chance to live freely. We forgave Fuyutsuki and Ritsuko when they returned and they have had the chance to live their lives. He deserves the same. I would not want him to not have those options, regardless of what I did or didn't think of him.  
+我坚信，碇真嗣应该有机会自由地生活。当我们原谅了冬月和律子并让他们回归时，他们有了继续生活的机会。他同样值得这样的机会。我不希望他因为我的想法而失去这些选择，无论我对他的看法如何。
+
+I shuffle over to the mirror again in order to adjust my suit jacket sleeves. I'm not sure if maybe the jacket is too big for me but it just doesn't feel comfortable at all. I really dislike wearing it but I was told it'd be better to dress like this rather than how I'd usually dress. This is actually only the second time I've had to wear a suit; the first time wasn't a particularly happy occasion. It was on a day of remembrance held not too long after Third Impact.  
+我再次走到镜子前，调整西装外套的袖子。我不确定是不是这件外套对我来说太大了，但它就是感觉很不舒服。我真的很不喜欢穿它，但我被告知这样穿比平时好。这实际上只是我第二次穿西装；第一次并不是一个特别愉快的场合。那是在第三次冲击后不久举行的一个纪念日。
+
+I attended it along with Asuka, Rei and Misato. We had to sit through an uncomfortable speech about the bravery of the pilots who saved the world. We had to listen as names were read out and a statue dedicated to the fallen as unveiled. Afterwards me, Rei and Asuka were given medals in a private meeting with a government official. It was not a comfortable day or moment.  
+我和明日香、绫波零以及美里一起参加了那次活动。我们不得不听了一场关于拯救世界的飞行员们勇敢行为的令人不适的演讲。我们听着名字被宣读，一座纪念碑被揭幕。之后，我和绫波零、明日香在一个政府官员的私人会面中被授予了勋章。那一天和那一刻都不舒服。
+
+As I loosen my tie I hear a knock at the door. I immediately freeze up at the realization that this is it. There really is no turning back now, yet I look across at the open window and wonder if... No, I'm on the third floor. I close the window and make my way to the front door and open it. I almost gasp when I see the person standing across from me, our eyes meet for a moment and I have to fight every urge to not slam the door shut.  
+我松开领带时，听到敲门声。我立刻僵住了，意识到这就是关键时刻。现在真的没有回头路了，然而我瞥了一眼敞开的窗户，心想是否……不，我在三楼。我关上窗户，走向前门并打开它。看到站在我对面的人时，我几乎要倒吸一口气，我们的目光短暂交汇，我必须竭力克制住想要猛然关上门的冲动。
+
+My eyes wander to the badge attached to his jacket. I see the logo of the security services there and underneath is his name. This is not some anonymous guard come to take me to the meeting today, standing across from me is a man named Hideaki, one of the violin players from our group.  
+我的目光落在他夹克上的徽章上。我看到了那里的安保服务标志，下面是他的名字。今天来接我去会面的不是某个无名保安，站在我对面的是一个名叫 Hideaki 的男人，我们乐团的小提琴手之一。
+
+"Shinji." He nods in greeting and gives me an almost embarrassed smile. I say nothing in reply and it seems that he recognized my discomfort, "I should... probably explain a few things, shouldn't I?"  
+“真嗣。”他点头致意，给了我一个略显尴尬的微笑。我没有回应，他似乎察觉到了我的不安，“我应该……可能需要解释一些事情，对吧？”
+
+All I can do is nod, I honestly don't know what to say. Hideaki is someone I have spoken to perhaps once or twice in the group. To be honest being around him makes me feel awkward, not so much because of who he is but because of his past. Hideaki lived in Tokyo-3, he had a wife and a son whilst he was there. His son was killed during one of the attacks on the city and shortly after that he started drinking heavily, he, lost his job, split up with his wife and his life had pretty much fallen apart  
+我只能点头，老实说我不知道该说什么。Hideaki 在团队里我大概只跟他交谈过一两次。说实话，在他身边让我感到尴尬，不是因为他本人，而是因为他的过去。Hideaki 曾在东京-3 生活，他在那里有妻子和儿子。他的儿子在一次城市袭击中丧生，之后不久他开始酗酒，失去了工作，与妻子分手，生活几乎支离破碎。
+
+Third Impact came and went and Hideaki recovered to see that he has been given a second chance. He was able to reconcile with his wife and they even had a second child, a daughter. Hideaki got a new job and slowly started to rebuild his life. It was all of this that inspired him to learn to play the violin, his goal is to be able to compose a tribute to his son.  
+第三次冲击来了又去，Hideaki 恢复过来，发现自己得到了第二次机会。他能够与妻子和解，他们甚至有了第二个孩子，一个女儿。Hideaki 找到了新工作，并慢慢开始重建生活。这一切激励他学习小提琴，他的目标是能够创作一首献给他儿子的曲子。
+
+Naturally I felt awkward around him. I always wondered if he knew who I was and what I was. I always wondered if he blamed me and the other pilots for what happened. I always felt guilty about it, after all we were supposed to defend the people during the Angel attacks and we failed.  
+自然而然，我在他身边感到尴尬。我总是想知道他是否知道我是谁，我是什么。我总是想知道他是否责怪我和其他驾驶员所发生的事情。我总是对此感到内疚，毕竟我们本应在天使袭击中保护人民，但我们失败了。
+
+Before Hideaki can say anything else I finally find the ability to speak, "D-Do you know... who I am?"  
+"在 Hideaki 能说出其他话之前，我终于找到了开口的能力，“你……你知道……我是谁吗？””
+
+Hideaki nods, "Yes, I've known who you were from the moment you introduced yourself in the first group session."  
+"Hideaki 点头，“是的，从你在第一次小组会议上自我介绍的那一刻起，我就知道你是谁了。””
+
+"O-Oh... And you... didn't say anything?"  
+"“哦……那你……什么都没说？””
+
+"No." He shakes his head as he speaks, "I figured it would be best to not say anything. I figured you probably didn't want people to know something like that."  
+"不。" 他说着摇了摇头，"我觉得最好还是不要说出来。我想你可能不希望别人知道这种事。"
+
+"I... I see..." I nod as I'm frozen to the spot, unable to move. I can feel myself sweating making this suit even more uncomfortable.  
+"我... 我明白了..." 我点头回应，身体却僵在原地，动弹不得。我能感觉到自己出汗了，这套西装变得更加不舒服。"
+
+"Actually..." He continues, "I've known you for longer than that. You won't have known but I helped to protect you back in Tokyo-3."  
+"实际上..." 他继续说道，"我认识你的时间比你想象的要长。你可能不知道，我在东京-3 时曾帮助保护过你。"
+
+It doesn't take me long to connect the dots, Hideaki must have been a member of Section Two. A member of the elite service that would follow and protect me, Asuka and Rei. I don't quite know what to feel, I have mixed feelings about Section Two. I disliked being followed but understand why it had to happen. At the same time, I have learned since that Section Two didn't always seem to have our safety at heart, their handling of Asuka when she ran away shows this.  
+我很快便将线索串联起来，Hideaki 必定曾是第二分部的一员。那个精英部门负责跟踪并保护我、Asuka 和 Rei。对于第二分部，我心情复杂。虽然不喜欢被人跟踪，但理解其必要性。同时，我也了解到第二分部并非始终将我们的安全放在首位，他们对 Asuka 逃跑时的处理方式便证明了这一点。
+
+"I... I had no idea..." I stutter out somewhat politely.  
+"我... 我完全不知情..." 我有些礼貌地结巴道。
+
+"No, you weren't supposed to, none of you were supposed to see us or know we were there." He explains, "I had actually hoped that you wouldn't find out..."  
+"不，你们本不该知道的，你们都不应该看到我们或知道我们的存在。" 他解释说，"我其实希望你们永远不会发现..."
+
+"Really, why?" I ask him.  
+"真的，为什么？" 我问他。
+
+"A number of reasons." He starts to explain, "I know... We all knew how much you hated piloting and I figured after all that happened to you and the others you probably wouldn't want to be reminded of it all. Also... Section Two didn't really shower itself in glory in a few cases. We weren't so much a security service but... Well I probably shouldn't say anything here but there were certain people who prevented us from doing our job properly, I thought... you'd probably hate me if you found out."  
+"有几个原因。" 他开始解释，"我知道... 我们都清楚你有多讨厌驾驶，而且我想，经历了那么多事情，你和其他人可能都不想再被提醒这一切。另外... 第二部门在某些情况下并没有展现出多少荣耀。我们与其说是一个安全服务机构，倒不如说... 嗯，这里我可能不该多说，但确实有些人妨碍了我们正常履行职责，我想... 如果你知道了，可能会恨我。"
+
+"H-Hate you?" I stutter again as I feel my hand clench into a fist and unclench, two nervous habits in one. I am surprised at what he has said though, why would he think I'd hate him after what happened to his son. Surely, we failed him?  
+"恨你？" 我又一次结巴了，同时感到自己的手紧握成拳又松开，一次紧张的两个习惯。我对他所说的话感到惊讶，为什么他会认为我会恨他，毕竟他的儿子发生了那样的事。我们肯定让他失望了，不是吗？
+
+He nods, "It was stupid I know, you can't really escape your past but I had hoped maybe in this case I could. Turns out fate had a different plan in store."  
+他点点头，“我知道这很愚蠢，你无法真正逃离你的过去，但我曾希望也许在这个情况下我可以。结果命运另有安排。”
+
+He half smiles as he finished speaking but I'm still in something of a stunned silence. I can feel my heart pounding in my chest. I want to say something to him as my mind runs through numerous questions and potential answers. In the end I just go for the usual, "I'm sorry..."  
+他说完话时露出一丝苦笑，但我仍处于震惊的沉默中。我能感觉到自己的心跳在胸腔里狂跳。我想对他说些什么，脑海中闪过无数问题和可能的答案。最终，我只是说了句平常的话，“我很抱歉……”
+
+He looks confused, "Sorry... For what?"  
+他看起来很困惑，“抱歉……为了什么？”
+
+How can he look confused by my apology? He must know what I'm sorry for, because of what my actions lead to, he lost something previous to him, he nearly lost everything because of my uselessness. I struggle to say anything in reply and I see the confusion fade to realization. He looks away, embarrassed.  
+他怎么能对我的道歉感到困惑呢？他一定知道我为什么道歉，因为我的行为导致他失去了原本属于他的东西，差点因为我的一无是处而失去一切。我挣扎着想要回应，看到他脸上的困惑逐渐变为领悟。他尴尬地移开了视线。
+
+"I was a pilot and I... I failed..."I mumble just loudly enough for him to hear.  
+"我曾是一名飞行员，而我...我失败了..."我喃喃自语，声音刚好让他能听见。
+
+"Oh..." He looks back at me and kneels down slightly and places a hand on my shoulder, "Shinji... I... Look, you... You have nothing to be sorry for, nothing at all. You did everything that was asked of you, you fought with everything you had and you saved countless lives."  
+"哦..."他回头看着我，微微蹲下身子，把手放在我的肩膀上，"真嗣...我...听着，你...你没有什么需要道歉的，一点也没有。你完成了所有要求你做的事，你倾尽全力战斗，拯救了无数生命。"
+
+"B-But..." I shake my head barely daring to say the words, "Your... son..."  
+"但...但是..." 我摇着头，几乎不敢说出那几个字，"你的...儿子..."
+
+He pauses and shakes his head, "What happened to my son... was tragic but it was not because of you. My son wasn't killed because of your actions, my son was killed by some two-bit thugs who decided to try to jump the queue when we were evacuating. They got in a fight with the guards and shots were fired, a stray bullet caught him and..."  
+他停顿了一下，摇摇头，"我儿子的事...虽然很悲惨，但这不是你的错。我儿子不是因为你的行为而死的，他是被几个想插队的无名小贼害死的。他们在撤离时与守卫发生了冲突，枪声响起，一颗流弹击中了他..."
+
+He pauses again as his hand tightens on my shoulder, his voice sounds quieter, "It was nothing to do with you."  
+他再次停顿，手紧紧抓着我的肩膀，声音听起来更轻了，"这与你无关。"
+
+"I... I didn't know..." I lower my eyes again.  
+"我... 我不知道..." 我再次垂下眼眸。
+
+"I admit I was... a little bit vague when I told my story to the group but the details of it aren't really something you tell a group of strangers." He says, "The truth is Shinji I... I always wanted to thnk you for what you and the other pilots did. Most of us at Section Two knew that it was wrong, you three being forced to do that. We all knew it was unfair but we also knew there were no other options. We couldn't say it then and... well many of them won't get a chance now so on behalf of them... thank you."  
+"我承认，当我向小组讲述我的故事时，我... 有点含糊其辞，但那些细节确实不是对一群陌生人轻易吐露的。" 他说道，"事实是，真嗣，我... 我一直想感谢你和其他飞行员所做的一切。我们第二科的多数人都知道那是错的，你们三人被迫承担这一切。我们都知道这不公平，但也明白别无选择。当时我们无法说出口，而现在... 许多人再也没有机会了，所以代表他们... 谢谢你。"
+
+Once again, I fall silent, I don't quite know what to say to that. I've never been thanked by someone like this before. When it came from that government official we were all thanked but it felt impersonal, like it was some sort of duty they had to perform. I've been thanked by those who came back but that was different as well, I knew those people and they did much as me.  
+又一次，我陷入了沉默，不知该如何回应。我从未像这样被感谢过。那位政府官员对我们表示感谢时，感觉很冷漠，就像是一种必须履行的义务。我也曾被归来的那些人感谢过，但那感觉不同，我认识那些人，他们和我一样付出了很多。
+
+With this it is so different, I don't know Hideaki that well and he doesn't really know me. I know that he was a member of Section Two but aside from that he was just a regular member of the public. He was one of the many thousands of civilians who lived in that city. Him saying thank you it... it feels weird, and undeserved. Why am I being thanked? He doesn't know what I nearly did, he doesn't know the truth about who I am.  
+这样一来就完全不同了，我对 Hideaki 并不十分了解，他也不真正认识我。我知道他曾是第二科的成员，但除此之外，他只是普通公众的一员。他是那座城市中成千上万平民中的一员。他说的谢谢……感觉很奇怪，也不配得到。我为何要被感谢？他不知道我差点做了什么，他不知道关于我真实身份的真相。
+
+I don't shake my head but I feel my nails dig into the palms of my hands as those thoughts infiltrate my mind. I'm supposed to be fighting those sorts of thoughts, we all are. I'm not a bad person, I shouldn't feel guilty because of what nearly happened. I should accept what did happen but I don't know how. How do you come to terms with the idea that you actually saved the world?  
+我没有摇头，但感觉到指甲深深嵌入掌心，这些念头侵入我的脑海。我本应与之抗争，我们所有人都应如此。我不是坏人，我不应该因为差点发生的事情而感到内疚。我应该接受已经发生的事实，但我不知道如何做到。你如何能接受自己真的拯救了世界的想法？
+
+Finally, I speak, my voice no longer caught in my throat. The lump that has formed from hearing his words slowly going. I feel the sting of tears in my eyes but blink them away and I nod.  
+最终，我开口了，声音不再卡在喉咙里。听到他的话后形成的硬块慢慢消散。我感到眼中有泪水的刺痛，但眨眼间将其忍住，并点了点头。
+
+"Thank you, for what you did for us as well."  
+"谢谢你，也为我们做了那么多。"
+
+He stands up and nods before looking at his watch, "I think we've probably spent enough time here. If possible, I would like to speak to you more but this isn't really the time and place. If that is okay of course?"  
+他站起身，点头后看了看手表，“我想我们已经在这里待得够久了。如果可能的话，我希望能和你多聊聊，但这里实在不是合适的时间和地点。当然，如果你觉得可以的话？”
+
+"I... That would be fine." I nod again.  
+""我... 那当然可以。"" 我再次点头。
+
+"Good." “好。”
+
+I make my way out of the door and lock it behind me as I do he begins to speak, explaining to me what is happening today.  
+我走出门口，顺手将门锁上，这时他开始说话，向我解释今天发生的事情。
+
+"I'll assume you haven't been briefed on the timetable for today?" He asks.  
+“我猜你还没被告知今天的日程安排吧？”他问道。
+
+I shake my head, "No."  
+我摇摇头，“没有。”
+
+I hear him sigh, "Typical, well as you have probably guessed, I'm your assigned security detail for today. I know it'll be inconvenient for you but I'm so stay close to you at all times, I am to ensure that you are safe in everything you to today. The only time I will not be by your side is when you are in your meeting with the security council."  
+我听到他叹了口气，“典型的，好吧，你可能已经猜到了，我是你今天指定的安全人员。我知道这对你来说可能不太方便，但我会一直紧跟着你，确保你今天所做的每一件事都安全无虞。唯一我不在你身边的时候，是你与安全委员会开会的时候。”
+
+I nod, "O-Okay..." 我点点头，“好——好的……”
+
+"Downstairs there is a car waiting for us. It will take us about thirty minutes to reach the UN Embassy. When we are there we will enter via a specially prepared entrance, we don't anticipate any problems regarding the media being there but things have been leaked before."  
+“楼下有一辆车在等我们。到达联合国大使馆大约需要三十分钟。到了那里，我们将通过一个特别准备的入口进入，我们预计媒体不会有什么问题，但之前也有过泄密的情况。”
+
+"Oh..." I almost freeze up, I had never considered the idea of things being leaked to the press. Everything I have done has been well away from the press. Everything they know about NERV and the Eva's was specially constructed to ensure myself, Asuka, Rei, Touji and I suppose even Kaworu would not be known about.  
+"哦..." 我几乎愣住了，从未考虑过信息会被泄露给媒体。我所做的一切都远离了媒体的关注。他们所知的关于 NERV 和 Eva 的一切都是特意构建的，以确保我、明日香、绫波、东治，甚至可能还有渚，不会被外界所知。
+
+He shoots me a look of concern, "Don't worry about it, as I said we don't anticipate any problems regarding the media. This is purely preventative, there might be some reporters snooping around, pay them no mind, they always hang around for something."  
+他投来关切的目光，"别担心，正如我所说，我们预计媒体方面不会有任何问题。这只是预防措施，可能会有一些记者在附近打探，别理他们，他们总是为了某些事情而徘徊。"
+
+"I... See..." I say nervously, "So... If they see me..."  
+"我... 明白..." 我紧张地说，"那么... 如果他们看到我..."
+
+"They won't know who you are, unless someone has leaked something in which case we'd know about it before you arrived. They will however be wondering who this young guy is who has strolled into the UN Embassy, so just walk past, don't make eye contact and don't engage them."  
+"他们不会知道你是谁，除非有人泄露了信息，那样的话在你到达之前我们就会知道。不过，他们会好奇这个走进联合国大使馆的年轻人是谁，所以只需径直走过，不要对视，也不要与他们交谈。"
+
+"Ok, got it." I nod as we approach the car.  
+"好的，明白了。" 我们走近车子时我点头回应。"
+
+"When we arrive, there will be a brief security check for you and then you'll be escorted to meet with Miss Katsuragi and Ayanami. You will all be given a brief tour of the facility if time permits before you meet with the council."  
+"我们到达后，会对你进行简短的安全检查，然后你会被护送到与草薙小姐和绫波见面。如果时间允许，在会见委员会之前，你们会得到一次简短的设施参观。"
+
+"Right." “好的。”
+
+He opens the door for me and I get inside, it's one of those larger cars, not quite the size of a limo but spacious. It's black with tinted windows, he climbs in and sits himself down on the seat opposite me. He turns and says something to the driver and we pull away, my heart hammering in my chest. I have to wonder exactly what I've gotten myself into and also hope that I don't mess this up.  
+他为我打开车门，我坐了进去，这是一辆较大的车，虽未达到豪华轿车的尺寸，但空间宽敞。车身黑色，车窗着色，他上车后坐在我对面的座位上。他转身对司机说了些什么，我们便驶离了原地，我的心在胸腔中怦怦直跳。我不禁思索自己究竟卷入了什么，同时也希望不要搞砸这一切。
+
+**Asuka Langley Soryu 惣流·明日香·兰格雷**
+
+I hear a soft moan of satisfaction as Kaworu snuggles his head into my shoulder, his hair tickling me ever so slightly. In response I bring my arms around his body and run a hand down his back. I let out a satisfied sigh of my own as I try to ignore the little alarm going off in the back of my mind. I look over towards the clock on our bedside table, it's not as bad as I thought, we still have at least half an hour until the car picks us up.  
+我听到 Kaworu 满足的轻哼声，他将头埋在我的肩上，头发轻轻拂过我的皮肤。我回应着，双臂环抱住他的身体，手掌顺着他的背滑下。我发出满意的叹息，试图忽略脑海中那微弱的警报声。我瞥向床头柜上的时钟，情况并没有我想象的那么糟糕，我们至少还有半小时才会被车接走。
+
+We should really have been ready an hour ago but as it is here we are in one another arms, both very tired, very sweaty, very naked and extremely satisfied. If I had the choice I'd shut my eyes, fall asleep and just rest here with kaworu but reality is setting in. We have to get out of this bed, we have to put some clothes on and leave.  
+我们本该一小时前就准备好的，但现实是我们此刻正相拥在一起，两人都非常疲惫、汗流浃背、一丝不挂且极度满足。如果可以选择，我会闭上眼睛，沉沉睡去，就这样与渚薰静静休息。但现实正逐渐逼近。我们必须起床，穿上衣服然后离开。
+
+Damnit, why did we have to get like this this morning of all mornings? I'm not even usually a morning person, I prefer this sort of thing in the evening. I hate my body sometimes, Kaworu's on the other hand, I quite enjoy that.  
+该死，为什么偏偏是今天早上变成这样？我甚至通常不是个早起的人，我更喜欢这种事发生在晚上。有时候我真讨厌自己的身体，但渚薰的身体，我倒是相当喜欢。
+
+I glance down at the melted form in my eyes, it seems cruel to disturb his rest. He looks so peaceful when he sleeps, "Kaworu..."  
+我低头看着在我怀中熟睡的他，打扰他的休息似乎有些残忍。他睡觉时看起来如此平静，“渚薰……”
+
+I get a soft movement of his head as he snuggles into me some more, "Mmm... I love you Asuka..."  
+他轻轻地动了动头，更紧地依偎在我怀里，“嗯……我爱你，明日香……”
+
+I plant a soft kiss on the top of his head as I blush, I'm still not quite used to hearing or feeling I deserve to hear those words, "I love you too Kaworu but... we... have to get up. Like... Now."  
+我在他头顶轻轻一吻，脸颊泛红，我仍不太习惯听到或感觉到自己配得上这些话，“我也爱你，渚薰，但是……我们……得起床了。就是……现在。”
+
+"Why? It's comfortable here..." He protests and snuggles into me once again. I'd be slightly annoyed at his protests if I didn't want the same thing and if he wasn't so adorable and if what we had just done moments ago hadn't have felt so good.  
+“为什么？这里很舒服啊……”他抗议道，再次依偎进我怀里。如果不是我也想这样，如果不是他这么可爱，如果不是我们刚刚做的事感觉那么美好，我可能会对他的抗议感到些许恼火。
+
+"Because... A car will be picking up both up very shortly..." I speak calmly, there is no need for any of us to panic. We still have plenty of time to get ready.  
+"因为...很快就会有一辆车来接我们俩..." 我平静地说道，我们没必要慌张。我们还有足够的时间准备。
+
+Kaworu unfortunately does not share my desire to remain calm. He suddenly bolts upright, the back of his head almost connecting with my chin as he does so. I get the full brunt of his hair in my face and in one swift movement he throws the covers to the floor exposing us to the cooler air.  
+遗憾的是，渚薰并没有和我一样保持冷静的意愿。他突然直挺挺地坐起来，后脑勺差点撞到我的下巴。他的头发猛地扑到我脸上，紧接着他迅速将床单扔到地板上，让我们暴露在较凉的空气中。
+
+"Crap! I... I forgot... I... We...! Oh crap, oh crap! They... They're going to..." Kaworu gets off of the bed and looks around for a moment. He then hurries to his set of drawers.  
+"糟糕！我...我忘了...我...我们...！哦糟糕，糟糕透顶！他们...他们要..." 渚薰从床上下来，环顾四周片刻后，急忙走向他的抽屉。
+
+"Kaworu! Calm down." I try to say something to calm my naked and pale boyfriend down as he flails around the room.  
+“薰！冷静点。” 我试图安抚我那赤裸着苍白身躯、在房间里乱窜的男友，他正手忙脚乱地四处扑腾。
+
+Unfortunately, my words have no effect on him, I watch as things unfortunately play out as I expect them to. He pulls a pair of boxers out of the drawer and starts to slide them on. I look on as he almost stumbles putting his leg through one of the holes. Normally I'd admire the display of Kaworu putting on his clothes but today his display is more amusing then seductive.  
+不幸的是，我的话对他毫无作用，我眼睁睁看着事情如预期般糟糕地发展。他从抽屉里拽出一双内裤，开始往腿上套。我看着他差点因为把腿伸进一个洞里而踉跄。通常我会欣赏薰穿衣服的画面，但今天他的表演与其说是诱人，不如说是滑稽。
+
+With his underwear on he heads to the wardrobe and begins to pull out his suit. I decide now might be a good time to try to calm him down again, "Kaworu... It'll be fine, we still have plenty of time!"  
+穿上内裤后，他走向衣柜，开始拿出他的西装。我决定现在或许是再次尝试让他冷静下来的好时机，“薰……没事的，我们还有充足的时间！”
+
+He shakes his head as he throws takes his trousers off of the hanger and puts the rest of the suit onto the bed, "No... No... If we're late then... They'll definitely say no, they..."  
+他摇着头，从衣架上取下裤子，将剩下的西装放在床上，“不……不……如果我们迟到了……他们肯定会说不，他们……”
+
+"Kaworu!" I call out his name as he scrambles to try to put his trousers on. Time seems to slow down as I realize exactly what is about to happen. I scramble out of the bed onto the same side as him, myself still completely naked. I put out my arms moments too late as he tries to put one of his legs into the set of trousers, he misjudges it in his haste and stumbles forward. I hear a small yelp from him followed by a loud thud as he hits the ground at my feet.  
+“薰！”我喊出他的名字，他正慌乱地试图穿上裤子。时间似乎慢了下来，我意识到即将发生什么。我从床上爬到他那边，自己还一丝不挂。我伸出双臂，但为时已晚，他急忙将一条腿伸进裤子里，却因匆忙而判断失误，向前踉跄。我听到他发出一声轻微的惊叫，紧接着是一声巨响，他跌倒在我脚边。
+
+I glance down at him as he lies there with an embarrassed and dazed look on his face. I kneel down by his side, "Are you hurt?"  
+我低头看着他，他躺在那里，脸上带着尴尬而茫然的表情。我跪在他身边，“你受伤了吗？”
+
+He shakes his head, "Only my pride..."  
+他摇了摇头，“只有我的骄傲……”
+
+"Idiot." I mutter, "I told you to calm down."  
+“白痴。”我低声说，“我告诉过你要冷静。”
+
+"Help?" “帮忙？”
+
+I sigh as I stand back up and extend a hand to help him up, he averts his eyes from me sheepishly as he resumes putting on his clothes, at a much slower pace. At this moment I become more aware of my own nudity and some slight embarrassment creeps in. I'm still not completely used to Kaworu seeing me like this, it's one thing for him to see me or parts of me in the heat of the moment but another to be completely naked around him outside of that.  
+我叹了口气，站起身来，伸出手去扶他起来，他羞涩地避开我的目光，继续慢吞吞地穿衣服。此刻，我更加意识到自己的赤裸，一丝尴尬悄然爬上心头。我仍然不完全习惯被渚薰这样看着，激情时刻他看到我或我的一部分是一回事，但在那之外完全赤裸地在他面前又是另一回事。
+
+I move past him towards the drawer, as I do I catch a glimpse of myself in the mirror. I stop for a moment and look at the faint scarring on my chest, my only 'souvenirs' of my time as an Evangelion pilot. I don't even have my hair clips anymore.  
+我走过他身边，朝抽屉走去，途中瞥了一眼镜中的自己。我停顿了一下，看着胸前淡淡的疤痕，这是我作为 EVA 驾驶员仅有的‘纪念品’。我甚至连发夹都没有了。
+
+"Asuka, is everything alright?"  
+“明日香，一切都好吗？”
+
+I turn to see the look of concern on his face and also realize my hand has now reached up to where my scars are. I nod, "It's fine."  
+"我转头看到他脸上的关切表情，同时也意识到自己的手已经不自觉地抚上了伤疤处。我点点头，“没事。””
+
+"Are... Your scars hurting you?"  
+“你……你的伤疤在疼吗？”
+
+I shake my head, "No, they don't hurt. They never have done I just... Never really noticed them before."  
+我摇摇头，“不，它们不疼。从来都不疼，只是……我以前从未真正注意到它们。”
+
+"Sorry." He mutters as I shoot him a look. He opens his mouth to say something but quickly mumbles another infuriating apology.  
+“对不起。”他咕哝着，我瞪了他一眼。他张嘴想说些什么，却很快又含糊地道了个令人恼火的歉。
+
+I take another look at myself before deciding to put some clothes on. The first time Kaworu saw my scars properly he nearly cried, I wasn't quite sure why after all it wasn't his fault they were there. He explained later that the Evangelion Units responsible for that were actually powered by a dummy plug with his data within it. He actually felt responsible, funny that, the two men in my life both feel responsible in some way for my death and scarring.  
+我又打量了自己一番，决定穿上衣服。第一次卡哇伊看到我的伤疤时，他几乎要哭了，我不太明白为什么，毕竟这些伤疤不是他的错。后来他解释说，造成这一切的 EVA 机体实际上是由一个含有他数据的模拟插头驱动的。他真的感到有责任，真有意思，我生命中的两个男人都以某种方式觉得对我的死亡和伤痕负有责任。
+
+I on the other hand don't blame them for it. The dummy plug was doing what it was told to do and even if Shinji had been able to help me fight them would it have mattered? Those things didn't seem like they could be beaten.  
+而我，并不怪罪他们。那个模拟插头只是在执行命令，即使真嗣能帮我对抗它们，又会有什么不同呢？那些东西看起来根本无法被打败。
+
+Do I hate those scars? Damn right I do, they remind me that I lost. They remind me of the pain I felt and they remind me that I died. They also remind me of how lucky I am to get a second chance. They're a double-edged sword, well perhaps lance would be more appropriate.  
+我恨这些伤疤吗？当然恨，它们提醒我我输了。它们让我回想起那种痛苦，还有我死去的事实。但它们也让我意识到自己有多幸运，能得到第二次机会。它们是一把双刃剑，或许用‘长矛’来形容更为贴切。
+
+I glance quickly at Kaworu again as he finishes buttoning up his shirt and start to put my underwear on. It is strange how I am starting to feel more at ease with certain things around him. I never used to imagine myself as being the sort of person who could be comfortable naked or even semi naked around another person. I never even used to be comfortable being naked around myself.  
+我快速瞥了一眼正在扣衬衫扣子的渚薰，然后开始穿我的内裤。奇怪的是，我开始在他身边对某些事情感到更自在了。我从未想过自己会成为那种能在别人面前裸体或半裸体感到舒适的人。我甚至从未习惯在自己面前裸体。
+
+Yet there is something about being with Kaworu that just puts me at ease. I'm still not completely comfortable but I'm a hell of a lot more than I ever thought I would be. I suppose that is proof that I am progressing in some way towards what I... want to be? I've actually let Kaworu see me, all of me, my scars and all. I... Well I've certainly seen all of him, he seemed slightly more apprehensive about it than I did. Ironic, considering he told me when he was an Angel he felt no shame about that sort of thing.  
+但和渚薰在一起的某些东西让我感到放松。我仍然不完全自在，但我比以前想象的要好得多。我想这证明我在某种程度上向着我想成为的样子前进？我真的让渚薰看到了我，包括我的伤疤。我...嗯，我也确实看到了他的一切，他似乎比我更紧张。讽刺的是，考虑到他曾告诉我作为天使时对这种事毫无羞耻感。
+
+I continue to get ready, both of us getting our suits on fairly quickly. I brush my hair, spray on some perfume and add a small amount of makeup, nothing much but just enough to hide any evidence of our prior activities.  
+我继续准备着，我们俩都很快穿上了西装。我梳理头发，喷了点香水，再稍微化点妆，不多，只是刚好能掩盖我们之前的活动痕迹。
+
+It doesn't take us long to get ready, truthfully, I've never been someone who took too long to get ready. Well, that isn't strictly true. When I was younger, when I was 'her', I would have taken a lot longer to get ready. I had to have the perfect look, the right dress, the right makeup and the right perfume for the time. I had to ensure it was all fine to get the spotlight on me, and me alone. Now... Well it's not that I don't care about how I look, I do care but I just don't want the spotlight to be on me. I don't want people to notice me, it's the last thing I'd want.  
+我们没花多少时间就准备好了，说实话，我从来不是那种需要很长时间准备的人。嗯，这么说也不完全准确。当我年轻时，当我是‘她’的时候，我会花更长时间准备。我必须要有完美的外表，合适的裙子，恰到好处的妆容和香水。我得确保一切都无可挑剔，以便成为众人瞩目的焦点，只属于我一个人。现在...并不是说我不在乎自己的外表，我确实在乎，只是我不希望成为焦点。我不希望被人注意到，这是我最不想要的。
+
+I look back in the mirror and as if by magic my good feelings from earlier fade away and the doubt and nervousness creeps in. I fire a glance at Kaworu, I can see that he is nervous as well, sat on the edge of the bed in his suit and glancing down at the ground. He looks pale, well paler than usual.  
+我回头看向镜子，仿佛魔法般，之前的好心情消失了，怀疑和紧张感悄然袭来。我瞥了一眼渚薰，我能看出他也很紧张，坐在床边，穿着西装，低头看着地面。他看起来很苍白，嗯，比平时更苍白。
+
+I look back at myself and start to ask myself questions in my mind. What if I'm not able to do this for Kaworu? What if I do end up failing him? What happens next? I've been talking to Shinji about this and others, we've decided that this isn't just about getting Kaworu to be able to go to Japan for a concert. This is about allowing him to live as a free person, to not be restricted or watched like some sort of villain.  
+我回头审视自己，心中开始自问。如果我无法为渚做到这一点怎么办？如果我真的让他失望了怎么办？接下来会发生什么？我和真嗣讨论过这个问题和其他事情，我们决定这不仅仅是为了让渚能去日本参加音乐会。这是为了让他在自由的环境中生活，不被限制或像罪犯一样被监视。
+
+If I fuck this up then... he's restricted, he's scrutinized and he loses that power. So, the question is, if I do fuck this up then will I also lose him? Will Kaworu hate me for fucking this up?  
+如果我搞砸了……他就会被限制，被严密审查，失去那份力量。所以问题是，如果我真的搞砸了，我也会失去他吗？渚会因为我搞砸了而恨我吗？
+
+I try to fight these fears away but another voice is there warning me that I've done it again. I've talked big without realizing that I'm powerless to back it up. It's no different to how I used to be, arrogance and overconfidence and no ability. I'm preparing to fail and I haven't even gotten there yet. Let's be honest though, I'm no strange to failure, I've been doing it for most of my life.  
+我试图驱散这些恐惧，但另一个声音警告我，我又一次夸夸其谈，却没有意识到自己无力支撑。这与我过去的样子没有什么不同，傲慢、过度自信且无能。我正准备失败，甚至还没开始。不过说实话，我对失败并不陌生，我一生中的大部分时间都在经历失败。
+
+This time though... It's different because I'm not alone in this fight and for once in my life I'm actually accepting it, I'm actually happy about it or at least I'm actually willing to admit I'm happy about it. Truth is, as much as I said that I hated being team mates with Shinji and Rei back then, when the three of use worked together it was some of the happiest moments of my miserable life. I just couldn't admit it. Well I can now, I need help and as much as it dents my pride to admit it I need to rely on others.  
+然而这一次...情况不同了，因为我不再独自面对这场战斗，而且这是我一生中第一次真正接受这一点，我确实对此感到高兴，或者至少我愿意承认我对此感到高兴。事实上，尽管我曾说过我讨厌与真嗣和绫波一起成为队友，但当我们三人并肩作战时，那是我悲惨生活中最快乐的时刻。我只是无法承认。但现在我可以了，我需要帮助，尽管承认这一点让我自尊受损，但我需要依靠他人。
+
+This all makes me feel slightly better, I know that together... we can do this. We might not be seperated by half the world but we can do it. Me and him, like we used to be able to. When we worked together... nothing could stop us. The invincible Shinji... I used to call him that with such disdain but today I'm calling him it because I believe it.  
+这一切让我感觉好了一点，我知道，只要我们在一起...我们就能做到。我们或许没有被半个世界分隔，但我们能做到。我和他，就像我们曾经能够做到的那样。当我们并肩作战时...没有什么能阻挡我们。无敌的真嗣...我曾带着轻蔑这样称呼他，但今天我这样称呼他是因为我相信这一点。
+
+Please Shinji... Come through for us...  
+请真嗣...为我们挺过来...
+
+"Everything is... going to be alright... isn't it?"  
+“一切都会...好起来的...对吧？”
+
+I hear Kaworu softly speak and I turn to look at him again. He's still sat at the edge of the bed, his hands trembling with nerves. I try to hide away any doubt and fear I'm feeling. If I show that then it helps no one. I realize that I have to put up that front for just a little while today, I have to try and become... 'her' once again.  
+我听到卡哇伊轻声说话，再次转头看向他。他依旧坐在床边，双手因紧张而颤抖。我试图隐藏自己的任何疑虑和恐惧。如果我表现出这些，那对任何人都没有帮助。我意识到今天我必须再坚持一会儿，我必须努力再次成为...‘她’。
+
+As I make my way towards him I wonder, just who is she? I cast my mind back to that fourteen-year-old version of myself, that girl I used to be and the one I'm so very afraid of. I think of her like some sort of ghost that haunts me. I think of her as if she is a spectre that I've tried to exorcise but she never truly goes away.  
+当我走向他时，我不禁思考，她究竟是谁？我回想起十四岁时的自己，那个曾经的女孩，那个我如此害怕的她。我像对待一个幽灵一样想起她。我像对待一个我试图驱除却从未真正离开的鬼魂一样想起她。
+
+I'm not the only one with these ghosts though, Kaworu... Shinji... Rei... we all have them. All of them take the form of these versions of us from many years ago but we warp and distort them. They are made up not of who we are but who we think they were, created by our fears.  
+我并非唯一被这些幽灵缠绕的人，Kaworu... Shinji... Rei... 我们都有。它们都以多年前我们这些版本的形态出现，但我们扭曲和变形了它们。它们不是由我们是谁构成的，而是由我们认为他们是谁构成的，由我们的恐惧创造。
+
+They aren't bad though, they aren't evil and we shouldn't be afraid to accept them. I... I sort of understand this now. I understand that the person I think of myself as being isn't the full story and that not everything about me back then was bad. Still... I have that worry, if I allow even a little bit of that girl to slip back in... will I not regress and lose who I am now?  
+然而，它们并不坏，它们不是邪恶的，我们不应该害怕接受它们。我...我现在有点明白了。我明白我自认为的那个人并不是全部的故事，而且那时候的我并非一切都糟糕。尽管如此...我仍有担忧，如果我允许那女孩的一丝一毫重新渗入...我会不会倒退，失去现在的自己？
+
+No. I won't do that. I can't do that, I'm not scared of who I am. Not anymore.  
+不。我不会那样做。我不能那样做，我不再害怕自己是谁。不再害怕了。
+
+So with that I kneel down in front of Kaworu and grin, "Of course it will!"  
+于是我跪在渚薰面前，咧嘴一笑，“当然会成功！”
+
+"Are you... sure?" He asks me.  
+“你……确定吗？”他问我。
+
+I look into his eyes and nod, "Are you kidding? With me and the invincible Shinji in your corner, how can it go wrong?"  
+我凝视着他的眼睛，点头道，“开玩笑吧？有我和无敌的真嗣在你这边，怎么可能会失败？”
+
+Good, confident with just the right amount of arrogance. I can do this, I can channel her. My words also seem to have had an effect on Kaworu. He smiles back at me, "Are you... nervous?"  
+"好，自信中带着恰到好处的傲气。我能做到，我能模仿她。我的话似乎也对渚薰产生了影响。他回以微笑，问道：“你……紧张吗？””
+
+I nod at him and take his hand, placing it on my chest and holding it over my rapidly beating heart, "Yes, but... that's fine. I was nervous every time I would go out and kick an Angel's ass."  
+"我朝他点点头，拉过他的手放在我的胸口，让他感受我急速跳动的心脏，“是的，但……没关系。每次出去痛击使徒时，我都会紧张。””
+
+He smiles as he holds his warm hand in place for a moment, "I watched your old footage you know... You were really talented."  
+"他微笑着，将温暖的手掌停留片刻，“我看过你以前的录像，你知道的……你真的很出色。””
+
+"Of course I was! I trained for nearly ten years to get that good." I shoot back, "It's going to be fine Kaworu, we'll make them see sense."  
+"当然我是！我训练了近十年才达到那个水平。" 我回击道，"一切都会好的，卡乌尔，我们会让他们明白道理的。"
+
+"Shinji..." Kaworu removes his hand, "He is really going to help us?"  
+"真嗣..." 卡乌尔移开手，"他真的会帮我们吗？"
+
+I give him another nod, "Yup, and I didn't even have to threaten him."  
+我再次点头，"是的，我甚至都没威胁他。"
+
+"Y-You wouldn't have done?" He asks me with some horror on his face.  
+"你——你不会真的那么做了吧？" 他带着些许惊恐的表情问我。
+
+"No! Of course, I wouldn't You idiot!" I reply instantly, "It's like I told you, he did take some persuading initially. He wasn't sure he could really help us."  
+"当然没有！你这个笨蛋！" 我立刻回答，"就像我之前告诉你的，他一开始确实需要一些说服。他不太确定自己真的能帮到我们。"
+
+"I know." Kaworu looks down, "I just... Worry that he hates me and might not do this."  
+"我知道。" 渚薰低头说道，"我只是……担心他讨厌我，可能不会这么做。"
+
+I squeeze Kaworu's hand as I speak, "Shinji doesn't hate you. In fact I... I don't think Shinji is really capable of hating anyone. When I was at my worst towards him he didn't hate me, I yelled and screamed at him, I... I never hit him but I threw things and damaged stuff and he never hated me."  
+我紧握着渚薰的手说道，“真嗣并不恨你。事实上，我……我认为真嗣其实不太能恨任何人。即使我对他最恶劣的时候，他也没有恨我，我对他大喊大叫，我……我从未打过他，但我扔东西、破坏物品，而他从未恨过我。”
+
+I pause for a moment, "I... I don't even think he hates his own father. It's... kinda annoying in a way, I think some people deserve to be hated. Some people you... can't forgive."  
+我顿了一下，“我……我甚至不认为他恨自己的父亲。这……在某种程度上有点烦人，我觉得有些人是应该被恨的。有些人你……无法原谅。”
+
+Kaworu nods, he understands what I'm talking about, he has confessed to me his conflicting thoughts on SEELE and his upbringing.  
+渚薰点头，他明白我在说什么，他已经向我坦白了他对 SEELE 和成长经历的矛盾想法。
+
+"Shinji... doesn't know how to feel regarding you but he definitely doesn't hate you and he wants to help you. I think with him helping we can do this. In fact, I know we can, there is no better team than me and Shinji."  
+“真嗣...对你感觉如何他并不清楚，但他绝对不讨厌你，而且他想帮助你。我认为有他的帮助，我们能做到。事实上，我知道我们能做到，没有人比我俩和真嗣组成的团队更出色了。”
+
+I grin once more as I say those words. It's funny to think of myself saying such a thing whilst I'm trying to channel some of the confidence of that younger Asuka. She'd hate me for admitting I need help from anyone but I know there is no shame in it.  
+我再次咧嘴一笑，说出这些话。想到自己试图模仿年轻时的明日香那种自信，真是好笑。她会讨厌我承认需要任何人的帮助，但我知道这并不丢脸。
+
+Still I do feel a slight dent to my pride as I say it. Those ideals were chiseled into me over and over again for almost ten years. I told myself repeatedly I had to do everything alone, that I didn't need anyone else and it was weak to rely on others. It's hard to undo ten years' worth of damage and trauma in half the time it took to put it in place.  
+尽管如此，说出这话时我还是感到一丝自尊受损。这些观念在我心中反复雕琢了近十年。我一再告诉自己必须独自完成一切，不需要任何人，依赖他人是软弱的表现。要在半时间内消除十年累积的伤害和创伤，实在不易。
+
+Being friends with Rei, being in touch with Shinji again and falling for Kaworu... Well I feel like that has helped speed it up. Maybe it is fine to need other people.  
+与丽成为朋友，再次与真嗣保持联系，以及对渚的感情...我觉得这些都加速了这一过程。或许，需要他人并不是坏事。
+
+"I really love you Asuka." Kaworu suddenly speaks, "Thank you... For everything."  
+“我真的非常爱你，明日香。”渚突然说道，“谢谢你...为一切。”
+
+My hand squeezes his once again as I lean in and kiss him softly on the lips, I get to my feet, "I love you too Kaworu. Now... Shall we get this over and done with?"  
+我再次握紧他的手，倾身轻轻吻上他的唇，然后站起身来，“我也爱你，渚。现在...我们是不是该把这件事解决了？”
+
+---
+### Chapter 17: Lifting Shadows  
+第十七章：揭开阴影  
+
+**Tokyo 2 - UN Embassy – Waiting Room - Shinji Ikari  
+东京 2 区 - 联合国大使馆 - 等候室 - 碇真嗣**
+
+I'm sat nervously in a small room waiting to be let into the meeting room with the council. My meeting should have started ten minutes ago but I've been told the group are running late. Misato did warn me that that would be likely, she said that in her experience these sorts of meetings never start on time.  
+我紧张地坐在一间小房间里，等待被允许进入与委员会的会议室。我的会议本应在十分钟前开始，但我被告知那群人迟到了。美里确实警告过我这很可能会发生，她说根据她的经验，这类会议从来不会准时开始。
+
+So, for the moment I am sat, alone in this small room. I'm on a fairly uncomfortable seat and across from me is an old television playing a repeat of an old gameshow. I'm not sure how old it is but it's in English and seems to be themed around darts of all things. It has subtitles and I've just watched the contestants win a speedboat.  
+此刻，我独自坐在一间狭小的房间里。身下是一张颇为不舒服的椅子，对面是一台老旧的电视机，正播放着一档老游戏节目的重播。我不确定这节目有多久远，但它是英文的，主题竟然是飞镖。节目有字幕，我刚看到参赛者赢得了一艘快艇。
+
+Would they even want a speedboat? What if they don't live near any water? How do they split a speedboat between them?  
+他们真的会想要一艘快艇吗？如果他们不住在靠近水域的地方怎么办？他们怎么分这艘快艇呢？
+
+I'm not quite sure that frightens me more, the idea of this meeting or the badly drawn cartoon bull that has appeared frequently throughout the show.  
+我不太确定哪个更让我害怕，是这次会面的想法，还是节目中频繁出现的画风糟糕的卡通公牛。
+
+I continue watching this bizarre terribly-yet-good show for a few moment minutes and finally the door to the meeting room opens up. A small woman steps through and smiles at me.  
+我继续观看这部古怪却又不失精彩的糟糕节目，过了几分钟，会议室的门终于打开了。一位娇小的女士走了进来，对我微笑。
+
+"Terribly sorry to keep you waiting, we had some issues with the tech. The council are ready to meet with you now."  
+非常抱歉让您久等了，我们的技术出了些问题。议会现在准备好与您会面了。
+
+I immediately rise to my feet and try to disguise the trembling in my body. I can't let them see any fear from me. I need to step through there and be confident in what I say and do. I can't afford to make any mistakes in front of these people.  
+我立刻站起身来，试图掩饰身体的颤抖。我不能让他们看到我有一丝恐惧。我必须走进去，自信地表达和行动。在这些人面前，我不能犯任何错误。
+
+"Okay." I nod at her and follow her through into the room, leaving the world of cartoon bulls and darts behind.  
+“好的。”我向她点头，跟着她穿过门进入房间，将卡通公牛和飞镖的世界抛在身后。
+
+The meeting room is what I expected it to be, it is a wide and open room with a large circular table planted in the middle. The air in the room is cool, and I hear the low hum of an air conditioner. I see one seat set up in the room, in front of it is a bottle of water and a see through plastic cup. I presume that this is going to be my seat. The room is somewhat brighter than I expected, I see a few decorative plants in the corners, some bookshelves and the flags of the member countries on the walls.  
+会议室正如我所料，宽敞开阔，中央摆放着一张巨大的圆形桌子。房间里空气凉爽，我听到空调低沉的嗡嗡声。我看到房间里设有一个座位，前面放着一瓶水和一只透明的塑料杯。我猜这就是我的座位。房间比我想象的要明亮些，角落里有几盆装饰植物，书架和成员国的国旗挂在墙上。
+
+I admit, I am slightly confused by the lack of seating in the room. Aside from my chair there are no others around the table, instead there are nine metallic blocks where the seats would be. I turn to the woman who brought me in, "W-Where is everyone else?"  
+我承认，我对房间里缺少座位感到有些困惑。除了我的椅子外，桌子周围没有其他椅子，取而代之的是九个金属块。我转向带我进来的那位女士，“其他人呢？”
+
+She lets out a small laugh, "Oh, of course! I should have explained. The council are not going to be here physically, there are currently in Berlin and this meeting will be done remotely, the council will be represented holographically."  
+她轻笑一声，“哦，当然！我应该解释一下。议会成员不会亲自到场，他们目前正在柏林，这次会议将以远程方式进行，议会将通过全息影像代表出席。”
+
+"Oh... I see..." I nod again as I take a few tentative steps forward towards the large seat waiting for me, it's one of those semi comfortable executive looking chairs. I sit myself down in it awkwardly and take a moment to adjust. I ask myself if the seat is comfortable enough. Should I adjust it? Can I adjust it? How should I be sitting in the seat? Should I have my arms on the armrests or on the tables?  
+“哦……我明白了……”我再次点头，小心翼翼地向前走了几步，来到那把为我准备的大椅子前，这是一把半舒适的行政椅。我笨拙地坐下，调整了一下姿势。我自问这椅子是否足够舒适。我应该调整它吗？我能调整它吗？我应该怎么坐？手臂是放在扶手上还是桌子上？
+
+In the end I settle for not adjusting the seat and just sitting with my arms neatly folded in front of me. The woman leaves the room and I take a few steady breaths and look around the now empty room. I realize, likely much too late, that I am... not prepared for this. I really don't know if I can do this. I wish I had someone here with me. I wish Misato or Rei were here. I wish Asuka was here. I can't do this... I can't face this on my own!  
+最终，我决定不调整椅子，只是端正地坐着，双臂整齐地交叉在身前。那位女士离开了房间，我深呼吸几次，环顾这个空荡荡的房间。我意识到，可能已经太晚了，我……没有准备好面对这一切。我真的不知道我能不能做到。我希望美里或绫波丽在这里。我希望明日香在这里。我不能独自面对这一切！
+
+Unfortunately, I have little choice now, before I can even get lost in my own sudden loss of confidence I hear a whirring noise and one by one each of the devices around the table suddenly come to life. I see nine people appear in front of me. They are a mixture of men and women, of varying ethnicity. One of them, an older Japanese man situated to my right looks familiar but I can't place his face.  
+遗憾的是，我现在别无选择，在我还来不及沉浸在自己突如其来的信心丧失中时，我听到了一阵嗡嗡声，桌子周围的设备一个接一个地突然启动了。我看到九个人出现在我面前。他们男女混杂，种族各异。其中一位坐在我右边的老日本男人看起来很眼熟，但我认不出他的脸。
+
+At the head of the table, across from me is a rather stocky looking bald man with a bushy ginger moustache. He looks directly at me and starts to speak, he has a German accent but is speaking Japanese, "Sorry to have kept you waiting Herr Ikari, sometimes the technology we use for these conferences does not always perform to the standards that we would like it to. Sometimes I long for the days of face to face meetings, they seemed easier but technology does move in but I am digressing. I hope you are well?"  
+坐在桌子对面，正对着我的是一个看起来相当健壮的光头男子，留着浓密的姜黄色胡子。他直视着我，开始说话，带着德国口音，但说的是日语，“很抱歉让您久等了，碇先生，有时候我们用于这些会议的技术并不总能达到我们期望的标准。有时候我怀念面对面的会议，它们似乎更简单，但技术确实在进步，我有点跑题了。希望您一切安好？”
+
+I give a nod and I'm not quite sure what to say in reply to him. Do I smile and say something about the technology as well? Do I just say I am fine? Already I am thrown, this man is different to what I had expected, especially for someone in a position of such power. He seems jolly and so unlike the stuffier politicians I've seen on television or even the ones I have encountered.  
+我点了点头，不太确定该如何回应他。我是该微笑着谈论一下技术呢，还是简单地说我很好？我已经感到有些措手不及，这个人与我预想的截然不同，尤其是处于如此高位的人。他显得很愉快，与我见过的那些电视上或现实中更为严肃的政客大相径庭。
+
+I take a quick moment to look at the others on the council. A few of those look much more like I had expected them too, in particular the Japanese guy to my right who is, unless I am imagining things, scowling at me.  
+我迅速扫视了一下委员会的其他成员。其中几位看起来更符合我的预期，特别是我右边的那位日本男士，除非我看错了，他似乎正对我皱眉。
+
+"I... I am fine, thank you." I finally reply.  
+“我……我很好，谢谢。”我终于回答道。
+
+"Very good." He announces, his booming voice echoes around the room.  
+“非常好。”他宣布道，洪亮的声音在房间里回荡。
+
+As I see and hear this man I feel slightly more at ease, unfortunately the others don't give me that same feeling. I feel like half of them are scowling at me and looking at me with hate in their eyes, I feel like the other half are looking at me with admiration. It had dawned on me as I was preparing for this that the people I meet will all know who I am, this is the on situation where people where I can be sure of that.  
+当我看到并听到这个人时，我感到稍微放松了一些，不幸的是，其他人并没有给我同样的感觉。我感觉一半的人在对我怒目而视，眼中充满了仇恨，而另一半则用仰慕的目光看着我。在我为这次会面做准备时，我意识到我遇到的人都会知道我是谁，这是唯一一个我能确信人们认识我的场合。
+
+I am trying to keep clam about that fact, just because these people know who I am doesn't mean anything bad can happen. Nothing bad can happen, these people aren't even here physically so they can't hurt me. I am safe and secure here and they have a job to do. What they think of me personally doesn't matter.  
+我试图保持冷静，仅仅因为这些人知道我是谁，并不意味着会发生什么坏事。不会发生任何坏事，这些人甚至不是以实体形式存在，所以他们无法伤害我。我在这里既安全又受保护，他们有他们的工作要做。他们对我的个人看法并不重要。
+
+"We are here to discuss the matter of Mr Kaworu Nagisa." He speaks again, "it is the belief of this committee that both yourself and former pilot Asuka Langley Soryu would like to appeal against our decision to restrict Mr Nagisa's activities. This meeting will therefore be used to help establish whether or not we should reverse that decision, is this understood by everyone?"  
+“我们聚集于此，是为了讨论关于碇真嗣先生的事宜。”他再次开口，“本委员会认为，您与前驾驶员惣流·明日香·兰格雷小姐有意对限制碇真嗣先生活动的决定提出申诉。因此，本次会议将用于探讨是否应撤销该决定，各位是否都已理解？”
+
+I nod my head and look around again to see the others nod their heads and give murmurs of agreement. After this the members of the council introduce themselves to me, when it comes to the Japanese man who has been scowling at me he introduces himself as Shiro Tokita, again I can't help but feel like I have heard the name before but I cannot think where.  
+我点头回应，环顾四周，见其他人也纷纷点头并发出附和的低语。随后，委员会成员向我自我介绍，轮到那位一直对我怒目而视的日本男子时，他自称是土田城，我总觉得这个名字似曾相识，却想不起在哪里听过。
+
+I get little time to dwell on it though. Once again, the man in charge speaks in his loud booming voice, "Well now that we have the introductions out of the way we can begin."  
+然而，我无暇深思。主持会议的男子再次用他那洪亮的声音说道：“既然我们已经完成了自我介绍，那么现在可以正式开始了。”
+
+**Berlin - UN Embassy – Waiting Room – Asuka Langley Soryu  
+柏林 - 联合国大使馆 - 等候室 - 惣流·明日香·兰格雷**
+
+I've barely been here five minutes and I'm already in a bad mood. On arriving here, I wasn't even given a chance to say goodbye to Kaworu properly, the security grabbed me and whisked me away from him and led me straight to this waiting room. It turns out Kaworu won't be a part of these meetings today, he isn't even allowed in the building.  
+我刚到这里不到五分钟，心情就已经很糟糕了。一到这儿，我连好好跟渚薰道别的机会都没有，安保人员就抓住我，把他从我身边拉开，直接带到了这个等候室。原来渚薰今天不会参加这些会议，他甚至不被允许进入这栋大楼。
+
+Did they do this on purpose? Put me in a bad mood before the meeting starts so they can try to throw me off? Well it isn't going to work, if anything I'm just more determined now.  
+他们是故意的吗？在会议开始前让我心情不好，试图扰乱我？哼，这招不会奏效的，反而让我更加坚定了。
+
+Although, as much as I hate to admit it, I am very nervous about this. Waiting for me in that next room are nine highly trained politicians. They are each going to look to tear me apart. It's nine against one, odds I've encountered before and... to be perfectly frank, things didn't go so well for me last time.  
+虽然我极不情愿承认，但我确实对此感到非常紧张。在那间屋子里，有九位训练有素的政客正等着我。他们每个人都想把我撕成碎片。这是九对一的局面，我以前也遇到过类似的...坦白说，上次的情况对我并不利。
+
+I am determined to do this though. I have to believe that I can do this. This isn't for me, this is for Kaworu who right now will be either aimlessly wandering through a part of town he's never been in or sat outside this building.  
+但我决心要完成这件事。我必须相信自己能做到。这不仅仅是为了我自己，而是为了此时此刻可能正在某个陌生街区漫无目的地徘徊，或是坐在这栋建筑外的薰。
+
+So, I will get this done, I'll go in there and speak to them all. I'll persuade them to overturn their decision and then we will get Kaworu what he needs to go back to Japan. We'll get ourselves to the concert and we'll see them again and have a good time.  
+所以，我会完成这件事，我会走进去与他们交谈。我会说服他们改变决定，然后我们就能为薰拿到回日本的所需。我们会去参加音乐会，再次见到他们，并度过一段愉快的时光。
+
+With that thought comes another issue, one I have been thinking about more and more recently and one I don't really want to think about. When we go to Japan that will be the moment that Shinji and Kaworu reunite. I'm not an idiot, I know exactly how Kaworu feels about Shinji and I know how Shinji feels in regards to Kaworu. Despite their problems now they will feel those same feelings once again when they meet, it's inevitable.  
+这个念头一出现，另一个问题也随之而来，这是我最近越来越频繁思考的问题，也是我并不真正想面对的问题。当我们去日本时，那将是真嗣和薰重逢的时刻。我不是傻瓜，我清楚薰对真嗣的感情，也知道真嗣对薰的感觉。尽管他们现在有种种问题，但一旦见面，那些相同的感情必将再次涌现，这是不可避免的。
+
+So, what will happen to me after that? I guess... It'll be just like those dreams I had. Not the rarenice ones where the three of us are somehow together but the other ones. The ones where they both walk away and I'm left all alone. I don't want to be abandoned, I don't want to be alone, I want what I have now. I don't want to lose Kaworu.  
+那么，在那之后我会怎样呢？我想……那会像我做的那些梦一样。不是那种稀有的美好梦境，我们三人不知怎么地在一起，而是其他的梦。那些他们两人都离开，留下我孤单一人的梦。我不想被抛弃，我不想孤单一人，我想要现在拥有的一切。我不想失去薰。
+
+I try to take a moment to calm down, I'm getting ahead of myself and being stupid. For a brief second one of the nicer images from my dreams flashes into my mind. I had a dream once we all lived together, I don't know what we were... but we were all happy and just enjoyed being around one another. It is just a dream though.  
+我试图冷静下来，我有点杞人忧天，太愚蠢了。有那么一瞬间，我梦中的一个美好画面闪现在脑海里。我曾梦到我们三人住在一起，虽然我不知道我们是什么关系……但我们都很快乐，只是享受彼此的陪伴。不过，那毕竟只是个梦。
+
+That is another worry of mine, telling Shinji about what me and Kaworu are. It'll hurt him and... I really don't want to hurt him. I... I lo-… No, I can't say that because I love Kaworu now, can you love more than one person? I suppose you can... The point is I don't want Shinji to be hurt and I don't want to be the cause of pain for him.  
+那是我另一个担忧，告诉真嗣我和渚薰的关系。这会伤害他，而且...我真的不想伤害他。我...我喜-…不，我不能这么说，因为我现在爱着渚薰，一个人能同时爱两个人吗？我想是可以的...关键是，我不想让真嗣受伤，也不想成为他痛苦的源头。
+
+These are all thoughts for later though, we can deal with this when we have to. For now, I need to get a few things straight, Kaworu is not going to abandon me. I know that there might be awkwardness when we all reunite but we can deal with it there and then. All that matters right now is sorting out these ridiculous old men who have deemed it necessary to block my boyfriend from being able to live his life.  
+不过这些都是以后再考虑的事情，到时候我们自然会处理。眼下，我需要理清一些事情，渚薰不会离开我。我知道当我们重聚时可能会有点尴尬，但我们可以当场解决。现在最重要的是，要搞定这些荒谬的老头子，他们竟然认为有必要阻止我男朋友过自己的生活。
+
+I remain in the seat for a couple more minutes in this stupid and silent waiting room. I hate this room, there isn't even a television in here to provide some sort of distraction just a crappy uncomfortable seat, four white walls, a fake cactus in the corner and a fish bowl sans fish.  
+我在这间愚蠢而寂静的等候室里又坐了几分钟。我讨厌这个房间，连个电视都没有，一点分散注意力的东西都没有，只有一个破旧不舒服的座位，四面白墙，角落里一个假仙人掌，还有个空鱼缸。
+
+Finally, after what feels like an eternity the door to the main meeting room opens. An older lady walks out to greet me, she's wearing a full suit, dour expression and a voice that would make Rei sound expressive.  
+终于，在仿佛永恒的等待后，主会议室的门打开了。一位年长的女士走出来迎接我，她身着全套西装，表情严肃，声音之冷能让丽听起来都显得富有表情。
+
+"Ms Soryu, the council are now ready to see you."  
+“草薙小姐，委员会现在准备见您了。”
+
+"Finally." I mutter under my breath.  
+“终于。”我低声咕哝道。
+
+She gives me a quick glare as if she has heard me but then turns away, "The council are already seated, you will go to your designated seat and they will begin."  
+她迅速瞪了我一眼，仿佛听见了我的话，随即转过身去，“议会成员已经就座，你将前往指定的座位，他们即将开始。”
+
+As I enter the room a final wave of thoughts washes over me. Have they already spoken to Shinji? Has their decision already been made? Is there anything I can do to tip them over the edge? Am I at risk of reversing their decision?  
+当我踏入房间，最后一波思绪涌上心头。他们是否已经与真嗣交谈过？他们的决定是否已经做出？我能否做些什么来影响他们的决断？我会否有风险逆转他们的决定？
+
+I suppose I won't know until after this is done. I walk straight into the room and I feel the cold stares of the council members. The room isn't very well lit and from a brief glance seems fairly sparse. The table at the center is what I expected, large, wooden and round. The chair for me is one of those large office chairs that reminds me of something from a villain in a Bond movie might have.  
+我想，这一切只有等结束后才能知晓。我径直走进房间，感受到议会成员冰冷的目光。房间照明不佳，粗略一看显得相当空旷。中央的桌子正如我所料，宽大、木制且圆形。我的椅子是那种大型办公椅，让我联想到邦德电影中的反派可能会拥有的那种。
+
+I sit myself down and allow a quick look at the nine representatives, my enemies for today. Directly opposite me is a round bald-headed man, he actually looks like he could be the brother of the man who owns the café near to my old apartment. His demeanor doesn't seem to be the same as many politicians but I know myself how deceiving looks can be.  
+我坐了下来，迅速打量了一下今天的九位对手。正对面是一个圆脸秃顶的男人，他看起来简直像是那位在我旧公寓附近开咖啡馆的老板的兄弟。他的举止并不像许多政客那样，但我知道外表是多么具有欺骗性。
+
+The other eight are a mixture of nationality and gender, some seem to be more sour-faced and what I'd expect from a politician. One of them in particular is staring straight at me as if I was the biggest piece of trash in existence.  
+其他八人则是国籍和性别的混合体，有些人看起来一脸不悦，正是我对政客的预期形象。其中一位特别直勾勾地盯着我，仿佛我是世上最大的垃圾。
+
+Well fuck you too. 好吧，你也是。
+
+"Ms Soryu, our apologies for keeping you waiting." The man who for now I'll call Obelix announces, his voice is loud and clear.  
+"草薙小姐，很抱歉让您久等了。" 这位我暂时称之为奥贝利克斯的男人宣布道，他的声音响亮而清晰。
+
+I give a confident smirk and feel that piercing glare from the committee members intensify. I imagine they will all know who I am and they will probably know who I was. I wonder if the person they see before the today is what they expect. I wonder if they're expecting 'her' or for me to have changed.  
+我自信地微微一笑，感觉到委员会成员们的锐利目光更加强烈了。我想他们会都知道我是谁，也许还会知道我曾经的身份。我不知道他们今天见到的人是否符合他们的预期。我不知道他们是在期待'她'，还是期待我有所改变。
+
+"Now at all." I nod politely, "I haven't been here for too long."  
+"一点儿也不久。" 我礼貌地点头回应，"我并没有等太久。"
+
+"It is the understanding of the committee that you wish to bring forth an appeal to our decision to block Kaworu Nagisa from travelling outside of Germany."  
+"委员会理解您希望对我们阻止渚薰离开德国的决定提出上诉。"
+
+"That is correct." I reply.  
+""是的，没错。"" 我回答道。
+
+"This meeting today along with our meeting with your former teammate Shinji Ikari will therefore aid us in establishing whether or not we should reverse that decision. Does anyone have any objections?"  
+"今天的会议以及与您前队友碇真嗣的会面将帮助我们确定是否应该撤销该决定。有人有异议吗？"
+
+I shake my head and listen to the others. No one offers any objections to his request and then they all move into introducing themselves and the country they represent. I feign interest but in truth I couldn't care less if they represent one country or another. I just want them to change their minds.  
+我摇了摇头，听着其他人说话。没有人对他的请求提出异议，然后他们都开始介绍自己和所代表的国家。我假装感兴趣，但实际上我根本不在乎他们代表哪个国家。我只希望他们能改变主意。
+
+The last guy does intrigue me though. He's representing Japan and he addresses me with such disdain that I wonder if perhaps I have offended him in the past. I can't say I recognize him nor do I recognize his name. For all the trouble I might have been at NERV I did make sure to remember the names of the techs and people who helped me, I even donated some of my salary to them when I could. Shiro Tokita was not one of the people I remember being on that list.  
+不过，最后那个人确实引起了我的兴趣。他代表日本，对我说话时带着明显的轻蔑，让我怀疑自己是否在过去冒犯过他。我既不认识他，也不记得他的名字。尽管我在 NERV 可能惹了不少麻烦，但我确实努力记住了那些帮助过我的技术人员和同事的名字，甚至在可能的时候捐出了部分薪水给他们。白户时太并不是我记得的那份名单上的人。
+
+"So, with introductions now complete, shall we begin?" The jolly man in charge announces and I prepare myself for what will come next.  
+“那么，介绍完毕，我们可以开始了吗？”负责的乐呵呵的男人宣布道，我准备好迎接接下来将要发生的事情。
+
+**Tokyo 2 – UN Embassy – Meeting Room – Shinji Ikari  
+东京 2 区 – 联合国大使馆 – 会议室 – 碇真嗣**
+
+"Mr Ikari, or would you prefer Shinji?" The rounded gentleman asks me.  
+“碇先生，或者您更愿意我们称呼您为真嗣？”那位圆脸的绅士问我。
+
+I immediately feel all nine sets of eyes on me as he asks his question and my cheeks burn up instantly. My mind immediately jumps into overdrive wondering how I should answer him. Is this some sort of trick question? Is this a test? Should I keep it formal or should I allow them to call me by my first name? What would they prefer to do? They are all older than me, therefore they should be the ones to decide, shouldn't they?  
+他一问出这个问题，我立刻感觉到九双眼睛齐刷刷地盯着我，我的脸颊瞬间烧得通红。我的思绪立刻高速运转，思考着该如何回答。这是某种陷阱问题吗？这是考验吗？我应该保持正式还是允许他们叫我的名字？他们更倾向于哪种方式？他们都比我年长，所以应该由他们来决定，不是吗？
+
+"S-Shinji is fine." I finally say after a little bit more internal debate.  
+"新-新治没事。" 经过一番内心的争论，我终于说道。
+
+"Very well, Shinji it is..." He pauses for a moment, "So, we understand that both yourself and Ms Soryu would like to appeal our decision regarding Mr Nagisa. First of all, I would like to ask, are you aware of why we made that decision?"  
+"很好，新治就新治吧……" 他顿了一下，"那么，我们了解到你和源氏都希望对关于渚的决定提出上诉。首先，我想问一下，你们知道我们做出这个决定的原因吗？"
+
+I allow myself to look around the room at the faces of each person, despite them not being here physically and the emitters that are beaming their images in make it appear like they are. I can see each one has their eyes trained on me, each one of them expecting an answer promptly it seems. I feel a level of discomfort matching that of those rare occasions I'd find myself in my father's office.  
+我让自己环视房间里的每一张面孔，尽管他们并非亲自到场，而是通过发射器将他们的影像投射进来，使其看起来像是在场。我能看到每个人的目光都集中在我身上，似乎每个人都期待着我迅速给出答案。我感到一种不适，与那些罕见地发现自己身处父亲办公室的时刻相当。
+
+I fight back an urge to take a deep breath, I want to look confident in here and not nervous. Instead I try to place my arms on the table confidently. I bring up my hands and fold them just under my chin and nod.  
+我强忍住深呼吸的冲动，想要在这里显得自信而非紧张。于是我试着将双臂自信地放在桌子上。我抬起手，将它们折叠在下巴下方，并点了点头。
+
+"Yes, you believe that allowing Kaworu to travel outside of Germany puts the world at risk. You do not trust that he is completely human."  
+“是的，你认为允许渚薰离开德国会对世界构成威胁。你不相信他是完全的人类。”
+
+"Hah! Well he does know something after all!" I hear one of the women to my left scoff, I ignore her as best I can. I've barely been in this room and spoken to these people for ten minutes and I already dislike the majority of them.  
+“哈！他毕竟还是知道些什么的！”我听到左边的一位女士嗤之以鼻，我尽可能地忽视她。我在这个房间里才待了不到十分钟，和这些人交谈过，就已经对大多数人产生了反感。
+
+The man in charge does not flinch or acknowledge her statement. Instead he continues to look at me, his tone is light, "Correct. Now, this was not a decision we came to lightly. As the appeal pointed out, we are dealing with a person's freedom and right to live their life. You understand this?"  
+负责的男人没有退缩或回应她的话。相反，他继续看着我，语气轻松，“正确。现在，这不是我们轻易做出的决定。正如上诉所指出的，我们处理的是一个人的自由和生活的权利。你明白这一点吗？”
+
+I take a moment to think about it, Misato did warn me about how these people might speak to me. I don't want to say or do anything that might put Kaworu at risk. I don't want to make it seem like I doubt Kaworu. I do however nod, "Yes, I understand."  
+我花了一点时间思考，美里确实警告过我这些人可能会如何与我交谈。我不想说或做任何可能危及薰的事情。我不想让人觉得我怀疑薰。然而，我点了点头，“是的，我明白。”
+
+"Where there is any doubt at all we have to act in the best interests of humanity. With that in mind, can you seriously say you doubt our decision?"  
+“只要有任何疑虑，我们都必须以人类的最高利益行事。考虑到这一点，你能认真地说你怀疑我们的决定吗？”
+
+I turn to face the source of the question and come face to face with Shiro Tokita, the man who has been staring at me with a large amount of disdain since I arrived. There is a smugness to his voice that triggers some anger within me, I already seriously dislike him.  
+我转身面对提问的来源，迎面撞上了土田四郎，自从我到达这里以来，他一直用大量的蔑视目光盯着我。他声音中的自鸣得意激起了我的一些愤怒，我已经开始严重不喜欢他了。
+
+"Yes, I do because I don't believe he is a threat to humanity."  
+“是的，我这么认为，因为我不相信他对人类构成威胁。”
+
+"Hmph, an Ikari willing to put the world at risk for their own desires, like fa-"  
+“哼，一个为了自己欲望愿意将世界置于险境的碇，就像……”
+
+"Enough!" The man in charge interrupts him sharply as I feel myself tense up. This man was about to mention my father and compare me to him, he's trying to anger me and it's working. I try to calm myself as the chairman speaks, "I would ask that people maintain some form of calm during today's meeting and remember who we are. I would also ask that Shinji is offered the respect that he deserves."  
+“够了！”负责人厉声打断了他，我感到自己紧张起来。这个人即将提到我的父亲并拿我与他比较，他试图激怒我，而且成功了。我试图平复自己的情绪，主席开口说道：“我恳请大家今天在会议上保持一定的冷静，并记住我们的身份。我也希望诸位能给予真嗣应有的尊重。”
+
+Tokita falls silent but I feel more intensity from his gaze now, the other woman in the room seems to have backed away. I wonder just what sort of impression I've made, am I doing a good job or have I already messed this up. I can't help but think about how Asuka is or has done, she has a much shorter temper than I do.  
+Tokita 沉默了，但我感到他的目光更加强烈，房间里的另一位女士似乎已经退缩了。我不知道自己给人留下了什么样的印象，我做得好吗，还是已经搞砸了。我不禁想到明日香会怎么做，她的脾气比我短得多。
+
+Another woman now speaks up, the representative from the United Kingdom. She is more softly spoken than the others who have spoken up so far, "Perhaps it would be more useful if we could hear more from Shinji about Mr Nagisa. Starting from the time you met him, our own information is quite sparse concerning those events. Please, can you tell us how you met Mr. Nagisa."  
+另一位女士开口了，来自英国的代表。她的声音比之前发言的人都柔和，“也许我们能从真嗣那里了解更多关于碇先生的信息。从你们相遇的时候开始，我们关于那些事件的资料相当匮乏。请告诉我们，你是如何遇见碇先生的。”
+
+I nod my head as I take a moment to try to recall those moments as best I can. It has been some time since I have thought about those moments in full. I have thought about little parts here and there, I've had nightmares about those times but I usually avoid thinking about it. I can't avoid it today, I need to confront this part of my past if I am to help Kaworu and Asuka.  
+我点点头，花了一些时间尽力回忆那些时刻。已经有一段时间我没有完整地思考过这些了。我零星地想起一些片段，那些时光也曾在梦中困扰我，但我通常避免去想它。今天我无法回避，如果我要帮助渚薰和明日香，就必须面对这段过去。
+
+I wonder just how much they do know at this point, if I should tell them everything or keep the details loose and fill them in if they need me to. There was so much happening at that moment in time, Asuka was in the hospital, Rei had been killed and brought back in her third body, I couldn't face Misato and the city had been evacuated.  
+我不禁思考他们此时究竟知道多少，我是应该告诉他们一切，还是保持细节模糊，在他们需要时再补充。那时发生了太多事，明日香在医院，零被杀并以其第三形态复活，我无法面对美里，城市也已疏散。
+
+I settle on just my meeting with Kaworu, "I met him by chance. It was... not too long after the battle with the sixteenth Angel."  
+我决定只谈及与渚薰的相遇，“我偶然遇见了他。那是在……与第十六使徒战斗后不久。”
+
+"Were you alone when you met him?" She asks me.  
+"你遇到他的时候是一个人吗？" 她问我。
+
+I nod, "Yes. I was near to one of the lakes in the Geofront."  
+我点头，"是的。我在地表湖附近。"
+
+"Where was everyone else?"  
+"其他人都在哪儿？"
+
+"Asuka was... currently in the hospital, I do not know where Rei was and Misato was busy working." I reply, trying to give as honest an answer as I can.  
+“明日香目前在医院，我不知道绫波在哪里，而美里正忙于工作。”我回答道，尽量给出最诚实的答案。
+
+"So, you were completely alone at the lakeside, what happened next?"  
+“那么，你在湖边完全是一个人，接下来发生了什么？”
+
+"I was standing looking out over the water and then I heard someone humming a tune. I turned around and then I saw Kaworu. He was sat on top of one of the statues that had fallen into the water. He introduced himself to me."  
+“我站在那里眺望着水面，然后听到了有人哼着曲子。我转过身，看到了渚薰。他坐在一座倒在水中的雕像上。他向我介绍了自己。”
+
+She nods her head, "When you met Nagisa, would you say there was anything unusual about him?"  
+她点点头，“当你遇见渚的时候，你会说他有什么不寻常的地方吗？”
+
+I shake my head, "No... I wouldn't."  
+我摇摇头，“不……我不会。”
+
+Once again, I feel the states of the committee on me and I feel a brief moment of embarrassment. I've spoken about my meeting with Kaworu very rarely and most of those times were responding to others. When I look back on that first meeting I do wonder why I didn't notice anything being off about him. He appeared so quickly, he knew things about me and the way he spoke was so unusual.  
+又一次，我感受到委员会对我的审视，感到一阵短暂的尴尬。我很少谈及与薰的初次相遇，大多数时候都是回应他人。当我回想起那次初遇时，我确实想知道为什么我没有注意到他有什么不对劲。他出现得如此突然，他了解我的一些事情，而且他说话的方式也非常不寻常。
+
+Maybe I did notice these things but... I was so depserate for friendship and someone to care about me I just didn't care about them.  
+也许我确实注意到了这些事情，但是...我那时太渴望友谊和有人关心我了，以至于根本不在乎这些。
+
+"Absolutely nothing at all?" Tokita addresses me again, "You were a trained Evangelion pilot, the savior of humanity and you couldn't sense anything unusual about him? How was this possible? Either you are lying or not quite as sma-"  
+“真的一点都没有察觉吗？”常田再次问我，“你可是受过训练的 EVA 驾驶员，人类的救星，怎么可能对他没有任何异常的感觉？这怎么可能？要么你在撒谎，要么你并没有那么聪——”
+
+I begin to open my mouth to reply to him but before I can say anything the chairman speaks once more, "Let us remember Shiro that whilst Shinji was a trained Evangelion pilot he was not trained to weed out and investigate people. He was also a teenager and under a lot of stress and pressure at this time. He had just witnessed a friend's death and almost losing a second friend. I know myself that teenagers are not always the most observant of people under regular conditions."  
+我正要张嘴回答他，但还没来得及说出口，主席又开口了，“让我们记住，白，尽管真嗣是受过训练的 EVA 驾驶员，但他并没有受过筛选和调查人员的训练。他当时还是个青少年，承受着巨大的压力和紧张。他刚刚目睹了一个朋友的死亡，差点又失去第二个朋友。我自己也知道，青少年在正常情况下并不总是最善于观察的人。”
+
+His comment raises a small chucken from some members of the room but not from Tokita who just continues to glare at me.  
+他的评论让房间里的一些成员发出轻微的笑声，但富田却没有，他只是继续瞪着我。
+
+"Therefore, I think it is fair to cut Shinji some slack in this situation."  
+“因此，我认为在这种情况下对真嗣宽容一些是公平的。”
+
+"I did... notice something unusual about him when I met him." I speak up after Tokita falls silent. I wonder if saying this is a mistake but perhaps honesty will help, "He looked... well he reminded me a bit of Rei who I had found out wasn't... human not too long before that. I... guess I didn't think anything of it though. People can... look different, so I didn't see why that mattered."  
+“我确实……在见到他时注意到了一些不寻常的地方。”在富田沉默后，我开口说道。我不知道这样说是不是个错误，但或许诚实会有所帮助，“他看起来……嗯，他让我想起了零，而我在那不久前才发现零不是……人类。我……我想我当时并没有多想。人们可以……看起来不同，所以我没觉得这有什么重要的。”
+
+"Quite a mature outlook for someone so young." The woman from before nods, "Was there anything else?"  
+"对于如此年轻的人来说，这是一个相当成熟的观点。"之前的那位女士点头道，"还有别的事吗？"
+
+I nod, "Yes, he kept on using the word Lilin which I thought was... odd."  
+我点头，"是的，他一直使用'莉莉丝'这个词，我觉得...很奇怪。"
+
+"Lilin?" Tokita speaks again, much to my annoyance, "And this did not raise a red flag? The connection between Lilin and Lilith?"  
+"莉莉丝？"时田又开口了，让我颇为恼火，"这难道没有引起你的警觉吗？莉莉丝和莉莉丝之间的联系？"
+
+I shake my head, "No, I... I didn't know what it meant. I thought that because he had come from oversears that it was just a foreign word. Asuka used German words all the time in front of me."  
+我摇摇头，“不，我……我不知道那是什么意思。我以为因为他来自 overseers，那只是一个外国词汇。明日香在我面前经常使用德语单词。”
+
+"But by that point you were aware of Lilith, so the connection must have been obvious."  
+“但那时你已经知道莉莉丝了，所以这个联系应该是显而易见的。”
+
+"No, at that time I didn't know about Lilith." I reply, "I had seen it but I didn't know..."  
+“不，那时我还不知道莉莉丝。”我回答，“我见过它，但我不知道……”
+
+"It seems, Mr Ikari, that there are a number of things that you do not know, nor were you aware of. How therefore, can we take you seriously during this discussion?" Tokita cuts me off and glares at me. I don't feel any intimidation from him, more just irritated and I really do wonder if I have done something wrong to him or if this is just how he is."  
+"看来，碇先生，有许多事情你并不知晓，也未曾意识到。那么，我们如何在这次讨论中认真对待你呢？" 土田打断了我，瞪着我。我并未感到他的威胁，只是觉得有些恼火，我真的想知道是否我对他做了什么错事，还是他一贯如此。
+
+"Shiro..." The woman from before speaks up again, "You know just as well as I do that NERV kept a vast number of secrets and gave out misinformation all the time. Shinji will have been a victim of this as well."  
+"白..." 之前那位女士再次开口，"你和我一样清楚，NERV 隐藏了大量秘密，并时常散布错误信息。真嗣也是这种行为的受害者。
+
+"indeed!" The man to Tokita's right speaks up, he reminds me a bit of Kaji, "It is pointless to berate him for not knowing something which he had no means to know. Besides we are not here to find out what he knew about NERVs inner workings, we are here to discuss Nagisa. So, let's hear more about that, what was he like when you met him?"  
+"确实如此！" 土田右边的那位男士发言了，他让我想起了加持，"责备他不知道那些他无从得知的事情是毫无意义的。况且，我们不是来探究他对 NERV 内部运作的了解，而是来讨论渚的。那么，让我们多听听关于他的事情，你初次见他时，他是怎样的？
+
+**Berlin – UN Embassy – Meeting Room – Asuka Langley Soryu  
+柏林 – 联合国大使馆 – 会议室 – 惣流·明日香·兰格雷**
+
+Nine pairs of eyes are staring at me right now. I feel like some small prey being circled by a pack of wolves. It makes me uneasy, I know it's a complete different situation but the idea of me fighting alone against a group of foes... It's difficult to not be reminded of that fight.  
+此刻有九双眼睛正盯着我。我感觉自己像是一只被狼群围猎的小猎物。这让我不安，我知道情况完全不同，但想到自己孤身对抗一群敌人……很难不让我回想起那场战斗。
+
+I take a quick look around to try to put myself at ease. I try to gauge my foes, some of them look friendly, maybe even sympathetic to me and some of them seem to be not so friendly. In particular, the man named Tokita, is staring at me with such intensity I'd think he was trying to burn a hole through me. Already I get the feeling that he is going to be the one I have to be care with.  
+我迅速环顾四周，试图让自己放松。我试图评估我的对手，其中一些人看起来友好，甚至对我抱有同情，而另一些人则显得不那么友好。特别是那个名叫时田的男人，他盯着我，目光之强烈仿佛要将我烧穿。我已经有预感，他将是需要格外小心应对的那个人。
+
+I remind myself one more time that I have to get through this and remain calm. No matter what these people throw at me, no matter how personal they get I have to keep calm and not lose my temper. If I do then this is all over, regardless of what Shinji accomplishes.  
+我再次提醒自己，必须度过这一关并保持冷静。无论这些人对我投掷什么，无论他们多么私人化，我都必须保持冷静，不发脾气。如果我失控，那么一切就结束了，无论真嗣取得了什么成就。
+
+"So Ms Soryu." The chairman begins to speak, "It is the committees understanding that would would like to challenge our decision regarding Mr. Nagisa in hopes of reversing it. Is that correct?"  
+"那么，Soryu 女士。" 主席开始发言，"委员会的理解是，您希望挑战我们对 Nagisa 先生的决定，以期推翻它。是这样吗？"
+
+"Yes, it is." I reply instantly, nodding my head with some confidence.  
+"是的，没错。" 我立即回答，带着几分自信地点头。
+
+"in which case, let us begin. Does anyone have anything to start off with?"  
+既然如此，让我们开始吧。有人有什么要先说的吗？
+
+I decide the best from of defense is a good offence and get straight on the attack before any of them have the chance to speak, "You are all wrong about him. You are wrong in thinking he is a threat to anyone."  
+我认为最好的防御就是进攻，在他们有机会开口之前，我直接发起攻击，“你们都错了，关于他。你们错在认为他对任何人构成威胁。”
+
+I see some of them look at me in surprise at how I've spoken up straight away. I like that, I want them to be surprised, you think you know Asuka Langley Soryu? You don't, you don't know the real her. I'm not surprised to hear one or two of them scoff at my words, I'm sure Tokita was one of them. I can still feel his eyes on me, and I'm tempted to turn around to him and ask him just what his problem is. Maybe I should charge him a viewing fee.  
+我注意到他们中的一些人对我立刻站出来说话感到惊讶。我喜欢这样，我希望他们感到惊讶，你以为你了解惣流·明日香·兰格雷？你并不了解真正的她。听到一两个人对我的话嗤之以鼻，我并不感到意外，我确信常田就是其中之一。我仍能感觉到他的目光在我身上，我忍不住想转身问他到底有什么问题。也许我该向他收取观看费。
+
+"The person you think Kaworu is, that Angel that tried to attack NERV years ago... it isn't really him." I continue to speak, "He knows what he was. He knows what he did and he admits his guilt. He regrets his actions, actions that you all know were born from manipulation of other parties. Now that they no longer exist he is his own person, in addition... he doesn't have any of his abilities as an Angel that he used to."  
+"你以为的渚薰，那个多年前试图攻击 NERV 的天使...那其实并不是真正的他。" 我继续说道，"他知道自己曾经是什么。他知道他所做的一切，并承认自己的罪行。他对自己被他人操纵所做出的行为感到后悔，这些行为你们都清楚。现在那些操纵者已不复存在，他成为了独立的个体，而且...他不再拥有曾经作为天使的任何能力。"
+
+I trail off and the room goes silent. I see them exchange a few glances and wonder who will be next to speak. Actually, I already know who is going to speak and sure enough after only a few seconds more he opens his mouth.  
+我话音渐落，房间陷入沉默。我看到他们交换了几眼，好奇接下来谁会发言。实际上，我已经知道谁会开口，果然，只过了几秒钟，他就张开了嘴。
+
+"Well... Those are some strong words Soryu." Tokita speaks, I don't even get a 'Ms Soryu' from him, what a prick, "But I would like to ask you how much you really know about Nagisa. We, for instance, know that Nagisa was capable of manipulation. He manipulated the younger Ikari and many at NERV. Could it not just be that you too are being manipulated?"  
+"嗯...碇君，这些话很有分量。" 时田开口了，他甚至没称呼我为"碇小姐"，真是个刺头，"但我想要问你，你对渚了解多少？我们，比如说，知道渚有操纵他人的能力。他操纵了年轻的碇，以及 NERV 中的许多人。你难道不会也是被操纵的一员吗？"
+
+He looks at me with a smug confidence, almost as if his question has caught me off guard. I simply turn to him, "No, Kaworu is not manipulating me."  
+他带着一种得意的自信看着我，仿佛他的问题让我措手不及。我只是转向他，平静地说：“不，渚薰并没有在操纵我。”
+
+"And you are sure of this because?"  
+“你为何如此确定？”
+
+A part of me wants to say that I wouldn't allow myself to be manipulated but it feels like a flimsy answer. In truth I'm not sure what I can say to that. It's just an attempt to make me doubt myself or slip up. Anything I say will be followed with 'Yeah, but how can you be sure?' Any doubt on my part gives them a victory. I'm not planning on losing.  
+我内心的一部分想说，我不会允许自己被操纵，但这听起来像是个站不住脚的回答。事实上，我不确定我能对此说什么。这只是试图让我怀疑自己或露出破绽。无论我说什么，都会被反问‘是吗，但你如何能确定？’任何一丝怀疑都会让他们得逞。我没打算输。
+
+Instead I go for a different tactic. I hate talking about myself, my feelings and my life but these people probably know more about me than I can remember. They will appreciate the impact this has.  
+我转而采取了另一种策略。我不喜欢谈论自己、我的感受和我的生活，但这些人可能比我自己记得的还要了解我。他们会理解这其中的影响。
+
+"Because I love him." “因为我爱他。”
+
+As I expect, Tokita doesn't seem moved or bothered by my answer. Why should he? He probably doesn't give a crap about it. I do however see a few people exchange glances, I can't imagine the news about my relationship with Kaworu is a surprise to them but to hear me vocalize it might mean something.  
+正如我所料，Tokita 似乎并未被我的回答打动或困扰。他为何要在意呢？他可能根本不在乎。不过，我确实看到几个人交换了眼神，我和 Kaworu 的关系对他们来说可能并不意外，但亲耳听到我承认或许意义不同。
+
+"Each one of you probably has access to my records, to all of my psychological evaluations and reports from base commanders. That should be enough to tell you why what I have just said is important. If I had any doubts at all about Kaworu then I wouldn't love him."  
+"你们每个人大概都能接触到我的档案，包括所有的心理评估和基地指挥官的报告。这些应该足够说明我刚才所说的重要性。如果我对渚有任何疑虑，我就不会爱他。"
+
+"I fail to see how love proves any-"  
+"我不明白爱情怎么能证明任何-"
+
+"Leaving love aside..." The chairman clears his throat and cuts Tokita off, "I do not feel this line of questioning will get us anywhere. We are not hear to discuss Ms. Soryus love life, rather we are here to discuss Mr. Nagisa. Now, in your own time Ms. Soryu can you please tell us about your first meeting with Mr. Nagisa?"  
+"抛开爱情不谈..."" 主席清了清嗓子，打断了土岐，""我觉得这种提问方式对我们没有任何帮助。我们不是来讨论索留小姐的爱情生活的，而是来讨论渚先生的。现在，索留小姐，请在您方便的时候告诉我们您第一次见到渚先生的情况好吗？"
+
+"Gladly." I nod my head and turn away from Tokita. I feel like I've won some minor victory against him but this is just the beginning. I can't let myself become too cocky now, "It was a few months ago. I was heading to a small café near my old apartment. He was coming out of it and we collided with each other."  
+“乐意之至。”我点点头，转身离开时田。我感觉自己似乎在他面前赢得了一场小小的胜利，但这只是开始。我不能让自己现在变得过于自满，“那是几个月前的事了。我正前往我旧公寓附近的一家小咖啡馆。他正从里面出来，我们撞了个正着。”
+
+I hear a small laugh at my comment. I suppose it is funny, not too many relationships start with a literal collision. The person who did laugh looks towards me, a young man, quite handsome actually and somewhat disheveled addresses me, "Did you know that this person was Kaworu Nagisa when you bumped into him."  
+听到我的话，有人轻声笑了出来。我想这确实挺滑稽的，毕竟没多少恋情是从一场真正的碰撞开始的。那个笑出声的人转向我，是个年轻人，相当英俊，只是略显凌乱，他问我：“你撞到他的时候，知道他是渚薰吗？”
+
+I shake my head, "No I didn't."  
+我摇摇头，“不，我不知道。”
+
+A woman across from him turns to me, "You didn't recognize him at all? Nagisa has quite a distinct appearance and is a former Evangelion pilot. There was no recognition?"  
+对面的一位女士转向我，问道：“你完全没认出他吗？渚薰有着相当独特的相貌，而且曾是 EVA 驾驶员。你一点都没察觉？”
+
+Once again, I shake my head, "No, I didn't. I had no idea who he was. When he was at NERV I was... incapacitated. I had heard there was a replacement but no one had really filled me in on the exact details."  
+我再次摇头，“不，我没认出来。我根本不知道他是谁。他在 NERV 的时候，我……处于无意识状态。我听说有人接替了，但没人详细告诉我具体情况。”
+
+"Curious." She muses, "Why did no one tell you of these things?"  
+“真奇怪。”她沉思道，“为什么没人把这些事告诉你呢？”
+
+I find myself becoming slightly irritated at her questions, they all must have known what I did... what I tried to do around that time. Why is it so difficult to believe I didn't know who he was. Still, I suppose they probably expect me to have been told or have even seen him before.  
+我对她的提问感到些许烦躁，他们肯定都知道我那时做了什么...我试图做的事情。为什么相信我不认识他这么难呢？不过，我想他们大概认为我应该被告知过，或者甚至之前见过他。
+
+"No one told me because those were not pleasant times for me nor the rest of my friends. We prefer to not speak of them, however right or wrong that may be. I didn't know who Kaworu was, I had never met him before I went to NERV nor did I even know there was going to be a fifth child."  
+“没人告诉我，因为那对我以及我的朋友们都不是愉快的时光。我们宁愿不提起那些事，无论对错。我不知道卡罗是谁，我去 NERV 之前从未见过他，甚至不知道会有第五个孩子。”
+
+She nods and seems satisfied by my answer. I wonder if this was just a test for me to pass, to make sure what I said lines up with what she knows. A couple of moments later the man from before speaks, "So after this, what happened next?"  
+她点头，似乎对我的回答感到满意。我猜这可能只是对我的一次考验，确保我说的与她所知的一致。片刻后，之前那位男士开口问道：“那么，接下来发生了什么？”
+
+I can't help but smile as I recall those moments, "I didn't recognize him but he did recognize me. He took one look at me and ran away. He was terrified of me, he thought I'd recognize him and hurt him. I didn't find out who he was until the next day when I saw Rei."  
+我不禁微笑着回忆那些时刻，'我没有认出他，但他认出了我。他看了我一眼就跑开了。他害怕我，以为我会认出他并伤害他。直到第二天我见到丽，我才知道他是谁。'
+
+"This is Rei Ayanami, correct?" I hear another one of them ask.  
+“这是绫波丽，对吧？”我听到他们中的另一个问道。
+
+"Yes." I reply. “是的。”我回答道。
+
+"And what was it Rei told you about him?"  
+"丽之前跟你说了他什么？"
+
+"She told me who he was and that he was the fifth child. She warned me that he was the final Angel and had been sent to NERV by SEELE. She told me all about what had happened between him and Shinji and warned me to stay away from him."  
+"她告诉我他的身份，他是第五适格者。她警告我他是最后的使徒，被 SEELE 派到 NERV。她告诉我他和真嗣之间发生的一切，并告诫我远离他。"
+
+The all exchange glances, some of them make notes. Tokita returns to his smug smile, once again looking like he has gotten exactly what he wanted.  
+众人交换了一下眼神，有些人做着笔记。时田又恢复了得意的笑容，再次显得他得到了他想要的东西。
+
+"So, Rei Ayanami beleives him to be dangerous?"  
+"那么，绫波零认为他很危险吗？"
+
+"Believed." I fire back, "She believed him to be dangerous based on what she knew of him and what he used to be. She has since changed her views."  
+"曾经认为。" 我反驳道，"她根据对他的了解和他过去的行为，认为他很危险。但她后来改变了看法。"
+
+"And yet I do not see her here before us, nor does she seem to have lent her support to yourself or the younger Ikari in this matter. I therefore have to wonder what her true feelings are." He speaks as I resist the urge to reach over the table and slap him.  
+"然而，我既没看到她出现在我们面前，也没发现她在这件事上支持你或年轻的碇。所以我不得不怀疑她的真实感受。" 他说着，我强忍住越过桌子给他一巴掌的冲动。
+
+He knows why Rei isn't here, we were only allowed two people to plead our case and that was both me and Shinji. He's just trying to wind me up and confuse the matter. They all know why Rei isn't here.  
+他知道丽为什么没来，我们只被允许两个人来申诉，那就是我和真嗣。他只是在试图激怒我并混淆问题。他们都知道丽为什么没来。
+
+The woman from before seems to have ignored Tokita, "Despite the warnings from Ms. Ayanami, you visited Nagisa anyway though?"  
+之前那位女士似乎忽略了土田，"尽管有绫波小姐的警告，你还是去了渚那里，对吧？"
+
+"Yup." "嗯哼。"
+
+"Can you tell us why?" She asks, "Were you not frightened of him after what you had been told?"  
+“你能告诉我们为什么吗？”她问，“在你被告知那些事后，你难道不害怕他吗？”
+
+I shake my head, "No, not at all. I kept in mind what Rei had told me, I was prepared for something to happen but I guess... I was intrigued more than anything. The person she had described was not the same as the one I had bumped into. After all, if he was this evil and powerful being then why would he run from me?"  
+我摇了摇头，“不，一点也不。我记得丽告诉我的话，我本以为会发生什么，但我想...我更多的是感到好奇。她描述的那个人和我撞上的那个不一样。毕竟，如果他是个如此邪恶且强大的存在，那他为什么要从我身边逃走呢？”
+
+I pause for a moment, "I know myself how much people can change so... I thought I'd take a look for myself. Besides he had... dropped some documents when he ran into me. I figured they were important so wanted to give them back to him."  
+我顿了一下，“我知道人能改变多少，所以...我想亲自看看。而且他...撞到我时掉了一些文件。我想它们很重要，所以想还给他。”
+
+"And what sort of documents were these?" Tokita barks at me.  
+“这些文件是什么样的？”时田对我吼道。
+
+"They were application forms to help him get a license to teach music." I reply calmly, "It's something he does every Monday."  
+“这是帮他申请音乐教师执照的表格。”我平静地回答，“他每周一都会做这件事。”
+
+The chairman nods and smile, "Indeed, this is something we are all aware of. Some of the paperwork had to be approved by us when he went through the process, nothing major just ensuring there was no risk."  
+主席点头微笑，“确实，这一点我们都很清楚。他办理手续时有些文件需要我们审批，没什么大问题，只是确保没有风险。”
+
+I continue to tell my story, "When I arrived at his apartment he took one look at me and nearly slammed the door in my face. He was terrified of me, he thought I was there to hurt him. I, of course, was not there to hurt him and tried to explain that to him. I finally got him to calm down and he invited me into his apartment."  
+我继续讲述我的经历，“当我到达他的公寓时，他一看到我就差点把门摔在我脸上。他非常害怕我，以为我是来伤害他的。当然，我并不是来伤害他的，我试图向他解释这一点。最终，我让他平静下来，他邀请我进了他的公寓。”
+
+"So, he got you into his apartment." I hear Tokita say darkly, as if me going into Kaworu's apartment was part of some grand plan, "And he did not try to do anything to me?"  
+"这么说，他把你带进了他的公寓。" 我听到常田阴沉地说，仿佛我进入渚的公寓是某个宏大计划的一部分，"他没对我做什么吧？"
+
+I shoot him a glare, "Believe me, if he had have tried something then he would have had something to fear. So, no, Kaworu did not try anything. He was a perfect gentleman."  
+我瞪了他一眼，"相信我，如果他真有什么企图，那他就有得怕了。所以，不，渚什么都没做。他表现得像个十足的绅士。"
+
+I turn away from Tokita, "He was still scared of me as I went in there. When I got in, I saw his apartment was empty aside from a few small bits and pieces. Essentials and a small keyboard. I guess... I felt bad for him, he had been back for all those months but it seemed like he wasn't living a life. So, I invited him out to a concert."  
+我转过身去，不再理会常田，"他当时还是怕我进去。我进去后，看到他的公寓除了几件小东西外几乎是空的。只有一些必需品和一个小键盘。我想... 我为他感到难过，他已经回来好几个月了，但看起来他并没有真正生活。所以，我邀请他去听一场音乐会。"
+
+"interesting." The scruffy guy from before speaks, "So this was the first proper meeting between the two of you. What happened in the weeks that followed?"  
+"有趣。" 之前那个邋遢的家伙开口了，"这么说，这是你们俩第一次正式见面。之后几周发生了什么？"
+
+**Tokyo 2 – UN Embassy – Meeting Room – Shinji Ikari  
+东京 2 号 – 联合国大使馆 – 会议室 – 碇真嗣**
+
+"Kaworu was... kind to me." I tell them, my eyes remain glued to the table, "He seemed nice and I actually felt... comfortable around him."  
+"渚薰对我...很友善。" 我告诉他们，目光依旧紧盯着桌面，"他看起来很好，我甚至感到...在他身边很自在。"
+
+"So, would you say there was a romantic attachment there?" Tokita asks me.  
+"那么，你会说那里存在浪漫的情感吗？" 时田问我。
+
+I feel my cheeks glow red immediately at him asking but I try to not show that his question has bothered me. I turn and glare at him, I can see the smugness on his face as he looks back at me for a reply. I wonder if he is being this was or was this way with Asuka as well, I only hope she can stay calm with him.  
+听到他的问题，我立刻感到脸颊发烫，但我尽量不表现出他的问题让我困扰。我转过头瞪着他，我能看到他脸上得意的表情，他正期待着我的回答。我不知道他是否对明日香也这样，我只希望她能保持冷静。
+
+"I asked you a question Ikari." Tokita prompts me like some teacher talking down to a student.  
+"我问你问题了，碇。" 时田催促我，像老师对学生说话一样。
+
+"I'm not quite sure how relevant this is." I hear one of the other men opposite him suddenly speak as I struggle to find some sort of answer. In a way I want to be honest about this, I want to tell them the truth about how I felt for Kaworu but I've never really told anyone how I felt. The truth is that, yes, despite barely knowing him I did feel something for him.  
+"我不太确定这有多相关。" 我正努力寻找某种答案时，听到他对面的另一个男人突然开口。在某种程度上，我想诚实地表达这一点，我想告诉他们我对渚的感情真相，但我从未真正向任何人透露过我的感受。事实是，是的，尽管对他了解甚少，我的确对他产生了某种情感。
+
+I felt something for Kaworu, I liked the way he looked, I liked the way he smiled, I liked the way he spoke and I could see myself in his arms. There was only one other person I could see myself with and who I felt that way for, and that was Asuka.  
+我对渚有感觉，我喜欢他的外表，我喜欢他的微笑，我喜欢他的谈吐，我能想象自己在他的怀抱中。只有另一个人我能想象与自己在一起，并对她有同样的感觉，那就是明日香。
+
+"This line of questioning is relevant because I would like to establish Ikari's motives for doing this. A potential romantic interest means we can bring into question the truth of Ikari's statements, after all love can make us act strange, can it not?"  
+"这种提问方式是相关的，因为我希望确定碇的动机。潜在的浪漫兴趣意味着我们可以质疑碇的陈述的真实性，毕竟爱情会让我们行为怪异，不是吗？"
+
+"Yes!" I cut him off because he can say anything else. I shift my gaze again towards Tokita and glare at him, "Yes, I did feel something for him. I was attracted to him."  
+"是的！" 我打断了他，因为他可能会说别的。我再次将目光转向时田，瞪着他，"是的，我确实对他有感觉。我被他吸引了。"
+
+"interesting, and would you say you still have those feelings now?" He asks me.  
+"有意思，那你会说你现在还有这些感觉吗？" 他问我。
+
+I shake my head, "I don't know, my feelings are complicated."  
+我摇摇头，"我不知道，我的感情很复杂。"
+
+"Well can I perhaps ask, have you spoken to Nagisa since he has returned?"  
+"那么，我是否可以问一下，自从渚回来后，你和他谈过了吗？"
+
+I nod, "Once, it... did not go well. We weren't ready to speak."  
+我点点头，"只谈过一次，那...不太顺利。我们还没准备好交流。"
+
+"I see, so then you will not know about his ongoing romance with your former colleague I assume?"  
+"我明白了，那么你大概不知道他和你的前同事正在进行的恋情吧？"
+
+My stomach drops immediately on hearing him say those words. I don't even need him to speak them again, I heard them clearly and from the look on his face I don't think he is making it up. I keep my gaze locked on him as my body reacts in other ways. I try to not sure what he has said affected me but I can feel it, my stomach is churning, the sweat on my body and my legs are shaking.  
+听到他说出那些话，我的心立刻沉了下去。我甚至不需要他再重复一遍，我已经听得清清楚楚，从他的表情来看，我不认为他在编造。我保持着目光紧锁在他身上，同时我的身体也在做出反应。我试图不让自己被他的话所影响，但我能感觉到，我的胃在翻腾，全身冒汗，双腿颤抖。
+
+Asuka... and Kaworu? They are together? It... It can't be true... can it? T-They have been spending a lot of time together and Asuka was very keen to help him. I... They never told me... No one told me... Asuka didn't tell me and Rei... Does Rei know? S-She... She must have done, she knew Asuka more than anyone recently.  
+明日香...和薰？他们在一起了？这...这不可能是真的...吧？他们最近经常在一起，明日香也非常热心地帮助他。我...他们从未告诉我...没人告诉我...明日香没告诉我，绫波...绫波知道吗？她...她一定知道，她最近比任何人都更了解明日香。
+
+"I take it from your silence that you... were not aware of this fact?" Tokita asks me, snapping me away from my thoughts.  
+“从你的沉默来看，你...对此并不知情？”时田问我，打断了我的思绪。
+
+"N-No... I wasn't." "不...我没有。"
+
+"Tokita!" The man opposite him speaks again, "Where are you going with this, this is hardly relevant to what we are doing."  
+"时田！"" 对面的人再次开口，""你这是要去哪儿，这跟我们正在做的事情毫不相关。"
+
+"Oh, I think it is." Tokita replies, "It is documented that Ikari had feelings for Ms. Soryu and you all just heard it yourself that he had interest in Nagisa too. Perhaps his actions here today were just in hope of pleasing one of them in an attempt to rekindle that. Perhaps now that he is aware of the truth we can see honesty from him."  
+"哦，我认为很相关。"" 时田回答，""有记录显示碇对草薙小姐有感情，而你们刚才也听到了，他对渚也有兴趣。也许他今天的行为只是为了取悦其中一人，试图重燃那份感情。也许现在他知道了真相，我们就能看到他的诚实了。"
+
+I want to run. I want to throw up. I want to vanish from here and never be a part of this again. A part fo me even wants to laugh at the absurdity of this situation. Asuka and Kaworu... they're a couple and I didn't know.  
+我想逃跑。我想呕吐。我想从这里消失，再也不参与这一切。我甚至有一部分想嘲笑这荒谬的处境。明日香和薰……他们是一对，而我却不知道。
+
+There is an awkward silence in the room, no one else here seems to be sure of what to say, Tokita is looking at me, his lips turned upwards in a victorious smile. I hate him. I want to reach out and punch him. I take a few deep breaths, I can't hide that this has bothered me. I feel like my heart has been ripped out of my chest and Tokita knows it. He knew what that would do to me.  
+房间里弥漫着尴尬的沉默，其他人似乎也不知道该说什么，时田正看着我，嘴角上扬，露出胜利的微笑。我恨他。我想伸出手去揍他。我深呼吸几次，我无法掩饰这件事对我的困扰。我感觉自己的心被掏了出来，而时田知道这一点。他知道那会对我造成什么影响。
+
+So, what do I do now? Do I just walk away from this? Do I just give up? Why am I even doing this? To help Kaworu, was that really the reason or was it for Asuka? I had... I had thought that being back in contact with Asuka... maybe there was a chance. I... I love Asuka, I love her so much. I want her to be happy. Nagisa... do I love him? I can't say, I love what I thought he was but I don't know who he is now. Still... he deserves to be happy too.  
+那么，我现在该怎么办？我应该就这样走开吗？我应该放弃吗？我为什么要这么做？是为了帮助薰，这真的是原因吗，还是为了明日香？我曾……我曾以为重新与明日香联系……也许还有机会。我……我爱明日香，我非常爱她。我希望她幸福。渚……我爱他吗？我说不上来，我爱我以为的他，但我不知道他现在是谁。尽管如此……他也应该得到幸福。
+
+Both of them deserve to be happy, just like I do. I feel awful, I feel rotten and maybe even betrayed. It would be so easy for me to turn around now and leave this room. To tell them to do what they want with Kaworu but... what would that gain? Would that make me feel any better? Of course, it wouldn't! it'd just prove that side of me that tells me I'm awful right.  
+他们俩都值得幸福，就像我一样。我感到糟糕透顶，感觉被背叛了。现在转身离开这个房间，告诉他们随便怎么对待渚薰，这对我来说太容易了。但那样做能得到什么呢？能让我感觉好一点吗？当然不能！那只会证明我内心那个说我糟糕的声音是对的。
+
+That... That would be something that my father would do. He'd turn away if he couldn't get what he wanted but... I'm not him. Asuka and Kaworu... if they're together then... so be it, I don't have a right to be with Asuka. I love her... I want her to be happy and if she is happy with him then I am fine with that. I will deal with it.  
+那……那是我父亲会做的事。如果得不到他想要的，他会转身离开……但我不是他。明日香和渚薰……如果他们在一起……那就这样吧，我没有权利和明日香在一起。我爱她……我希望她幸福，如果她和渚薰在一起能幸福，那我也没问题。我会接受这一切。
+
+I take a final deep breath before looking at Tokita's stupid smug face one last time. I feel a confidence build up inside of me that I've not felt before, "I did not know about that but... it changes nothing. I am not doing this because of my feelings for those people. I believe Kaworu has changed, I believe he is a good person and I don't think anyone is at risk. People can change. The people I know now... they aren't the people they used to be. Misato... Rei... Asuka and even me... we're all different, we've all changed and... I think Kaworu has as well."  
+我深吸最后一口气，最后一次看向富田那张自鸣得意的蠢脸。我感到一种前所未有的自信在内心升起，“我之前并不知情，但这改变不了什么。我这么做不是因为对那些人的感情。我相信薰已经改变了，我相信他是个好人，我不认为任何人会受到威胁。人是可以改变的。我现在认识的这些人……他们已经不是过去的他们了。美里……丽……明日香，甚至是我自己……我们都变了，我们都不同了，而且……我认为薰也一样。”
+
+"Well that is all well and good..." Tokita starts to reply, he seems slightly taken aback by my reply, "Neither of you were former Angels tasked with destroying mankind. Everything you have just said is inconsequential, it is pure belief and nothing concrete. This is pointless, it is pure emotion and feelings from someone who clearly isn't thinking clearly. Chairman, I suggest we end this."  
+“好吧，这听起来都很好……”富田开始回答，他似乎被我的回答稍稍震惊了，“你们俩都不是曾经被赋予毁灭人类使命的天使。你刚才说的那些都是无关紧要的，纯粹是信念，没有任何实质内容。这毫无意义，完全是一个显然不清醒的人的情感和感觉。主席，我建议我们结束这场讨论。”
+
+I sit in silence as I listen to his tirade and begin to question my own actions. Have I actually made a mistake in what I have said? Is he right, is everything I have said based on emotion and belief? That is true, I don't really know Kaworu has changed. I don't know anything really, Asuka asked me to help and I said I would but... I don't really know anything. I don't even know how to feel right now, I'm still in shock after finding out about the two of them.  
+我静静地坐着，听着他的长篇大论，开始质疑自己的行为。我是否真的在言语上犯了错？他是对的吗，我所说的一切都基于情感和信念？确实，我并不真正了解碇真嗣是否有所改变。我其实一无所知，明日香让我帮忙，我答应了，但...我真的什么都不了解。我现在甚至不知道该如何感受，得知他们两人的事后，我仍处于震惊之中。
+
+When I think about it, they could be right. What if Kaworu is still dangerous? What if he is still an Angel but we just don't know it yet. He could be really good at hiding it, he might not even know it himself. What if I'm making a mistake here? I...  
+仔细想想，他们可能是对的。如果碇真嗣仍然危险怎么办？如果他仍然是一个使徒，而我们只是尚未发现。他可能非常擅长隐藏，甚至他自己也可能不知道。我在这里会不会犯了一个错误？我...
+
+"I am still not convinced." A woman directly next to the chairman speaks. I think out of all the people on the table she is the only one who has not yet said anything outside of the initial introduction.  
+“我仍然不相信。”坐在主席旁边的一位女士开口说道。我想，在座的所有人中，她是唯一一个除了最初的介绍外还没有发表任何意见的人。
+
+She seems stern, her eyes piercing and commanding. Tokita falls silent immediately on her speaking and she locks her eyes onto mine.  
+她看起来严厉，目光锐利且有威严。她一开口，Tokita 立刻安静下来，她的目光紧锁在我的眼睛上。
+
+"Shinji, first of all thank you for being honest in regards to your feelings for Nagisa. I know such a thing will have been quite difficult. Not only due to his status but also due to certain attitudes in society but your honest does actually help us. I also apologize for any pain the recent revelation might have caused you."  
+“真嗣，首先感谢你对渚的感情坦诚相告。我知道这很不容易，不仅因为他的身份，也因为社会上的某些态度，但你的坦诚确实对我们有帮助。同时，对于最近的真相可能给你带来的痛苦，我也表示歉意。”
+
+She flashes a look at Tokita as she says that, it seems him revealing that little bit about Asuka and Kaworu has not impressed her and I wonder if all of these people are on the same page.  
+她说这话时瞥了 Tokita 一眼，似乎他对 Asuka 和 Kaworu 的那点透露并未给她留下好印象，我不禁怀疑这些人是否都在同一频道上。
+
+"If you can, I would like you to continue telling us about Nagisa when you met him back then. What sort of person he was before you knew he was an Angel and anything you felt about him when you did find out. Even if you feel it is inconsequential it might help."  
+"如果你可以的话，我希望你能继续告诉我们关于你当时遇到渚的事情。在他成为天使之前，他是个怎样的人？以及当你发现他是天使时，你的感受如何？即使你觉得这些无关紧要，也许会有所帮助。"
+
+I nod, "Okay." 我点头，"好的。"
+
+"So, you met Nagisa by the side of a lake, you have already told us this much. I presume you spent most of the day with him after that, can you please tell us what you did during that day."  
+"那么，你是在湖边遇到渚的，这一点你已经告诉我们了。我想你们在那之后大部分时间都在一起，请你告诉我们那天你们都做了些什么。"
+
+I nod and try to push out the thoughts of that revelation and instead focus on what is important. I'm going to help them, I am going to help Kaworu. I'm not going to run away, he needs me to help him.  
+我点头，试图将那个惊人的事实抛诸脑后，转而专注于真正重要的事情。我要帮助他们，我要帮助渚薰。我不会逃避，他需要我帮助他。
+
+"We had to perform a sync test not long after we first met. That went smoothly but I saw Misato and the others seemed concerned. I didn't think anything of it though, after the test we went to get changed and have a shower. T-There wasn't a lot to do in the city anymore, half of it had been destroyed and pretty much everyone was gone."  
+我们初次见面后不久就进行了一次同步测试。那次进行得很顺利，但我注意到美里和其他人似乎有些担忧。不过我当时并没有多想，测试结束后我们就去换了衣服，洗了个澡。城市里已经没什么可做的了，一半已经被摧毁，几乎所有人都离开了。
+
+"You did not return to your own home first?" She asks me, her voice softening.  
+“你没有先回自己家吗？”她问我，声音变得柔和。
+
+I shake my head, "N-No... I... I was avoiding it as much as I could. It just made me unhappy being there plus... Misato was always at NERV and Asuka was in the hospital. There was nothing there for me so... I was happy to spend time with Kaworu,"  
+我摇摇头，“不……我……我尽可能地避开那里。在那里让我感到不快乐，而且……美里总是待在 NERV，明日香又在医院。那里没有什么值得我留恋的……所以……我很高兴能和薰在一起。”
+
+"When you were with Nagisa did the two fo you discuss NERV, did you maybe tell him anything that might have... unintentionally helped him?"  
+“当你和渚在一起时，你们俩有没有讨论过 NERV，你有没有可能无意中告诉了他什么……帮助了他？”
+
+I take a moment to think about our conversations, it is strange but I can still recall most of the details of that day to easily. Finally, I shake my head, "No, he... he seemed more interested in me personally. He wanted to know about me and my friends, he asked me about my father. I... I told him, it was so easy to open up to him. I didn't feel like he was judging me for anything I said he just... listened to me."  
+我花了一会儿时间回想我们的对话，虽然奇怪，但我仍然能轻易地回忆起那天的许多细节。最后，我摇了摇头，“没有，他……他似乎对我个人更感兴趣。他想了解我和我的朋友，他问起我的父亲。我……我告诉了他，对他敞开心扉是那么容易。我感觉他并没有评判我说的任何话，他只是……倾听着我。”
+
+"i see." She nods, her expression has softened a little bit when it comes to me. Everyone else in the room seems to have taken a backseat to allow her to speak, even the chairman seems completely silent, "So after spending the night with him, what happened next?"  
+"我明白了。" 她点点头，提到我时她的表情稍微柔和了一些。房间里的其他人似乎都退到了次要位置，让她发言，甚至连主席也完全沉默了，"那么，和他共度一夜之后，接下来发生了什么？"
+
+My eyes wander to the table and I reach out to my cup to take a sip of water as the memories of those moments come back to me. I look around to see the other council members looking at me with some curiosity, aside from Tokita.  
+我的目光游移到桌子上，伸手去拿我的杯子喝了一口水，那些时刻的记忆又涌上心头。我环顾四周，看到其他议会成员带着些许好奇看着我，除了富田。
+
+"In your own time Shinji." She prompts me.  
+"慢慢来，真嗣。" 她催促我。
+
+I take a deep breath, "I woke up when the alarms were going off. I noticed straight away Kaworu wasn't in his bed. I... I didn't know why but I just thought he had gone on ahead to take on the Angel and not woke me up. I put on my clothes and rushed to Eva Unit 01... When I got there... I was told that he was the Angel."  
+我深吸一口气，“警报响起时我醒了。我立刻注意到渚薰不在他的床上。我……我不知道为什么，只是以为他先去对付使徒了，没叫醒我。我穿上衣服，急忙赶往 Eva 初号机……当我到达那里时……他们告诉我，他就是使徒。”
+
+"And how did that make you feel?"  
+“那让你感觉如何？”
+
+Not quite as bad as finding out the two people you love are in a relationship, my mind quips as I prepare a response.  
+“发现你爱的两个人在交往，那种感觉也不比这好多少。”我心里嘀咕着，准备回应。
+
+"I... I couldn't believe it. I didn't want to believe it." I admit, "Kaworu couldn't have been the Angel, he was... so nice but... it was true even if I didn't want it to be. So, I was sent to fight him. When I caught up with him he was floating down towards the lower depths of NERV, he... had an A.T. Field and was somehow controlling Unit 02."  
+"我...我无法相信。我不愿相信。" 我承认，"渚薰不可能是使徒，他是...那么善良，但...即使我不愿承认，事实就是如此。因此，我被派去与他战斗。当我追上他时，他正向 NERV 的更深处漂浮下去，他...拥有 A.T.力场，并且不知怎的控制了二号机。"
+
+"So, he had considerable power?"  
+"那么，他拥有相当大的力量？"
+
+I nod, "Yes, I would say so."  
+我点头，"是的，可以这么说。"
+
+"And when you caught up with him did he say anything to you?"  
+"当你追上他时，他对你说了什么吗？"
+
+"Yes." I tell them, "He... He admitted he was an Angel, he told me what the A.T. Field was and I chased him... towards..."  
+"是的。" 我告诉他们，"他... 他承认自己是天使，告诉我什么是 A.T.力场，然后我追着他... 向着..."
+
+I drop off and look around the room wondering how much I should reveal. Many parts of this I've never revealed to anyone. I've generally been told to never speak of these moments before but am I safe here? They knew about Lilith so they probably know.  
+我停了下来，环顾房间，思考我应该透露多少。这些事情的许多部分我从未向任何人透露过。通常有人告诉我永远不要提及这些时刻，但在这里我安全吗？他们知道莉莉丝，所以他们可能也知道。
+
+The chairman nods, "It is fine, we know about the lower levels of NERV and Lilith."  
+主席点头道：“没关系，我们对 NERV 的底层和莉莉丝有所了解。”
+
+I give him a dry smile, "Kaworu approached Lilith and then stopped. He gave me time to catch up to him after I had stopped Unit 02 and then he spoke to me again."  
+我对他干笑了一下，“卡罗尔接近了莉莉丝，然后停了下来。在我阻止了二号机之后，他给了我时间追上他，然后再次与我交谈。”
+
+It hurts me so much to think about that day. I knew I would have had to but I didn't realize how much it would hurt. At the same time, I didn't expect to learn about Kaworu and Asuka, that isn't helping me but... I have to fight it. I'm going to let them know that Kaworu isn't a threat.  
+"想到那天，我的心痛得难以自持。我知道我不得不这么做，但没想到会如此痛苦。同时，我也没料到会得知卡罗尔和明日香的事，这对我毫无帮助……但我必须与之抗争。我要让他们明白，卡罗尔并非威胁。”
+
+"Why did he wait for you? Could he not have just gone ahead and completed his task?" Another person in the room asks me.  
+“他为何要等你？难道不能直接完成任务吗？”房间里的另一个人问我。
+
+"Kaworu was... not there for Lilith and he realized he had been lied to as well. He... said that I should be the one to live and not him... He... understood something that I didn't and I... still don't really understand but he..."  
+“渚薰……不在莉莉丝那里，他也意识到自己被骗了。他……说应该活下来的是我而不是他……他……明白了一些我不懂的事，而我……至今仍不太明白，但他……”
+
+My voice starts to tremble as I speak and I swallow down the lump that has formed in my throat. I killed a person on that day, I killed a person and... I've never been able to come to terms with it. I've never wanted to remember it. I hate remembering it. Why have I agreed to this? Why do I have to feel this? It's all... too much. I want to run away but... I'm not going to, I won't run, I won't cry, not here. Not in front of these people and especially not in front of Tokita.  
+我说话时声音开始颤抖，咽下了喉咙里形成的硬块。那天我杀了一个人，我杀了一个人……我从未能接受这一点。我从未想过要记住它。我讨厌回忆这件事。我为什么要同意这个？为什么我必须感受这些？这一切……太过沉重。我想逃跑，但……我不会，我不会逃跑，我不会在这里哭泣，尤其不会在这些人面前，更不会在土田面前。
+
+"Kaworu let me kill him... He wanted humanity to live on. He sacrficied himself because he couldn't find any other way. I... I don't think he really wanted to destroy us, when I saw him he was questioning whether humanity really had to die." I look around the room, "If he was still an Angel now... If he still wanted that he could have done it."  
+“渚薰让我杀了他...他希望人类能继续生存。他牺牲了自己，因为他找不到其他办法。我...我不认为他真的想毁灭我们，当我见到他时，他在质疑人类是否真的必须灭亡。”我环顾房间，“如果他现在还是使徒...如果他还想要那样，他本可以做到的。”
+
+I take a moment to make sure I'm composed, "I know you all fear him. I know what it is like to be scared but... I don't think he ever wanted to hurt anyone and I don't think he does now. I don't think we should fear him. I... I'm not scared of him and I... I want to see him... so that I can tell him I forgive him. Please... don't let your fear get in the way of his life."  
+我稍作停顿，确保自己镇定下来，“我知道你们都害怕他。我知道那种恐惧的滋味，但...我不认为他曾经想要伤害任何人，现在也不这么认为。我不认为我们应该害怕他。我...我不怕他，我...我想见他...这样我才能告诉他我原谅他。请...不要让你们的恐惧妨碍他的生活。”
+
+**Berlin – UN Embassy – Meeting Room – Asuka Langley Soryu  
+柏林 – 联合国大使馆 – 会议室 – 惣流·明日香·兰格雷**
+
+"Nothing at first, we went to the concert and would message each other a bit. It was only a few weeks later that we started to spend more time together." I answer him before turning my gaze towards the chairman.  
+"起初什么都没有，我们去听了音乐会，偶尔会互相发发消息。直到几周后，我们才开始花更多时间在一起。" 我回答他后，将目光转向了主席。
+
+"Did he ask you or did you ask him to see each other again?"  
+是他约你还是你约他再次见面？
+
+"Neither." I turn to the source of the voice, "I don't think any of us had the nerve to ask one another despite wanting to. The next time I saw him was after the goons' you people had 'protecting' him decided to beat him up."  
+都不是。" 我转向声音的来源，"我觉得我们俩都没勇气主动约对方，尽管心里想这么做。我再次见到他是在你们派来'保护'他的那些家伙决定揍他一顿之后。
+
+I look and see the smile fade from the face of the chairman, he looks regretful. Good, so he should, all of these people should feel regret at that.  
+我看着，看到主席脸上的笑容逐渐消失，他显得有些懊悔。很好，他应该这样，所有这些人都应该对此感到后悔。
+
+"Yes, that is something which... I think we all regret." He speaks slowly, "It will be of no solace to yourself or Mr. Nagisa but our screening process has improved and we will continue to do so in the future."  
+"是的，那是我们...我想我们都后悔的事情。"他缓缓说道，"这对您或长井先生来说都不是安慰，但我们的筛选程序已经改进，并将继续在未来改进。"
+
+"You're right, it isn't of solace to me but I'm sure Kaworu would feel better at that." I bite back, perhaps I shouldn't have sounded so harsh but thinking about that incident makes my blood boil. I can still remember how he looked when I went to his apartment, I felt so bad, so powerless and all he could do was blame himself.  
+"你说得对，这对我来说不是安慰，但我相信薰会因此感到好一些。"我反驳道，也许我不该听起来那么严厉，但想到那次事件就让我怒火中烧。我仍然记得当我去他公寓时他的样子，我感到如此糟糕，如此无助，而他所能做的只是责怪自己。
+
+It does however give me something, "This does raise a point, if Kaworu was, what some of you think he was then do you not think he would have defended himself?"  
+然而，这确实给了我一些思考，“这确实提出了一个问题，如果渚薰真的是你们中一些人所认为的那样，那么你们不觉得他会自卫吗？”
+
+"Hah." Tokita smirks at me, "It is something that has been considered but perhaps Nagisa did not want to reveal himself as of yet. Remember we are not just discussing the possibility that he is still an Angel, we are also discussing the possibility that he is still in contact with SEELE. Your point has already been considered and dismissed."  
+“哈哈。” 时田对我冷笑道，“这个问题已经考虑过了，但也许渚并不想这么快暴露自己。记住，我们不仅在讨论他是否仍然是使徒，还在讨论他是否仍在与 SEELE 保持联系。你的观点已经被考虑并否定了。”
+
+I really want to punch his stupid, idiotic and smug face but I can't help but feel he has brought up a good point. This whole thing, it hinges on uncertainty, how do we know he is or how do we know he isn't. The truth is we don't, just like I could be an Angel but not know it or Shinji could be. How can I fight back against something like that?  
+我真的想揍他那张愚蠢、白痴又自鸣得意的脸，但我不得不承认他提出了一个好问题。这一切都建立在不确定性上，我们怎么知道他是或不是。真相是我们不知道，就像我可能是个使徒但自己不知道，或者真嗣也可能是。我该如何反击这样的事情呢？
+
+All I know is I believe in Kaworu. I believe he isn't a threat and I want them to see that. I mean, the guy can hardly put on a pair of pants without stumbling over, how can he possibly be a threat?  
+我所知道的就是我相信卡哇鲁。我相信他不是威胁，我希望他们也能看到这一点。我的意思是，那家伙连穿条裤子都会绊倒，他怎么可能构成威胁呢？
+
+"True." I concede, "But then if he was still in league with someone like SEELE would they have allowed such an attack? Surely, they would not have wanted their agent to come to any harm. Those people you had were highly trained, they knew how to kill someone. It was a risk."  
+“确实。”我承认道，“但如果他仍与 SEELE 那样的人合作，他们会允许这样的攻击发生吗？当然，他们不会希望他们的代理人受到任何伤害。你派去的人受过高度训练，他们知道如何杀人。这是一次冒险。”
+
+He simply shakes his head, "Again that is irrelevant. Nagisa was attacked and managed to run away. Yes, it could have been worse but it wasn't. Considering who Nagisa is, I'd say he was lucky."  
+他只是摇了摇头，“再说那也无关紧要。渚被攻击了，但他设法逃脱了。是的，情况本可能更糟，但没有。考虑到渚的身份，我得说他算是幸运的。”
+
+"And what exactly do you mean by that?" I feel my hand slam down hard against the table, pain shoots up the side and I wonder for a moment if perhaps I've damaged something. I don't let them see any pain on my face, "Are you suggesting he deserved it?"  
+"你这话到底是什么意思？" 我感到自己的手重重地拍在桌子上，疼痛直冲上来，我一时怀疑自己是不是弄坏了什么。我没有让他们看到我脸上的痛苦，"你是说他活该吗？"
+
+"Not at all." He waves a condescending finger in front of my face, "I'm just suggesting that, like you, if could have been a lot worse. I mean, considering who Nagisa is, it is difficult to blame certain parties for feeling they have to take action. Perhaps those men thought they were protecting us."  
+"绝非如此。" 他用一种居高临下的手指在我面前挥了挥，"我只是说，就像你一样，本来可能会更糟。我是说，考虑到渚的身份，某些人觉得他们必须采取行动也情有可原。也许那些人认为他们在保护我们。"
+
+I'm about to get to my feet when suddenly a woman to the right of the Chairman speaks up, "I feel that we have spent long enough on this. Tokita, your men were in the wrong for what happened and have been punished accordingly, there is no justification for that shameful attack. Ms. Soryu, we apologize to yourself and Nagisa for what happened."  
+我正要站起来，突然董事长右边的一位女士开口了，"我认为我们已经在这件事上花费了太多时间。时田，你的手下做错了事，已经受到了相应的惩罚，那次可耻的袭击没有任何借口。苍龙小姐，我们为发生的事情向您和渚道歉。"
+
+I look again at Tokita, did I hear her correctly? They were... his men? Did he put them in place to watch over Nagisa? It's not worth thinking about now, I can find out later.  
+我又看了一眼时田，我听对了吗？他们是...他的人？是他安排他们来监视渚的吗？现在不值得多想，我稍后可以查明。
+
+"Ms. Soryu." The woman speaks again, "It is quite clear to us that you feel strongly about Nagisa's current state. We would like to establish more of a timeline regarding Nagisa. What happened after that incident?"  
+“空条女士。”那位女士再次开口，“我们很清楚您对渚目前状况的关切。我们希望更详细地了解渚的时间线。那次事件之后发生了什么？”
+
+"We spent a lot more time together and got to know each other more." I answer calmly, the rage fading away from me slowly.  
+“我们花了很多时间在一起，更加了解彼此。”我平静地回答，怒气慢慢从我身上消散。
+
+"Of course, and what did the two of you do?"  
+"当然，你们俩都做了些什么？"
+
+I give a small shrug, "Usual things that friends do I guess. We watched movies together, listened to list and played video games. We just enjoyed spending time with each other."  
+我微微耸肩，"朋友间常做的事吧。我们一起看电影，听歌，玩电子游戏。就是享受彼此的陪伴。"
+
+"So, when you were with him, did you ever feel threatened by him?"  
+"那么，和他在一起时，你有没有感到过被他威胁？"
+
+I shake my head, "No, absolutely not. Kaworu always seemed to be frightened of me. He was... afraid of a lot of things, the attack didn't help that either."  
+我摇了摇头，“不，绝对不会。卡沃鲁总是显得很怕我。他……害怕很多事情，那次攻击也没能改善这一点。”
+
+"And did you ever notice anything... unusual about him?" She asks, "Did he ever vanish for an amount of time? Was he ever hard to contact?"  
+“那你有没有注意到他有什么……不寻常的地方？”她问道，“他有没有消失过一段时间？或者很难联系上他？”
+
+Again, I shake my head, "I never had a problem contacting him if I wanted to, as far as vanishing went, he might have went for a walk around the local area but that stopped after the attack. Aside from that he didn't really do a lot, it wasn't really until I showed up that he started to do new things."  
+我又摇了摇头，“如果我想联系他，从来没遇到过问题，至于消失，他可能只是在附近散步，但那次攻击后就不再这样了。除此之外，他其实没做什么，直到我出现，他才开始尝试新事物。”
+
+"You alluded before to the state of his apartment when you arrived. Can you expand on that?" She asks me.  
+"你之前提到过他公寓的状况。能详细说说吗？" 她问我。
+
+I nod, "When I first went into his apartment he had nothing but the essentials in there. He had food, a television, a keyboard and something to play music on. He had only been back for a few months and he didn't really know anything about the world. He didn't really know what to do, like I said he was alive but he wasn't really living a life."  
+我点头，"我第一次进他公寓时，里面只有必需品。他有食物、一台电视、一个键盘和播放音乐的设备。他刚回来几个月，对这个世界几乎一无所知。他不知道该做什么，就像我说的，他活着，但并没有真正在生活。"
+
+"I suppose this made you feel bad for him?"  
+"我想这让你对他产生了同情？"
+
+I nod again, "Of course, after everything that happened to me I... I recognized some of what he was going through. I had seen it happen with Rei as well and... well Shinji too."  
+我再次点头，“当然，经历了那么多之后，我……我能理解他所经历的一些事情。我也看到过丽和……还有真嗣也是如此。”
+
+"So, after this when did you both take it from a friendship to being something more?"  
+“那么，在这之后，你们是从什么时候从友谊发展成更进一步的关系的？”
+
+I can see her making notes with each one of my answers and I wonder what exactly she is thinking. It's hard to gauge her, she seems to be giving very little, if anything away. I don't know if what I'm saying is good or bad.  
+我可以看到她在我每回答一个问题时都在做笔记，我不知道她到底在想什么。很难揣测她的想法，她似乎很少透露任何信息。我不确定我所说的是好是坏。
+
+"It was a few weeks after the attack, Kaworu had invited me to his apartment for dinner." i start to explain, "I... Something happened whilst I was there and I ended up kissing him. I guess from there we realized we were more than friends. It wasn't really traditional."  
+"那是袭击发生后的几周， Kaworu 邀请我去他公寓共进晚餐。" 我开始解释，"我... 在那里发生了一些事情，我最终吻了他。我想从那时起我们意识到彼此不仅仅是朋友。这并不算传统。"
+
+"It rarely is." She remarks, "I think I've asked all I need to for now. Thank you."  
+"很少有传统的。" 她评论道，"我想我现在问得差不多了。谢谢你。"
+
+The room now falls silence, is this the end of it? I look between them all as they all make notes. What do I do now? Have they made up their minds or do I still have some time left? I wonder how this is going to go, no, I know how this is going to go. They're going to go away and tell me they've reverse their decision and Kaworu will be able to come with me to Japan.  
+房间里现在陷入了沉默，这是结束了吗？我看着他们所有人都在做笔记。我现在该怎么办？他们已经做出决定了吗，还是我还有些时间？我想知道这会怎么发展，不，我知道这会怎么发展。他们会离开并告诉我他们已经改变了决定，Kaworu 将能够和我一起去日本。
+
+"Ms. Soryu, I just had a few questions about you." One of the men to my left suddenly starts to speak, "It's just regarding your service record. It would be fair to say that you had something of a troubled upbringing, am I correct?"  
+“Soryu 女士，我有些关于您的问题。”我左边的一个男人突然开口，“只是关于您的服役记录。可以说您有一个颇为坎坷的童年，我这么理解对吗？”
+
+I nod my head slowly, I don't like where this is going already. What does my upbringing have to do with this?  
+我缓缓点头，已经感觉到不妙。我的童年与此有何关系？
+
+"I know this might not seem relevant to you but we do want to explore all possibilities here. It's a sensitive issue so we would ask for your cooperation. Now, you were put into the Evangelion project from a young age, in fact it could probably be said that you were put into it as soon as you were born?"  
+“我知道这可能对您来说不相关，但我们确实想探究所有可能性。这是一个敏感问题，所以我们希望得到您的配合。那么，您从小就被纳入 EVA 计划，实际上，可以说您一出生就被纳入了？”
+
+"Yes, that is true." I nod again, "I was around the age of four when I was 'selected'"  
+"是的，这是真的。" 我再次点头，"我在四岁左右时被'选中'"
+
+"Our records do state that when it came to certain aspects of your training you were exceptional. You were remarkable in your studies, in fact I believe you managed to obtain a college degree at the age of 13."  
+"我们的记录确实表明，在某些训练方面你非常出色。你在学习上表现卓越，事实上，我相信你在 13 岁时就获得了大学学位。"
+
+I nod proudly, "Yes, my tutors thought I was very advanced for my age and I was convinced to study at that level."  
+我自豪地点头，"是的，我的导师们认为我远超同龄人，并说服我进行那样的学习。"
+
+"Quite a remarkable achievement for a young girl, you must have been proud."  
+"对于一个年轻女孩来说，这真是一项了不起的成就，你一定感到很自豪。"
+
+I was proud, keyword being was but when I look back on it I was miserable. What did my degree get me? All it was, was another weapon I could use to inform people how much better I was than they were. What did it get me, aside from allowing me to feel more isolated from others? Proud? Not a chance.  
+我确实曾感到自豪，关键在于‘曾’，但当我回顾过去，我其实很痛苦。我的学位给我带来了什么？它不过是我用来告诉别人我比他们优秀多少的另一种武器。除了让我感到更加孤立于他人之外，它还给了我什么？自豪？根本不可能。
+
+"Whilst you excelled in these areas, your record shows that there were difficulties in other places. I think it would be fair to say you were something of a… problem child."  
+"尽管你在这些领域表现出色，但你的记录显示在其他地方存在困难。可以说，你有点像是个……问题儿童。"
+
+I look at him and give an embarrassed smile, "I was… a bit of a handful. I admit that much, what is your point?"  
+我看着他，尴尬地笑了笑，“我确实……有点难缠。这一点我承认，你到底想说什么？”
+
+"His point…. I believe." Tokita does not give the man a chance to speak, "Is that you had a problem with authority. We know how you berated your colleagues and your superiors, how you often defied orders in training and treated your guardians poorly. It is of course understandable that someone in your position would have lashed out."  
+“他的观点……我相信。”时田不给那人说话的机会，“就是说你对权威有意见。我们都知道你是如何斥责同事和上级的，如何在训练中经常违抗命令，以及如何恶劣地对待你的守护者。当然，处于你这种位置的人会发泄情绪，这是可以理解的。”
+
+He pauses for a moment, "Revenge against those who wronged you, it's understandable and with Nagisa you have an opportunity to take revenge against a world that wronged you. How can we know that you are simply not just covering for him, or are even in league with him?"  
+他顿了一下，“向那些伤害你的人复仇，这是可以理解的，而有了渚，你有了向这个亏待你的世界复仇的机会。我们怎么能确定你不是在为他掩饰，甚至与他勾结呢？”
+
+I feel my hand clench into a fist at his words but I manage to restrain myself. That is what he wants, he wants me to lash out. Any moment where I slip will just give him a victory, I won't give him the satisfaction.  
+听到他的话，我感到自己的手紧握成拳，但我尽力克制住自己。这就是他想要的，他想让我爆发。任何我失态的时刻都只会让他得逞，我不会让他得意的。
+
+I reply to him, as calmly as I can but unable to keep the snarl out of my voice, "Whatever happened in my past is in my past. I've done as much as I can to move away from that and the hideous wreck of a person I used to be. Yes, I do hate a lot of those people, the ones who saw me as a tool and nothing else. The ones who aided in murdering my mother but those people… SEELE were among them, and they're long gone now."  
+我尽可能平静地回答他，但无法完全掩饰声音中的咆哮，"我过去发生的一切都已成为过去。我已经尽我所能远离那个过去，以及曾经那个丑陋不堪的自己。是的，我确实恨那些人，那些把我当作工具而非人的人。那些参与谋杀我母亲的人……SEELE 也在其中，但他们早已不复存在。"
+
+I turn towards the chairman and look him firmly in the eyes. I'm done here, I have nothing more to say, "I have told you all everything I have to tell you. Kaworu is no threat to me, no threat to any of you or this world. If you refuse to believe me then so be it, you can live with your foolish mistake. I'm done here."  
+我转向主席，坚定地直视他的眼睛。我在这里已经无话可说，"我已经把所有该说的都告诉你们了。真嗣对我、对你们、对这个世界都没有威胁。如果你们拒绝相信我，那就随你们吧，你们可以承担自己的愚蠢错误。我在这里已经无话可说了。"
+
+---
+### Chapter 18: Waiting To Happen  
+第十八章：等待发生  
+
+**Tokyo 2 – UN Embassy – Shinji Ikari  
+东京 2 – 联合国大使馆 – 碇真嗣**
+
+My hand tightly grips the sides of the porcelain sink as I try to steady myself. I look up into the mirror and see my pale and shabby reflection looking back at me, I look vastly different to the person I was this morning. My suit is slightly more disheveled, my tie taken off and stuffed into my pocket, my jacket open and the top two buttons of my shirt undone.  
+我的手紧紧抓住瓷质洗手池的两侧，试图让自己稳定下来。我抬头看向镜子，看到自己苍白而憔悴的倒影回望着我，与我今早的模样大相径庭。我的西装略显凌乱，领带被摘下塞进口袋，外套敞开，衬衫最上面的两颗扣子也解开了。
+
+I turn the cold tap on and lean in to splash more cold water onto my face. I rushed here immediately after that meeting. It was like some sort of trigger, the moment my feet reached the waiting room and that door closed behind me I felt the wave of nausea rush over me. My stomach clenched and I thought I was going to throw up.  
+我打开冷水龙头，俯身将更多冷水泼在脸上。会议一结束，我就急忙赶到了这里。那一刻，仿佛触发了某种开关，当我踏入等候室，门在身后关闭时，一阵恶心感如潮水般涌来。我的胃紧缩着，感觉自己快要吐了。
+
+I'm still not sure if I'm going to. I feel slightly better now, only slightly, after taking these 5-10 minutes to cool myself down but I don't want to leave the room just in case. It was all just too much for me, the heat of the room got to me followed by all the things they were saying and the pressure put on me. It was all too much.  
+我仍然不确定自己是否会吐。现在感觉稍微好了一点，只是稍微，经过这 5 到 10 分钟的冷静，但我不想冒险离开房间。这一切对我来说太过沉重，房间的闷热、他们说的话以及施加在我身上的压力，一切都太过分了。
+
+I look at my face again, beads of sweat and water trickling down. My eyes look tired, I'm exhausted and it's not even halfway through the day yet. They... They did this, one meeting did this to me, I have a whole new respect for people like Misato and Fuyutsuki who interact with these sorts of people all the time.  
+我再次看着镜子中的自己，汗水和水珠顺着脸颊滑落。我的眼睛显得疲惫，我感到精疲力尽，而这一天甚至还没过半。他们……他们让我如此，仅仅一次会议就让我这样，我对像美里和冬月这样经常与这类人打交道的人有了全新的敬意。
+
+Events from the meeting roll through my mind, the questioning of me, of Kaworu, of my sexuality and then of course Tokita telling me about Asuka and Kaworu. My heart sinks when I think of the two of them together. I didn't... I never thought... No... It doesn't matter.  
+会议上的种种情景在我脑海中翻滚，对我的质问，对薰的质问，对我的性取向的质疑，当然还有时田告诉我关于明日香和薰的事情。想到他们俩在一起，我的心沉了下去。我没想到...我从未想过...不...这无关紧要。
+
+I breathe deeply a couple more times, trying to clear my mind and steady my trembling hands. I lift them from the sides of the sink and start to make my way towards the exit of the bathroom. I think... I think I'll be alright now. I'll get myself a bottle of water and go home. I'll sleep, I don't want to do anything else but sleep.  
+我又深呼吸了几次，试图清空思绪，稳住颤抖的双手。我从洗手池边抬起手，开始向洗手间出口走去。我想...我想我现在会没事的。我会给自己拿瓶水然后回家。我只想睡觉，除了睡觉我什么都不想做。
+
+"SHINJI!" "真嗣！"
+
+I'm barely three steps out of the bathroom before I hear a loud voice calling my name. I turn towards its source and see a worries Misato rushing towards me. I prepare myself but thankfully she slows down moments before colliding with me, she pulls me into a warm and gentle hug. I don't resist it, instead I allow myself to melt into her and bring my arms up around her back. I bury my face into her shoulder.  
+我才走出洗手间不到三步，就听到一个响亮的声音在叫我的名字。我转向声音的来源，看到忧心忡忡的美里正向我冲来。我做好了准备，但幸运的是她在撞上我之前放慢了速度，她温柔地将我拥入怀中。我没有抗拒，反而让自己融入她的怀抱，抬起双臂环绕她的背部。我将脸埋在她的肩上。
+
+"Oh Shinji, are you okay?"  
+"哦，真嗣，你还好吗？"
+
+It starts, I was keeping it together until now but her being her like this and doing this, it starts it. I shake my head and pull Misato tighter to me. I can't stop it from happening, I promised myself I wouldn't cry here, I'm supposed to be an adult but I can't help it. The tears well up in my eyes and I let out a muffled sob into her shoulder as she calmly strokes my back.  
+事情就这样开始了，我一直努力保持镇定，直到现在，但她这样子，这样做，它就开始了。我摇摇头，把美里抱得更紧。我无法阻止它发生，我曾对自己承诺不会在这里哭泣，我应该是个成年人了，但我忍不住。泪水涌上眼眶，我将一声压抑的呜咽埋进她的肩膀，她平静地抚摸着我的背。
+
+"Shinji I... I saw everything! I had no idea, I'm so sorry."  
+"真嗣，我……我看到了一切！我毫不知情，真的很抱歉。"
+
+Again, I say nothing, just allowing myself to remain in her warmth for a few more moments. I let myself get some of that emotion inside of me out. When I finally do pull away from her I find myself face to face with her worried eyes. She has a small smile on her face and reaches into her handbag to pull out a small tissue for me to use.  
+我又一次保持沉默，只是让自己在她温暖的怀抱中多停留片刻。我让自己释放了一些内心的情感。当我最终从她怀中抽身时，发现自己正与她担忧的眼神相对。她脸上带着淡淡的微笑，伸手从手提包里拿出一张小纸巾递给我。
+
+I mumble and embarrassed thank you as I gaze from the watch patch my tears have made on her suit jacket back to her. I begin to wipe my eyes and she guides me towards a seat and sits me down. We remain still, her hand on mine, gently squeezing it for comfort. It takes another minute before I feel I can actually speak again.  
+我含糊地道了声谢，带着几分尴尬，目光从她西装外套上我泪水留下的痕迹移回到她脸上。我开始擦拭眼睛，她引导我走向一个座位并让我坐下。我们静静地坐着，她的手放在我的手上，轻轻地握着以示安慰。又过了一分钟，我才感觉自己能再次开口说话。
+
+"Y-You... s-saw everything?" I stutter out, my body still trembling slightly. I haven't been like this in a while, I guess being there, trying to be that strong person for that amount of time had a bigger toll on me than I expected.  
+“你……你看到了全部？”我结结巴巴地说，身体仍微微颤抖。我已经有一段时间没有这样了，我想，在那里试图长时间扮演坚强的人，比我预想的要耗费更多心力。
+
+Misato simply nods but I see anger in her eyes, "Yeah, they hooked up a video feed for me and Rei to watch it on. I think Fuyutsuki was watching it in Germany as well. I... I'm sorry you had to go through any of that, I can't imagine how tough it must have been."  
+美里只是点了点头，但我从她的眼中看到了愤怒，“是的，他们为我跟绫波接通了视频，让我们观看。我想副司令在德国也看了。我……我很抱歉你经历了这些，我无法想象那有多艰难。”
+
+I let out a small laugh, "You... You dealt with helping us and sorting out NERV after Third Impact. You spoke for us, you must have some idea."  
+我轻声笑了出来，“你……你既要帮助我们，又要处理第三冲击后的 NERV。你为我们发声，你肯定有所体会。”
+
+She smiles again, "True but... In not one of those meetings did I... Well In none of them was my personal life questioned..."  
+她再次微笑，“确实如此，但……在那些会议中，我的……个人生活从未被质疑过……”
+
+She pauses for a moment, "Okay well... they did have questions! I just... it was different. I was... I was prepared for it, the questions they had were the faults I already knew about myself. My drinking, my neglect of the pilots and my actions. I didn't... find out the person I loved was with another. What Tokita said and did... it was below the belt Shinji."  
+她顿了顿，“好吧……他们确实有疑问！我只是……情况不同。我……我对此有所准备，他们提出的问题都是我已知的自身缺陷。我的酗酒，我对飞行员的疏忽，以及我的行为。我并没有……发现我所爱的人和别人在一起。富田说的和做的……真是过分了，真嗣。”
+
+I look up at the wall opposite us as I try to go back through the meeting. It all seems like a blur but Tokita does stand out for me. From the very start of the meeting through to the end he seemed to have it in for me. Not only that but he seemed to actually enjoy my discomfort when he told me about Asuka and Kaworu. What did I ever do to him? Why was he like that?  
+我抬头看向对面的墙壁，试图回忆会议的经过。一切都显得模糊不清，但富田确实给我留下了深刻印象。从会议开始到结束，他似乎一直针对我。不仅如此，他似乎还乐见我因他透露明日香和薰的事情而感到不适。我到底对他做了什么？他为何如此？
+
+"Who... is that guy?" I ask Misato, "I mean... I know he is the Japanese representative on the council but... why did he hate me?"  
+“那家伙……是谁？”我向美里问道，“我是说……我知道他是理事会中的日本代表，但……他为何如此讨厌我？”
+
+"By all accounts he is an unpleasant man to anyone who comes across him but... there is some history there." She begins to explain, "I've only dealt with him once before, a long time ago before he got himself involved with these sorts of politics."  
+"无论从哪个角度看，他都是一个让人不愉快的人，但...他们之间有些过往。" 她开始解释，"我只和他打过一次交道，是很久以前的事了，那时他还没卷入这些政治纷争。"
+
+"When?" I ask. "什么时候的事？" 我问道。
+
+"Do you remember the Jet Alone project?" She asks me, "It was around the time you first started living with me, you would not have met him but I did. I didn't recognize him at first to be honest but then certain things started to fall into place."  
+"你还记得 Jet Alone 项目吗？" 她问我，"那是在你刚搬来和我一起住的时候，你没见过他，但我见过。说实话，一开始我没认出他，但后来一些事情逐渐明朗起来。"
+
+I cast my mind back as best as I can before nodding, "Yeah... that was the big robot thing, right?"  
+我尽力回忆，然后点头，“嗯...那就是那个大机器人，对吧？”
+
+I can remember it pretty clearly. It wasn't long after I had started living in Tokyo-3. It was after me and Rei had beaten the fifth Angel, Misato had to go on a business trip for it. At the time I was frustrated with her, I thought she was lazy and a slob and I think to be fair she was. I thought I hated it but in a way, she was showing me a reflection of the real her, that she thought of me as family she would let me see that side of her she wouldn't show others.  
+我记得很清楚。那是在我开始住在第三新东京市不久后的事。我和绫波击败了第五使徒后，美里不得不为此出差。当时我对她很恼火，觉得她懒惰邋遢，公平地说，她的确如此。我以为我讨厌这样，但从某种程度上，她是在向我展示真实的自己，她把我当作家人，愿意让我看到她不向别人展示的那一面。
+
+It was still frustrating though. The 'real her' could still have learned to clean up after themselves.  
+尽管如此，这依然令人沮丧。‘真实的她’本可以学会收拾自己的东西。
+
+Misato nods again, "It was. The Jet Alone was supposed to be an alternative to the Evangelion. It was supposed to be better and more capable than the Eva's. Internal nuclear power and piloted by an onboard computer or remotely. It was an expensive recipe for disaster. As you saw it all went wrong and Tokita has harbored a grudge against anything NERV related since. He even stuck his nose in efforts to compensate you all!"  
+美里再次点头，“确实如此。Jet Alone 本应是 EVA 的替代品。它应该比 EVA 更优秀、更有能力。采用内部核动力，由机载计算机或远程操控。这是一场昂贵的灾难配方。正如你所见，一切都出了问题，而自那以后，土田对任何与 NERV 相关的事物都怀恨在心。他甚至插手试图补偿你们所有人！”
+
+I shake my head, "Why? I mean, it wasn't NERVs fault that his stupid robot fai-"  
+我摇摇头，“为什么？我是说，他那愚蠢的机器人失败并不是 NERV 的错——”
+
+As I speak I trail off to see Misato looking somewhat sheepish. She looks at me and shrugs, "Actually... It was. I suspected something had happened after the incident, the timing was too perfect. I found like later that your father with the help of Ritsuko and someone else had arranged to sabotage it. Tokita doesn't know this but... well he suspects it."  
+我说话间停了下来，看到美里显得有些尴尬。她看着我，耸了耸肩，“实际上……是我们的错。我怀疑事故发生后有什么事情发生了，时机太完美了。后来我发现，在你的父亲和律子以及其他人的帮助下，他们安排了破坏行动。土田不知道这一点，但他……嗯，他有所怀疑。”
+
+I let out a sigh as Misato puts her arm around my shoulder again. So that explains why Tokita had it out for me during that meeting. He hates me because of what my father did. I suspect because I helped stop the thing he probably blames me for it. Just another thing my father did that I'm paying for.  
+我叹了口气，Misato 再次将手臂搭在我的肩上。难怪 Tokita 在那次会议上对我怀恨在心。他恨我是因为我父亲所做的事。我怀疑是因为我帮助阻止了他可能因此而责怪我的事情。只是我父亲所做的另一件事，我却在为此付出代价。
+
+My mind turns to the things he said and I look up at Misato, "Was... what he said about Asuka and Kaworu true?"  
+我的思绪转向他所说的话，我抬头看着 Misato，"他说的关于 Asuka 和 Kaworu 的事情是真的吗？"
+
+Misato nods again and sighs, "Yes... I asked Rei and she confirmed it. She felt... really bad about not telling you but I told her she shouldn't."  
+Misato 再次点头并叹息道，"是的...我问过 Rei，她证实了这一点。她感到...真的很糟糕，没有告诉你，但我告诉她不应该这么做。"
+
+Misato pauses, "That was... something I wanted to talk to you about actually. You... like the two of them, don't you?"  
+美里停顿了一下，“那件事……其实是我想和你谈谈的。你……喜欢他们两个，对吧？”
+
+There is no teasing in her voice like there usually is when she asks questions about my love life. She is seriously, scarily serious.  
+她的语气中没有平时问及我感情生活时的那种戏谑。她是认真的，认真得让人害怕。
+
+"Yeah... I do..." “嗯……是的……”
+
+"I see..." She pauses again, "So... are you mad at them for this."  
+"我明白了..." 她再次停顿，"那么... 你是因为这个生他们的气吗？"
+
+I shake my head, "No... I'm not mad... how can I be? They met and became friends I... I can't be mad at them for that. It... It does hurt but... it's been years since I saw Asuka and even more since I saw Kaworu. I don't have a right to be in a relationship with any of them."  
+我摇摇头，"不... 我没有生气... 我怎么能生气呢？他们相遇并成为了朋友，我... 我不能因此对他们生气。这... 这确实让我感到痛苦，但... 自从我见到明日香已经过去很多年了，而见到渚薰的时间更久。我没有权利与他们中的任何一个保持关系。"
+
+Misato's arm tightens around me, "You're much more mature than I would have been, I'd probably be sinking my seventh can of beer around now and smashed up the coffee table as well."  
+美里紧紧搂住我，"你比我成熟多了，换作是我，现在可能已经喝下第七罐啤酒，还把咖啡桌给砸了。"
+
+I laugh, "I don't like beer and besides... that was an expensive coffee table."  
+我笑着说，“我不喜欢啤酒，而且……那可是张昂贵的咖啡桌。”
+
+It does hurt, it really hurts but mad? I can't be mad at them. I don't want to be mad at them. I want to do the right thing. I'm not... I'm not him. I'm not going to let my jealousy or sadness ruin other people's lives.  
+确实很痛，真的很痛，但生气吗？我不能对他们生气。我不想对他们生气。我想做正确的事。我不是……我不是他。我不会让我的嫉妒或悲伤毁了别人的生活。
+
+I look to Misato, "Do you think I did the right thing today?"  
+我看向美里，“你觉得我今天做得对吗？”
+
+Misato looks to be lost in thought for a moment. I know this must be quite hard for her as well. I know how she felt about Kaworu. She didn't like the thought of him returning, I don't think she believed he was human either but... she supported me. After a few moments she turns to look me in the eyes, "Did you... truly believe those things you said about him? That he wasn't a threat? That he was human?"  
+美里似乎陷入了沉思。我知道这对她来说也一定很难。我了解她对渚的感情。她不喜欢他回来的想法，我想她也不认为他是人类……但她支持我。过了一会儿，她转过来看着我的眼睛，“你……真的相信你说的那些关于他的话吗？他不是威胁？他是人类？”
+
+I nod, "Y-Yeah... I did."  
+我点头，“嗯……是的，我相信。”
+
+Then... Yes, you did the right thing." She answers, "You could have walked away at any moment. Even when Tokita told you about the two of them you could have easily walked away from it. You could have said you changed your mind or you were unsure but you continued and did what was right. You did the right thing Shinji, I'm... proud of you for that and you should be proud of yourself."  
+“那么……是的，你做对了。”她回答，“你本可以在任何时候离开。即使当时富田告诉你他们两人的事，你也可以轻易地走开。你可以说你改变了主意或你不确定，但你继续前进并做了正确的事。你做得对，真嗣，我……为你感到骄傲，你也应该为自己感到骄傲。”
+
+Pride? It's funny that every time someone tells me I should have pride in myself or they're proud of me it also seems to coincide with a time I feel like I'm being torn apart. I don't feel anything but an aching in my heart right now and a strong desire to go home. Fortunately, it looks like Misato also shares that desire, "I think we should go now. I'll get us some ice cream on the way home to make you feel better!"  
+骄傲？真有意思，每次有人告诉我应该为自己感到骄傲，或者他们为我感到骄傲时，似乎都恰好是我感觉自己被撕裂的时刻。我现在只感到心在隐隐作痛，强烈地想回家。幸运的是，美里似乎也有同样的想法，“我想我们现在应该走了。回家路上我会给咱们买些冰淇淋，让你感觉好些！”
+
+I look at her for a moment and fight an urge to shake my head. Ice cream? Is she serious? She is grinning at me, she is serious. I let out a sigh, "Misato I'm not a child... Yeah, Okay... Chocolate chip for me."  
+我看了她一会儿，强忍住摇头的冲动。冰淇淋？她是认真的吗？她正对着我咧嘴笑，她是认真的。我叹了口气，“美里，我不是小孩子了……好吧，行吧……我要巧克力碎的。”
+
+**Berlin – UN Embassy Exterior – Asuka Langley Soryu  
+柏林 – 联合国大使馆外 – 惣流·明日香·兰格雷**
+
+I wind my foot back and line it up before letting it fly forward. I immediately regret my action as my foot makes contact with the solid steel of the skip. A loud bang echoes through the alleyway as shake my shoe off and grab my throbbing foot. Those shoes aren't made for kicking things and those skips are not made to be kicked. I'm not going to give the stupid thing the satisfaction of hearing me scream out in pain.  
+我收回脚，瞄准目标后猛地踢出。脚一碰到坚硬的钢制垃圾箱，我立刻后悔了。小巷中回荡着一声巨响，我甩掉鞋子，抓住疼痛不已的脚。这些鞋子不适合踢东西，而这些垃圾箱也不是用来踢的。我不会让那愚蠢的东西听到我因疼痛而尖叫。
+
+Instead I bring my foot back again. I know it's a stupid thing to do but I do it anyway and another loud thud is as foot meets steel. This time I reel back as intense, white hot pain shoots through my foot and lower leg. I lean back against a wall feeling a wave of nausea rush over me.  
+相反，我又一次把脚收了回来。我知道这么做很蠢，但还是做了，又一声沉重的撞击声响起，脚再次碰到钢板。这次我痛得后退，强烈的、灼热的疼痛从脚部直窜小腿。我靠在墙上，一阵恶心感涌上心头。
+
+"D-Did things not go so well?"  
+“事情……进展得不顺利吗？”
+
+I turn my head at the sound of the meek voice and see Kaworu stood at the entrance of the alleyway. He is looking at me like a lost puppy might look at its owner. His head is slightly tilted and his face showing his concern. I tenderly rub my foot as another feeling comes over me, dread at what I am going to say to him.  
+我听到那微弱的声音转过头去，看到渚薰站在巷子口。他看着我，就像一只迷路的小狗看着主人一样。他的头微微倾斜，脸上流露出关切。我轻轻揉着脚，另一种感觉涌上心头，对即将对他说的话感到恐惧。
+
+I fucked it up, didn't I? I fucked everything up! Stupid. Fucking. Me!  
+我搞砸了，对吧？我把一切都搞砸了！愚蠢。该死的。我！
+
+What the hell did I expect to happen? Of course, I was going to fuck it up! That's what Asuka Langley Soryu does! She goes in, fucks it up and fucks off. I don't even think the invincible Shinji can save the situation now.  
+我到底期待会发生什么？当然，我会搞砸一切！这就是惣流·明日香·兰格雷的作风！她闯进去，搞砸一切然后离开。我甚至不认为无敌的真嗣现在能挽救局面了。
+
+So now I'm left to explain the damn thing to Kaworu, the very person I was trying to help. I have to tell him that I've ruined his life for him.  
+现在我只能向渚薰解释这该死的事情，那个我本想帮助的人。我得告诉他，我已经毁了他的生活。
+
+"No!" I hiss at him angrily, "It did not go well!"  
+“不！”我生气地对他低声说，“事情没办好！”
+
+I'm about to take aim at the skip once more when he suddenly dashes forward and puts his arms around me. Both saving me from doing more damage to myself and also giving me some meagre and undeserved comfort. I struggle in his arms for a moment to keep my balance, standing with my good foot on the ground, my exposed and dirtied foot hanging precariously over the floor. I'm beyond pathetic.  
+我正准备再次瞄准那个跳跃点，他突然冲上前，用双臂抱住我。既救了我免于对自己造成更多伤害，也给了我一些微薄且不应得的安慰。我在他的怀抱中挣扎了一会儿以保持平衡，用我那只完好的脚站立，受伤且沾满尘土的脚危险地悬在地板上。我真是可悲至极。
+
+"i fucked it up Kaworu." I sigh into his shoulder, my eyes stinging with tears, "And... I think I might have broken my foot as well."  
+“我把事情搞砸了，渚薰。”我叹息着靠在他的肩上，泪水刺痛了我的眼睛，“而且……我觉得我的脚可能也骨折了。”
+
+Kaworu says nothing, instead he wraps his arms a little bit tighter around me and runs a hand through my hair. He moves to kiss me on the forehead, "You did the best you could have done Asuka. I don't think you have done anything wrong."  
+渚薰没有说话，只是将双臂更紧地环绕着我，用手轻抚我的头发。他俯身亲吻我的额头，“你已经尽力了，明日香。我认为你并没有做错什么。”
+
+The best? The best I could have done? If that was my best then my worst must be absolutely dreadful. I pull away and see his face, he is actually smiling at me. Kaworu is smiling at me with that stupid, cute, perfect smile of his! Does he not understand what I just said? Did the idiot not hear me properly? How can be smiling.  
+尽力？我尽力了？如果那是我最好的表现，那我最糟糕的时候该有多可怕。我挣脱开，看到他的脸，他竟然在对我微笑。渚薰用他那愚蠢、可爱、完美的笑容对着我微笑！他难道不明白我刚才说的话吗？这个傻瓜难道没听清楚吗？他怎么能笑得出来。
+
+"Kaworu you... you don't understand... I... fucked this up." I try to tell him, "It wasn't them... It was me... I couldn't keep control. I lost my temper with them, I let them get to me. I didn't even stay to the end of the meeting. I just... stormed out after calling them all fools. I have fucked this up for you."  
+"渚薰你...你不明白...我...搞砸了这一切。"我试图告诉他，"不是他们...是我...我没能控制住自己。我失去了理智，对他们发了脾气，让他们激怒了我。我甚至没等到会议结束。我只是...在骂他们都是傻瓜后愤然离场。我把你这事搞砸了。"
+
+Kaworu is still smiling. Is he that stupid or is he just good at hiding disappointment? I wonder if he has even taken something but I know that can't be it. This is just Kaworu, he... he is smiling because he means it. Why is he smiling?  
+渚薰依然在微笑。他是真那么蠢，还是擅长隐藏失望？我想知道他是否吃了什么药，但我知道那不可能。这就是渚薰，他...他微笑是因为他真心如此。他为什么在笑？
+
+"Kaworu... Please say something! Aren't you angry or mad at me? This was... your only chance and I... I've messed it up for you." My hands grip his shoulders tightly as I plead with him, I'm not even sure what I want right now. Do I want him to be angry? Do I want him to yell at me? I don't want that, I don't want to be told I'm bad but this... this feels worse.  
+"渚薰...请说点什么！你不生气或对我失望吗？这可是...你唯一的机会，而我...我把它搞砸了。"我的双手紧紧抓住他的肩膀恳求他，我甚至不确定我现在想要什么。我希望他生气吗？我希望他对我大吼大叫吗？我不希望那样，我不想被说成是坏人，但这种感觉...这种感觉更糟。
+
+I pray that no one passes and looks into the alley right now to see how ridiculous this scene is. A girl hopping on one foot, nearly crying and gripping onto her smiling boyfriend's shoulders.  
+我祈祷此刻无人经过，向这条小巷投来目光，看到这荒唐的一幕。一个女孩单脚跳着，几乎要哭出来，紧紧抓着她那微笑着的男友的肩膀。
+
+"Asuka I... I could never be angry or mad at you for what you did or didn't do." He finally replies, "i love you Asuka and the fact that you even tried to do this is enough for me. Regardless of what they say today, whether I am allowed to travel or not I am happy because... you tried. You have no idea how grateful I am to both yourself and Shinji for this. I am... at peace with the idea that things might not go our way because... at least I have your love. That means more to me than anything else."  
+“明日香，我……我永远不会因为你做了或没做什么而对你生气或愤怒。”他终于回答道，“我爱你，明日香，你甚至尝试去做这件事，对我来说已经足够了。无论今天他们怎么说，无论我是否被允许旅行，我都很高兴，因为……你尝试了。你不知道我对你和真嗣有多感激。我……对事情可能不会如我们所愿感到平静，因为……至少我有你的爱。这对我来说比什么都重要。”
+
+I look at him for a moment, tears still burning in my eyes from the pain in my foot and the emotion of his words. Kaworu does... truly love me but why? I'm a mess, look at me right now. I'm pathetic, begging for him to be angry at me because I can't accept that I might be a good person.  
+我凝视着他，泪水仍因脚上的疼痛和他说的话而灼热。渚薰……真的爱我，但为什么呢？我一团糟，看看我现在这副样子。我可悲，乞求他对我发怒，因为我无法接受自己可能是个好人。
+
+I look him in the eyes, does he mean what he said? Does he truly mean it? Yes, of course he does. Of course, he means it because for some reason he actually loves me. Despite me not deserving it and being a failure this strange but wonderful guy actually loves me.  
+我直视他的眼睛，他说的都是真心话吗？他真的这么想吗？是的，当然是的。他当然这么想，因为出于某种原因，他真的爱我。尽管我不配得到这份爱，尽管我是个失败者，这个奇怪却美妙的家伙真的爱我。
+
+"Can we go now?" I mumble, keeping my hands on his shoulders for support and biting back the tears.  
+“我们现在可以走了吗？”我咕哝着，双手搭在他的肩膀上寻求支撑，强忍着泪水。
+
+"Of course." he nods and smiles as we turn to leave the alley. He shoots a concerned glance down at my foot, "I think we should do to a hospital first though and get your foot looked at."  
+“当然。”他点头微笑，我们转身离开小巷。他关切地低头看了一眼我的脚，“不过，我想我们应该先去医院，看看你的脚。”
+
+"No I..." I shake my head as I start to set my foot back into my shoe. My words fade as my foot makes contact and sends an intense amount of pain up through it and my lower leg. I feel my nails dig into his shoulders as I try to not let out a scream, "Okay, yes... hospital... hospital sounds good just... please don't tell them how I did it."  
+“不，我……”我摇着头，开始将脚重新塞进鞋里。话音未落，脚一触地，剧痛便如电流般直窜而上，穿过脚踝和小腿。我指甲紧扣他的肩膀，强忍着不发出尖叫，“好吧，是的……去医院……去医院听起来不错……只是……请别告诉他们我是怎么弄的。”
+
+**Tokyo-2 – Misato's Apartment – Misato Katsuragi  
+东京-2 – 美里公寓 – 葛城美里**
+
+I step out of the apartment into the much cooler evening. As the door shuts so to goes the sound of voices and video games. All I am left with now is the ambient sounds of traffic nearby and the noise of a couple of kids still out playing in the courtyard below.  
+我走出公寓，步入凉爽的夜晚。随着门的关闭，人声和电子游戏的喧闹也随之消失。现在，我耳边只剩下附近车辆的嘈杂声和楼下庭院里几个孩子仍在玩耍的吵闹声。
+
+Today has been a taxing day for me, but even more so for Shinji in there. He does seem to be a little bit better though. I don't know if it's a brave face because I invited his friends over or if he does genuinely feel better. It's hard to tell with people, especially him.  
+今天对我来说已经很疲惫了，但对里面的真嗣来说更是如此。不过，他似乎确实感觉好了一点。我不知道这是因为他朋友们来访时我鼓励他展现的勇敢面孔，还是他真的感觉好些了。人的情绪很难捉摸，尤其是他。
+
+I feel so bad for Shinji, I really do. I can't pretend I know how he feels or what he is going through. I've had my heartbroken before, and I'm sure I've broken hearts. Generally, I'm the one doing the breaking up or just denying them. It all started with Kaji many years ago and... well there haven't exactly been a rush of men since but... it's all the same thing, right?  
+我对真嗣感到非常抱歉，真的。我不能假装我知道他的感受或他正在经历什么。我以前也心碎过，当然我也肯定伤过别人的心。通常，我是那个提出分手或直接拒绝他们的人。这一切都始于多年前与加持的恋情，然后……好吧，之后并没有太多男人涌入我的生活，但……都是同样的事情，对吧？
+
+I know Shinji loved her and I was so certain she loved him back. Still, five years is a long time and life isn't a fairytale like we'd sometimes like it to be. If it was then... well Kaji wouldn't be dead. This is just something that Shinji will have to get over, it'll be tough but he is still young and there are plenty more fish in the sea as they say.  
+我知道真嗣深爱着她，我也曾确信她同样爱着他。然而，五年是很长的时间，生活并不总是像我们有时希望的那样如童话般美好。如果真是那样的话……好吧，加持就不会死了。这只是真嗣必须克服的事情，虽然会很艰难，但他还年轻，正如人们所说，海里还有很多鱼。
+
+I will admit, I was quite shocked when I found out about Asuka and Nagisa being an item. It wasn't something I had expected, obviously I knew that they were friends but romance? I was so sure Kaworu was... well when I look back at how he acted around Shinji... I know he was deceiving Shinji but there are some things you can't hide. Glances, looks and blushes, Kaworu... had all of that.  
+我得承认，当我得知明日香和渚在一起时，我相当震惊。这显然不是我预料中的事，虽然我知道他们是朋友，但恋情？我一直以为薰会是……好吧，回想他对待真嗣的方式……我知道他在欺骗真嗣，但有些东西是藏不住的。眼神、表情和脸红，薰……这些他都有。
+
+I suppose when I think about it I don't really know who Kaworu is. All I know is what I think he is or at least what I knew he was. I met him for a such a small amount of time, Asuka has known him for months now. I will say this... if he ever hurts her then he will have me to deal with.  
+我想，仔细想想，我其实并不真正了解薰。我所知道的只是我认为的他，或者至少是我所了解的他。我和他相处的时间如此短暂，而明日香已经认识他几个月了。我要说的是……如果他伤害了她，那他就要面对我。
+
+I let out a sigh, the person I'm out here to meet should be along in a moment. I hope he is bringing good news with him. I look towards the elevator, right on cue in opens up and Fuyutsuki steps out giving me a nod of acknowledgement.  
+我叹了口气，我要见的那个人应该马上就到了。希望他带来的是好消息。我朝电梯望去，准时地，电梯门打开了，冬月走了出来，向我点头示意。
+
+"Katsuragi." "葛城。"
+
+I nod back politely, "Fuyutsuki."  
+我礼貌地点头回应，"冬月。"
+
+"I take it Shinji is inside, how is he doing?"  
+"看来真嗣在里面，他怎么样了？"
+
+"Better." I reply, "He's got some friends with him, he seems happier but today did take a toll on him."  
+"好多了。" 我回答，"他有些朋友陪着，看起来更开心了，但今天确实对他影响不小。"
+
+"Yes... I can imagine." The older man bows his head, he looks troubled and I wonder if maybe he has heard something already. My mind starts firing questions but I remain silent, it's best to not say anything yet. I wait for him to finish, "They allowed me to observe it from my office here in Tokyo-2."  
+"是的……我能想象。" 年长者低下头，显得心事重重，我不禁猜测他是否已经听到了什么风声。脑海中涌现出无数疑问，但我保持沉默，现在最好还是不要多言。我等待着他继续，"他们允许我从东京-2 的办公室里观察这一切。"
+
+"I see, so you saw the whole thing then?" I ask him as my attention turns back to the now empty courtyard. I'm aware of the frosty nature of my tone, I'm always on my guard when around the old man. I know I have no reason to be but despite all his changes and how much he has helped I still can't find it within myself to completely forgive him for his role in all that happened.  
+"我明白了，那你当时看到了整个过程？" 我问道，目光再次转向如今空无一人的庭院。我意识到自己语气中的冷淡，与这位老人相处时我总是保持警惕。我知道自己没有理由这样，尽管他已有所改变，且给予了许多帮助，但我仍无法完全原谅他在这一切中所扮演的角色。
+
+"Indeed." He stands next to me and places a hand on the railing also looking into the courtyard below, "Shinji handled himself very well in there. I don't think there are many who would be able to hold their own against a group of professional politicians like that. He came across very well, almost unflappable he reminded me of..."  
+“确实。”他站在我旁边，也将手放在栏杆上，一同望向下方庭院，“真嗣在里面表现得非常出色。我认为很少有人能在那样一群职业政客面前保持镇定。他显得非常从容，几乎不动声色，让我想起了……”
+
+"His father?" I finish the sentence for him, "I don't think that's a comparison Shinji would appreciate."  
+“他的父亲？”我替他说完这句话，“我觉得真嗣不会喜欢这种比较。”
+
+I scowl but also have to admit that Fuyutsuki was right. If it wasn't for who Shinji's father was it might have been amusing, the body language, the stare and the way he spoke. It was all shades of his father. For some that would be a compliment but for Shinji it'd be the worst thing he could hear.  
+我皱眉，但也得承认冬月说得没错。如果不是因为真嗣的父亲，这种比较或许还有点趣味，无论是肢体语言、眼神还是说话方式，都像极了他父亲。对某些人来说，这可能是种赞美，但对真嗣而言，却是最不想听到的话。
+
+"Of course not, it was just the musings of a foolish old man." Fuyutsuki answers "I apologize I did not mean to compare the two, it is just I..."  
+"当然不是，那只是一个愚蠢老人的胡思乱想。" 冬月回答道，"我道歉，无意将两者相提并论，只是我……"
+
+"No, I know..." I cut him off sharply, "I could see it too but... Shinji is thankfully nothing like that man. Shinji fights for others and not for himself. Shinji would rather put himself on the line even if it hurts him dearly to help someone else."  
+"不，我知道……" 我尖锐地打断他，"我也能看出来，但是……幸好真嗣和那个人完全不同。真嗣是为了他人而战，不是为了自己。真嗣宁愿自己承担风险，哪怕这会让他深受伤害，也要去帮助别人。"
+
+"I know." He nods, "He is so much more like his mother in that regard. She too would not wish to hurt another in what she did, she too wanted to fight for and help others. She would always try to look for the good in someone."  
+"我明白。" 他点头，"在这方面，他更像他的母亲。她也不希望因自己的行为伤害他人，她也想为他人而战、帮助他人。她总是试图在别人身上寻找优点。"
+
+"Still." He looks at me, "I am sure you do not wish to hear me ramble about Shinji's parents. I wanted to meet with you because I have some news regarding today's events. I thought you might like to hear it."  
+"还是。" 他看着我，"我确信你不想听我唠叨关于真嗣的父母。我找你是想告诉你一些关于今天事件的消息。我想你可能会想听。"
+
+"Go ahead." I nod back.  
+"说吧。" 我点头回应。"
+
+"The good news is that the committee were very impressed with Shinji today, at least most of them were." Fuyutsuki takes a moment to pause, "Tokita cast his vote immediately after the meeting."  
+"好消息是，委员会对真嗣今天的表现在很大程度上印象深刻，至少大部分人是这样。" 冬月停顿了一下，"土田在会议结束后立即投了他的票。"
+
+"Will that impact the discussions?" I ask him.  
+"那会影响讨论吗？" 我问他。
+
+He shakes his head, "No, they do not need to be unanimous in their decision. Still many of them are taking the time to re-evaluate their prior decision. All, with the exception of Tokita, are discussing the situation and re-examining all the data they have on Nagisa."  
+他摇摇头，"不，他们不需要达成一致决定。尽管如此，他们中的许多人还是在重新评估之前的决定。除了时田之外，所有人都在讨论这个情况，并重新审视他们所掌握的关于渚的所有数据。"
+
+"I see, so Tokita has taken himself out of the talks."  
+"我明白了，所以时田已经退出讨论了。"
+
+"I'm not sure." Fuyutsuki replies, "I think it is more a matter of them taking him out of the talks. His views are clear, no evidence or discussion will sway him, so what is the point of him being a part of it."  
+"我不确定。" 冬月回答，"我认为更多的是他们想把他排除在谈判之外。他的观点很明确，任何证据或讨论都无法动摇他，所以让他参与其中有什么意义呢。"
+
+"Do they not think he could have a valid point hidden under all that malice?" I ask.  
+"难道他们不认为他那些恶意之下可能隐藏着合理的观点吗？" 我问道。
+
+"Perhaps." Fuyutsuki taps his finger off of the balcony, "Do you think he has a point?"  
+"或许吧。" 冬月用手指轻敲着阳台，"你觉得他有道理吗？"
+
+"I..." I look away for a moment, what do my feelings on Nagisa matter? I am not a part of the discussion, if Shinji supports Nagisa then I will support Shinji, "I haven't thought about it but... Nagisa was an Angel. His actions did threaten our world. Out of all of them he came the closest to ending it all but he stopped himself."  
+"我..." 我一时移开视线，我对渚的感情又有什么关系呢？我不是讨论的一部分，如果真嗣支持渚，那我也会支持真嗣，"我还没想过这个问题，但...渚曾是使徒。他的行为确实威胁到了我们的世界。在所有使徒中，他最接近终结一切，但他自己停手了。"
+
+"Still... He hurt Shinji by doing that and... a part of me hates him for that but it's not like I didn't play my part in hurting Shinji either." I look up towards the evening sky, "I don't believe Nagisa is a threat. Shinji saying it is good enough to me but...that and my own feeling aside I've seen the evidence. I've seen the medical reports and he's as human as me or you."  
+"尽管如此...他那样做伤害了真嗣，而且...我的一部分因此恨他，但也不代表我没有伤害过真嗣。" 我抬头望向傍晚的天空，"我不认为渚是个威胁。真嗣这么说对我来说就足够了，但...抛开这些和我自己的感觉，我看过证据。我看过医疗报告，他和我们一样是人类。"
+
+Fuyutsuki nods and I think for a moment I see the old man smile, "I'm glad you of all people think so."  
+冬月点头，我一时觉得这位老人似乎笑了，"我很高兴你这么想。"
+
+"Can I ask... why are you so keen to help him? You didn't know Nagisa, you didn't owe him anything and yet you seem so keen to help him."  
+"我能问一下...你为什么这么热心帮助他吗？你不认识渚，也不欠他什么，但你似乎非常愿意帮助他。"
+
+"Because he deserves a life, just like any of us do." Fuyutsuki answers me, "Because he deserves better than to be defined by the legacy of his past masters. Nagisa is unlike me or many others. He was not given a choice in what he is or was, he was born for a purpose and raised solely for that purpose. He was no different to Rei in that regard."  
+"因为他应该拥有生活，就像我们任何人一样。" 副校长回答我，"因为他不应该被过去主人的遗产所定义。渚和我或许多人不同。他没有选择自己是什么或曾经是什么，他生来就有目的，只为那个目的而培养。在这方面，他和丽没有什么不同。"
+
+"Rei was different though."  
+"但丽是不同的。"
+
+Fuyutsuki shakes his head, "Rei was different due to exposure to people like Shinji and yourself. through those interactions she was able to change and grow slightly putting her on a different course to Nagisa. Had Nagisa had the opportunity to live like Rei did then perhaps he would have changed too."  
+冬月摇了摇头，“零是因为接触了像真嗣和你这样的人，才有所不同。通过这些互动，她得以稍稍改变和成长，走上了与渚不同的道路。如果渚有机会像零那样生活，也许他也会改变。”
+
+"From what I saw Rei didn't have much of a life." I reply darkly.  
+“据我所见，零的生活并不丰富。”我阴沉地回答。
+
+"I know..." He bows his head, "Rei's upbringing is something I regret but Ikari had his reasons. Still he allowed her to attend school and interact with others. In a way it is those interactions that led to his failure."  
+“我知道……”他低下头，“零的成长环境是我所遗憾的，但碇有他的理由。尽管如此，他还是让她上学并与人交往。某种程度上，正是这些互动导致了他的失败。”
+
+"Rei betrayed him in the end."  
+"最终，丽背叛了他。"
+
+"Yes, she did." Fuyutsuki nods, "Perhaps Nagisa would have done the same but SEELE kept him on a tight leash. He had no life, he was raised to die and had I not stepped in the UN were content to imprison him and pin the sins of his masters on him. I could not allow that to happen. Raised to die, be given a second chance and then left to die."  
+"是的，她确实背叛了他。" 冬月点头道，"或许渚也会做出同样的选择，但 SEELE 将他牢牢控制。他没有生活，从小被培养成牺牲品，如果不是我介入，联合国本打算将他囚禁，并把其主人的罪行归咎于他。我不能允许这种事发生。从小被培养成牺牲品，给予第二次机会后又被抛弃。"
+
+I nod and I think I understand a little bit more now. I think about how unfair that would have been. I know Rei has struggled over the years to come to terms with her role in what happened. She and Nagisa... they aren't too dissimilar.  
+我点头，现在似乎更理解了一些。我想象那该有多么不公。我知道丽这些年来一直在努力接受自己在所发生事件中的角色。她和渚... 他们其实颇为相似。
+
+"Gendo and SEELE... they ruined a lot of lives, didn't they?" I muse.  
+"源堂和 SEELE...他们毁掉了许多生命，不是吗？" 我沉思道。
+
+"I played my part in that willingly." Fuyutsuki answers, "That is why I try to make up for it today but I do not wish to see those children take the blame for the sins of those that came before. That is why I am helping Nagisa and that is why I try to help the others."  
+"我曾自愿参与其中。" 冬月回答，"这就是为什么我今天努力弥补，但我不想看到那些孩子们为前人的罪行承担责任。这就是我帮助渚的原因，也是我试图帮助其他人的原因。"
+
+I nod, "Do you think they will ever return?"  
+我点头，"你认为他们会回来吗？"
+
+Fuyutsuki shakes his head, "No, I do not. In a way I feel it is for the best, whilst it feels the people who orchestrated it all did get away with it the circus of a return of either of them would risk upsetting the way the world is. Who would put them on trial? How would they be tried? People would demand blood and then... you also have the section of people who view them as saviors."  
+冬月摇了摇头，“不，我不这么认为。某种程度上，我觉得这样最好，尽管策划这一切的人似乎逃脱了惩罚，但他们的回归可能会引发一场风波，扰乱世界的现状。谁会审判他们？他们将如何受审？人们会要求血债血偿，然后……还有一部分人视他们为救世主。”
+
+"Saviors?" I scoff, "Really?"  
+“救世主？”我嗤之以鼻，“真的吗？”
+
+"They are out there, loose scattered groups who think Instrumentality was mankind's salvation. It seems crazy to think of but if one of their adopted saviors returns then it gives them something to latch onto, it gives them a potential voice it..." He shakes his head, "Perhaps I am overthinking things."  
+“确实存在，散落各地的团体认为人类补完计划是人类的救赎。这听起来很疯狂，但如果他们拥戴的救世主之一回归，那就会给他们一个依附的对象，赋予他们潜在的声音……”他摇了摇头，“或许我想得太多了。”
+
+"Perhaps. but maybe you're right, not just because of the risk of cult uprisings." I chuckle, "We've made a lot of progress, Shinji and Rei have made a lot of progress and if he... if he returned it might be damaging to them... to all of us."  
+“或许吧。但也许你是对的，不仅仅是因为邪教起义的风险。”我轻笑，“我们已经取得了很大进展，真嗣和绫波也取得了很大进展，如果他……如果他回来，可能会对他们……对我们所有人造成伤害。”
+
+"Indeed." He looks down at his watch, "I should not take up anymore of your time anyway Katsuragi. Tell Shinji that I should have an answer soon and I will contact him as soon as possible."  
+“确实。”他低头看了一眼手表，“无论如何，我也不该再占用你的时间了，葛城。告诉真嗣，我很快就会有答案，我会尽快联系他。”
+
+I nod, "Okay." 我点头，"好的。"
+
+He starts to walk away as I call after him, "What about Asuka, how did things go for her?"  
+他开始走开，我追问：“那明日香呢，她的情况如何？”
+
+He stops and looks at me, "There was... something of an incident with Ms Soryu. Tokita felt it would be appropriate to prod a little bit too much into her past."  
+他停下来看着我，“索留小姐那儿……发生了一点小插曲。时田觉得过多探究她的过去不太合适。”
+
+"Oh dear..." “哦，天哪……”
+
+"Yes, but despite her reaction to it I do not think their case was hurt in any way."  
+“是的，不过尽管她对此有所反应，我认为这并没有对他们的案件造成任何损害。”
+
+I step forward fearing now as to what Asuka might have done. I know the temper Asuka has and if they probed too much then she will have shown them it. She has only allowed a very small number of people glimpses into her past, me, Kaji and Shinji. Tokita must have known this and that's why he tried to goad her.  
+我向前迈步，心中忐忑不安，不知明日香可能做了什么。我深知明日香的脾气，如果他们探问过多，她定会让他们见识到。她只允许极少数人窥见她的过去，我、加持和真嗣。富田必定知道这一点，这也是他试图激怒她的原因。
+
+"What... was her reaction?"  
+“她……有何反应？”
+
+"An impassioned plea for them to understand that Nagisa was no threat to them before calling them all fools and then walking out of the meeting. It was... mild compared to what she might have done in the past."  
+“她先是恳切地请求他们理解渚对他们并无威胁，随后称他们为傻瓜，便离开了会议。这……比起她过去可能的举动，算是温和了。”
+
+"I see... And you don't think it hurt things in any way?"  
+"我明白了... 你觉得这没有对事情造成任何伤害吗？"
+
+"Not at all, if anything I think they were impressed by how passionate she was regarding Nagisa." He answers with a smile, "I will now take my leave, I will contact you as soon as I know anything more.  
+"一点也没有，相反，我认为他们被她对渚的热情所打动。" 他微笑着回答，"我现在要告辞了，一有新消息我会立刻联系你。"
+
+**Berlin – Hospital – Kaworu Nagisa  
+柏林 – 医院 – 渚薰**
+
+I lean back against the wall and smile awkwardly at Asuka as she sits, a scowl on her face, on the edge of the hospital bed. I know she hates being here, there are a number of reasons behind it. Hospitals remind her of an awful moment in her life. I have spoken to her about those moments on a few occasions. Not many, she doesn't open up to me much but she had told me bits and pieces, more so than most people with the exception of Rei and Shinji.  
+我靠在墙上，尴尬地对坐在医院床边的明日香笑了笑，她脸上带着不悦的表情。我知道她讨厌来这里，背后有很多原因。医院让她想起了生命中的一个糟糕时刻。我曾几次与她谈及那些时刻，虽然不多，她对我并不太敞开心扉，但她告诉了我一些片段，比大多数人都要多，除了绫波和真嗣。
+
+I know her pride has been wounded significantly by having to come here and also admitting how she did it. It would be one thing if she hurt her foot due to someone else but this was her own fault. She is embarrassed by that and that only serves to make her angrier.  
+我知道她的自尊心因不得不来这里以及承认是如何受伤而受到了严重伤害。如果是别人导致她伤了脚，那还好说，但这是她自己的错。她为此感到尴尬，而这只会让她更加愤怒。
+
+She also feels guilty. She feels like she has ruined our chances of reversing the council's decision regarding my ability to travel. I have tried to tell her I would not be bothered if they did uphold their decision. The fact that she even tried means more to me than anything else. I love her and that will not change.  
+她还感到内疚。她觉得她破坏了我们逆转委员会关于我旅行能力的决定的机会。我试图告诉她，即使他们维持原判，我也不会介意。她甚至尝试过这件事，对我来说比什么都重要。我爱她，这一点永远不会改变。
+
+My words have done little to help. I understand, sometimes it requires more than words. I have been on that side of it myself. Sometimes it requires a gesture, me holding or kissing her might help. Not really things I can do here but I have a plan. I plan for a night of cuddling on a sofa, ordering pizza and a large quantity of ice cream.  
+我的话并未起到多大帮助。我明白，有时仅凭言语是不够的。我自己也曾身处那种境地。有时需要一个动作，比如我抱着她或亲吻她或许会有所帮助。虽然在这里我无法做到这些，但我有个计划。我打算安排一个晚上，在沙发上依偎着，点些披萨和大量冰淇淋。
+
+It is my belief ever since I returned that 99% of human problems can be solved by ice cream. If you are feeling sad then consume some ice cream! If you are too hot, consume some ice cream! If you are too cold, get a warm chocolate pudding and have a scoop of ice cream on top of it. It's that simple.  
+自从我回来后，我一直相信 99%的人类问题都可以通过冰淇淋解决。如果你感到悲伤，那就吃些冰淇淋！如果你觉得太热，吃些冰淇淋！如果你觉得太冷，来份热巧克力布丁，再在上面放一勺冰淇淋。就这么简单。
+
+I look towards the clock. It has been hours since we came here and even longer since the meeting. Truthfully, I do not expect them to reverse their decision. I do not think Asuka's actions will have any bearing on it, nor do I think Shinji's will. I just think that the fear those people have of me is too overpowering that they cannot be persuaded otherwise.  
+我望向时钟。自从我们来到这里已经过去好几个小时，甚至更久远的会议时间。说实话，我并不指望他们能改变决定。我不认为明日香的行为会对结果有任何影响，也不认为真嗣的举动会有所改变。我只是觉得那些人对我的恐惧太过强烈，以至于无法被说服改变主意。
+
+I am preparing myself for that decision, I will of course be slightly upset and disappointed if it does happen. I did want to see Shinji again, even after all that has happened. I wanted to meet him and see him perform. At the same time, I have to atone for the sins of my past. I know I have been told many times I am not to blame and I do believe that but my actions still hurt people and there must surely be some punishment for that.  
+我正在为那个决定做准备，如果真的发生了，我当然会有些难过和失望。尽管发生了那么多事，我还是想再见真嗣一面。我想见他，看他表演。与此同时，我必须为过去的罪行赎罪。我知道很多人告诉我这不是我的错，我也相信这一点，但我的行为确实伤害了人，对此肯定需要某种惩罚。
+
+So, I would not be mad or disappointed with Asuka or Shinji for not succeeding today. It fills me with such a sense of joy that they have even tried to help me. I cannot possibly express to them how it makes me feel that they would try to help me. Especially Shinji, by all rights he should have said no straight away, and yet, he did not.  
+所以，我不会因为明日香或真嗣今天没有成功而生气或失望。他们甚至尝试帮助我，这让我感到无比的喜悦。我无法向他们表达，他们愿意尝试帮助我，这让我有多感动。尤其是真嗣，按理说他应该立刻拒绝，但他没有。
+
+Shinji had been hurt by me and yet he still has that sense of selflessness and desire to help. Shinji had been hurt by so many people. He was a soul in such turmoil. He had been abandoned by his father and forced into a life of pain and misery. His friends had left or been hurt and yet there was still some light within him that refused to go out, even if he didn't realize it.  
+真嗣曾被我伤害，但他依然保持着无私和助人的愿望。真嗣被许多人伤害过。他是一个处于极度混乱中的灵魂。他被父亲抛弃，被迫过着痛苦和悲惨的生活。他的朋友们离开或受伤，但他内心仍有某种光芒不愿熄灭，即使他自己没有意识到。
+
+He could so easily have gone against a world that seemed to exist only to hurt him but he didn't. He resolved to move forward. I think that is why I found myself so drawn to him when I first met him. I was given a simple task but when I met him I felt something within I hadn't felt before. I know the feeling now, I've felt it and feel it now with Asuka. It is love.  
+他本可以轻易地与那个似乎只为伤害他而存在的世界对抗，但他没有。他决心向前迈进。我想这就是为什么我第一次见到他时，会被他深深吸引。我被赋予了一项简单的任务，但当我遇见他时，我内心涌动着一种前所未有的感觉。现在我明白了这种感觉，我已经感受到，并且现在与明日香在一起时依然感受到。那就是爱。
+
+"Where the hell is this doctor!" I hear Asuka suddenly ask, snapping me from my thoughts. These are the first words I've heard from her for at least half an hour, "He said I could be discharged and that it wouldn't take long! So, where the hell is he? I just want to go home!"  
+“那个医生到底在哪儿！”我听到明日香突然问道，打断了我的思绪。这是至少半小时以来我第一次听到她说话，“他说我可以出院，而且不会花太长时间！那他到底在哪儿？我只想回家！”
+
+"I am sure he will return soon." I reply to her calmly and smile warmly at her, "He most likely got held up with something else. You know how these places can be."  
+“我相信他很快就会回来的。”我平静地回答她，并向她温暖地微笑，“他很可能被其他事情耽搁了。你知道这些地方的情况。”
+
+"No, I don't." She snaps back in annoyance and resumes her scowling. I slowly walk over to her and sit down next to her on the bed.  
+"不，我不。" 她恼怒地回了一句，继续皱着眉头。我缓缓走向她，坐在床边。
+
+"How is your foot feeling now?" I nod down at the bandages appendage as she lets out a sigh.  
+"你的脚现在感觉如何？" 我朝她包着绷带的脚点了点头，她叹了口气。
+
+"Better but still sore." She replies, "I feel like a goddamn idiot."  
+"好些了，但还是疼。" 她回答，"我感觉自己像个彻头彻尾的傻瓜。"
+
+"You were angry, it was an understandable reaction to that." I make some feeble attempt to reassure her.  
+"你生气了，面对那种情况这是可以理解的反应。" 我有些无力地试图安慰她。
+
+"Kaworu, kicking a metal skip whilst barefoot is not an 'understandable reaction', it is idiocy." She replies and then sighs again, "I... I'm just sick of me. I try to do the right thing and then just mess it up."  
+"薰，光着脚踢金属垃圾桶可不是什么'可以理解的反应'，那是愚蠢。" 她回答后又叹了口气，"我...我只是厌倦了自己。我试着做正确的事，结果却总是搞砸。"
+
+"Asuka... You haven't done anything wrong." I put my arm around her, "I am sure if you had have done we would have heard back by now. Instead we are sti-"  
+"明日香...你没做错什么。" 我搂住她，"我相信如果真有什么不对，我们早就收到消息了。相反，我们还在..."
+
+I am suddenly interrupted by the vibration in my pocket and the sound of my ringtone. I pull the phone out of my pocket as Asuka looks at me, "You know you were supposed to turn that off right, they put up enough signs."  
+口袋里的震动和铃声突然打断了我。我掏出手机，看着明日香，“你知道你该把它关掉的，对吧？他们已经贴了那么多告示。”
+
+I roll my eyes, "I... forgot."  
+我翻了个白眼，“我……忘了。”
+
+I look at the screen, "It's Fuyutsuki! Should I... answer it?"  
+我看向屏幕，“是冬月！我该……接吗？”
+
+"Of course, you should you idiot! Hospital rules be damned!" She answers, "let him tell us how I messed everything up!"  
+"当然，你这个白痴！管他什么医院规定！" 她回答道，"让他告诉我们我是怎么把一切都搞砸的！"
+
+"Asuka I don't thin-" "明日香，我觉得不——"
+
+"Just answer the goddamn phone Kaworu!" She cuts me off and I immediately accept the call, standing up and walking to my previous location against the wall as I do so.  
+"快接电话，卡哇兰！" 她打断了我，我立刻接起电话，站起来走向之前靠墙的位置。
+
+"Hello?" “喂？”
+
+_"Nagisa."_ Fuyutsuki's voice comes through clearly, _"I hope you are well, we had a report that said you and Ms Soryu were near the hospital, is everything okay?"_  
+"渚。" 冬月先生的声音清晰传来，"希望你一切安好，我们收到报告说你和副司令在医院附近，一切都还好吗？"
+
+"Ah yeah." I look towards Asuka and give her a sheepish smile, "Asuka just... had an accident and hurt her foot."  
+"啊，是的。" 我转向明日香，向她露出一个尴尬的微笑，"明日香只是……不小心出了点事故，伤到了脚。"
+
+I hear Asuka mumble something angrily under her breath but I'm not able to catch it as Fuyutsuki replies to me, _"I see, well I hope it is nothing too serious. I know Ms Soryu dislikes such places. Regardless I shall not prolong this, I have heard back from the council."_  
+我听到明日香低声愤怒地咕哝着什么，但我没听清，因为冬月先生回复了我，"我明白了，希望不是太严重。我知道副司令不喜欢这种地方。无论如何，我不会耽误太久，我已经收到了委员会的回复。"
+
+My heart suddenly starts pounding in my chest as a sickly feeling forms in my stomach. It hits me suddenly just how much I want to hear him say they have changed their minds. I want this, I really, truly want this. I want to see Shinji again, I want to hear him play for us. I want Asuka to see him again, for their friendship to return properly.  
+我的心突然在胸腔里狂跳，胃里涌起一阵恶心的感觉。我突然意识到自己有多么渴望听到他说他们改变了主意。我真心真意地想要这个。我想再见真嗣，想听他为我们演奏。我希望明日香也能再次见到他，让他们的友谊恢复正常。
+
+I try to temper my expectations though. Try to tell myself what the most likely outcome will be. I try to maintain that they will not change their decision, why would they?  
+尽管如此，我还是试图控制自己的期望。我告诉自己最有可能的结果是什么。我尽量保持他们不会改变决定的想法，他们为什么要改变呢？
+
+"What... did they say?" I finally ask, my hand trembling.  
+“他们……说了什么？”我终于问道，手在颤抖。
+
+_"The council have agreed to reverse their decision."_ He does not waste any time in replying to me. It's strange, in a way I was expecting this moment to be like the one you'd see in a television game show. I imagine Fuyutsuki in front of an audience, an envelope in his hand which he opens up to reveal I'm allowed to travel, I've also won a selection of fine prizes and a speedboat.  
+“委员会已经同意撤销他们的决定。”他毫不浪费时间地回复我。奇怪的是，在某种程度上，我曾期待这一刻会像电视游戏节目中的场景。我想象着富士树站在观众面前，手里拿着一个信封，他打开它，宣布我获准旅行，同时还赢得了一系列精美奖品和一艘快艇。
+
+"R-Really?" I stutter out, "S-So I'm... allowed to..."  
+“真、真的吗？”我结巴着说，“那我……可以……”
+
+Asuka looks up at me and sees the grin that has spread to my lips. I can see the shock in her eyes and she leap up off of the bed, letting out a yelp of pain as her foot hits the ground. She hobbles over to me and snatches the phone from my hand.  
+明日香抬头看着我，看到了我嘴角蔓延的笑容。我能看到她眼中的震惊，她从床上跳起来，脚一着地就发出一声痛苦的尖叫。她一瘸一拐地走到我面前，从我手中夺过手机。
+
+"Fuyutsuki! What happened?" She asks him, "They... changed their mind? Even after..."  
+"冬月！发生了什么？" 她问他，"他们...改变了主意？即使在那之后..."
+
+Asuka switches the phone to speaker just before Fuyutsuki begins to reply to her, _"Hello Ms Soryu. Yes, they have agreed to, even after you said those things to them. I will admit, I was concerned about your outburst as well. A similar thing happened to Ikari but if anything, the passion shown by the two of you aided them in their decision."_  
+明日香将手机切换到免提模式，就在冬月开始回答她之前，"你好，碇小姐。是的，他们同意了，即使在你对他们说了那些话之后。我必须承认，我也对你当时的爆发感到担忧。类似的事情也发生在碇身上，但可以说，你们两人的热情表现帮助了他们做出决定。"
+
+"You mean... that actually helped?" Asuka exclaims.  
+"你是说...那真的有帮助？" 明日香惊呼道。"
+
+_"Indeed, although I wouldn't recommend you engaging in any further acts of debate or diplomacy."  
+"确实，不过我并不建议你再参与任何辩论或外交活动。"_
+
+I see Asuka nod, "I think I'll probably retire undefeated."  
+我看到明日香点了点头，“我想我可能会以不败之身退役。”
+
+_"Good."_ He almost chuckles, _"You should know that their decision was met with some resistance. Tokita will be fighting the decision but I don't think you have anything to fear from him."_  
+"很好。" 他几乎要笑出声来，"你应该知道他们的决定遇到了一些阻力。富田会反对这个决定，但我认为你不必担心他。"
+
+I try to think of something to say at this moment but I can't. I'm simply stunned into silence and wearing a big grin on my face. They actually reversed their decision! I can't believe it, I was certain they wouldn't. I am... actually going to be travelling to Japan in December with Asuka. I will get to see Shinji once again.  
+我试图在这时找些话说，却无言以对。我只是惊呆了，脸上挂着大大的笑容。他们居然改变了决定！我简直不敢相信，我原本确信他们不会的。我……真的要在十二月和明日香一起去日本了。我将再次见到真嗣。
+
+"What the hell was that guys problem anyway?" I hear Asuka ask Fuyutsuki.  
+“那家伙到底有什么问题？”我听到明日香问冬月。
+
+I actually hear Fuyutsuki chuckle at her question, _"Tokita has something of a grudge against anyone and anything connected to NERV. It is nothing that involved yourselves, I presume you are both familiar with the Jet Alone incident?"_  
+我确实听到冬月对她的提问轻笑了一声，“时田对任何与 NERV 有关的人和事都有点怨气。我想这跟你们无关，你们俩都熟悉‘Jet Alone 事件’吧？”
+
+Jet Alone? I try to remember but nothing comes to mind. Asuka nods and then looks at me, I shrug at her, "I'm not, they probably didn't consider it important enough to tell me."  
+Jet Alone？我试图回忆，但脑海中一片空白。明日香点点头，然后看着我，我向她耸耸肩，“我不清楚，他们可能觉得这不够重要，没告诉我。”
+
+Asuka also speaks, "That was that big commercial robot, right? They wanted it to replace the Eva's. Some sort of automated garbage that ended up failing during a test and nearly blew up half of Japan."  
+明日香也开口了，“那是那个大型商用机器人，对吧？他们想用它来替代 EVA。某种自动化的废物，结果在测试中失败，差点炸掉半个日本。”
+
+I feel my eyes widen with surprise, I truly had no idea such an event had occurred or that anyone else had tried to produce a machine that could match what the Evangelions did. I imagine my masters would not have been pleased by such a thing existing.  
+"我惊讶得瞪大了眼睛，我完全不知道发生了这样的事件，也不知道还有人尝试制造能与 EVA 匹敌的机器。我想我的主人对这种东西的存在肯定不会感到高兴。”
+
+_"Yes, Tokita was one of the leads for that particular project. He always said the reason his machine failed was due to sabotage from NERV. Since then he's held a bit of a grudge."  
+是的，土歧田是那个特定项目的负责人之一。他总是说他的机器失败是因为 NERV 的破坏。从那以后，他就一直怀恨在心。_
+
+I see Asuka roll her eyes, "Great, so I assume NERV did in fact sabotage it, didn't they?"  
+我看到明日香翻了个白眼，"太好了，那我猜 NERV 确实破坏了它，不是吗？"
+
+_"The particulars of that incident are not known to me."_ Fuyutsuki replies quickly and calmly, _"As it is, I seem to remember NERV being cleared and the Jet Alone project being halted immediately due to safety concerns. It is something we should put behind us."_  
+“那次事件的具体情况我不清楚。”冬月迅速而平静地回答，“就我所知，NERV 被澄清了，而 Jet Alone 项目立即因安全问题被叫停。这是我们应该抛诸脑后的事情。”
+
+"Right." Asuka says, "Well let's just hope he doesn't try anything else. So, is this it then, we can arrange the travel?"  
+"好的。" 明日香说道，"希望他不要再搞什么花样。那么，这就是全部了吗？我们可以安排旅行了吧？"
+
+_"Not quite."_ Fuyutsuki answers her, _"There are some slight details I think I should mention. Whilst the council have agreed to allow you to travel they have made it clear to me that you will be monitored more so than you are here."_  
+"还没完全确定。" 冬月回答她，"有些细节我觉得应该提一下。虽然委员会同意让你出行，但他们明确告诉我，你会比在这里受到更多的监控。"
+
+"Of course." I reply, I expected as much but I see Asuka frown at the news.  
+"当然。" 我回答道，虽然我早有预料，但看到明日香听到这个消息时皱起了眉头。
+
+_"A lot of things need to be worked out but I think you can expect to have a security team escorting you at all times. Your movements will be restricted, likely to your hotel and the concert venue itself but I will try to persuade them to allow for sightseeing."  
+"很多事情需要解决，但我想你可以期待随时有一支安保团队陪同。你的行动将受到限制，可能仅限于酒店和音乐会场地，但我会尽力说服他们允许你观光。"_
+
+I nod again, "I see, thank you. You... You have no idea how much I appreciate this."  
+我再次点头，"我明白了，谢谢你。你……你不知道我有多感激这一切。"
+
+_"Think nothing of it, it was Ms Soryu and Ikari who did most of the work. I merely arranged the meetings."_ He answers.  
+"别客气，主要是索留和碇小姐做的。我只是安排了会议。"他回答道。"
+
+"What about Shinji?" Asuka suddenly asks, "Does he know yet?"  
+"那真嗣呢？" 明日香突然问道，"他知道了吗？"
+
+_"Not as of yet."_ Fuyutsuki answers, _"It is quite late here in Japan but I will inform him in the morning."_  
+"目前还不知道。" 冬月回答，"日本这里已经很晚了，我会在早上通知他。"
+
+"How... did he do in his meeting?" I ask.  
+"他... 会议表现如何？" 我问道。
+
+_"He did well, he... well he reminded me of someone I once knew. Only in his case he was fighting for the right thing."_ Fuyutsuki replies, _"Tokita did of course try to throw him off course. Even choosing to reveal the nature of your relationship to him."_  
+"他做得很好，他...嗯，他让我想起了曾经认识的某个人。只不过在他这里，他是在为正确的事情而战。" 冬月回答道，"当然，Tokita 确实试图让他偏离正轨。甚至选择向他透露你们关系的本质。"
+
+"Shit..." I hear Asuka mumble under her breath. I feel the urge to say the same. We were keeping that quiet for the moment and waiting for the right time to tell him. Asuka continues to speak, "Did he really?"  
+"该死..." 我听到明日香低声咕哝。我也有同样的冲动。我们本打算暂时保密，等待合适的时机告诉他。明日香继续说道，"他真的说了吗？"
+
+I feel my heart drop slightly as the good feeling I had from being told the good news fades. That must have been tough for Shinji to hear. I can see Asuka is struggling with it too, her hand is now balled up into a fist and I can see her ready to punch something. I place an arm around her shoulder, hoping that I can save her from breaking her hand.  
+当我得知这个好消息时的喜悦感逐渐消退，我的心微微一沉。这对真嗣来说一定很难接受。我看到明日香也在为此挣扎，她的手已经握成了拳头，我能感觉到她随时准备挥拳。我伸出一只手臂搂住她的肩膀，希望这样能阻止她把手弄伤。
+
+_"He did, I understand you both wished to keep things quiet for the moment so I thought it would be worth informing you, just so you aren't surprised when you get there and everyone asks you about it."_ He replies to her, not seeming to be able to detect our awkwardness at hearing that, "With that said I must leave now. It is late here and it has been a long day. Enjoy the rest of your evening."  
+"他确实说了，我理解你们俩都希望暂时保持低调，所以我想通知你们一声，以免你们到了那里被大家问起时感到惊讶。" 他回答她，似乎并未察觉到我们听到这话时的尴尬，"话虽如此，我现在必须离开了。这里已经很晚了，今天也过得很漫长。祝你们晚上愉快。"
+
+"Yeah, goodbye." Asuka hangs the phone up and looks at me, "So... He told Shinji..."  
+"嗯，再见。" 明日香挂断电话，看着我，"所以... 他告诉了真嗣..."
+
+I hold Asuka closer to me as I try to go over it in my head. Shinji know this must have hit him hard. He loved her and now he has found out I am with her. I betray him and then return only to take away the one he loves. Not only that but I have allowed this to happen knowing how Asuka feels for him. I have managed to put myself into a situation I have no right to be in.  
+我将明日香搂得更紧，试图在脑海中理清这一切。真嗣知道这件事一定对他打击很大。他爱她，而现在他发现我和她在一起。我背叛了他，然后回来夺走了他心爱的人。不仅如此，我还明知明日香对他的感情，却放任这种情况发生。我陷入了自己无权涉足的境地。
+
+I am an interloper, a confused alien thrust into a confusing situation. I love Asuka and I hate the idea that she is hurt. The last thing I ever wanted to do was hurt Shinji either. Both these people do not deserve pain at all and yet, I do not want to be hurt myself. I want to live on and continue to feel this love that I do. If it were possible I wish I could... No, it isn't possible. It does not matter.  
+我是个闯入者，一个被抛入混乱局面的困惑外星人。我爱着明日香，我痛恨她受伤的想法。我最不想做的就是伤害真嗣。这两个人都不应承受痛苦，然而，我也不想自己受伤。我想活下去，继续感受这份爱。如果可能的话，我希望我能……不，这是不可能的。这无关紧要。
+
+I no longer feel good about this. I feel sick now. I feel like I should call him up and apologize. The only thing I can take from this is that in his moment of despair he still fought for me. Thank you Shinji Ikari and... I am sorry.  
+我不再对此感到好受。我现在感到恶心。我觉得我应该打电话给他道歉。我唯一能从中得到的是，在他绝望的时刻，他依然为我而战。谢谢你，碇真嗣，还有……我很抱歉。
+
+**10th October 2021 - Kaworu/Asuka's Apartment – Asuka Langley Soryu  
+2021 年 10 月 10 日 - 渚薰/明日香公寓 – 惣流·明日香·兰格雷**
+
+I am here once again, my finger is hovering over the button and moments away from calling Shinji Ikari. In the back of my mind I have that voice there once again telling me that this is a bad idea. I should just leave him alone, I've done enough damage to him and me calling him… I'll probably just hurt him some more.  
+我又一次站在这里，手指悬在按键上，即将拨通碇真嗣的电话。在我脑海深处，那个声音再次响起，告诉我这是个坏主意。我应该让他一个人待着，我已经对他造成了足够的伤害，再打电话给他……恐怕只会让他更加痛苦。
+
+Who knows what state he is going to be in! Rei said to me that he was fine but I know what Rei is like. She is probably just saying it so that I don't feel bad. After all, how can Shinji be doing fine? I lied to him and kept the truth from him. I knew how he felt about Kaworu and I'm sure what happened must have hurt him. I know if… well if Shinji and Kaworu were together then I'd be hurt.  
+谁知道他会是什么状态！绫波告诉我他没事，但我知道绫波是什么样的人。她可能只是这么说，以免我感到内疚。毕竟，碇真嗣怎么可能没事？我对他撒了谎，隐瞒了真相。我知道他对渚薰的感情，我确信发生的事情一定让他很受伤。我知道如果……好吧，如果碇真嗣和渚薰在一起，我也会感到痛苦。
+
+It isn't just Shinji that the voice is warning me about though. It's warning me about my own state. I'm running on barely any sleep, painkillers and caffeine. I'm not in a good place, in fact I almost snapped at Kaworu this morning just for daring to ask me how I was. Chances are I'll do the same to Shinji and then what?  
+不过，那个声音警告的不仅仅是关于碇真嗣，还有我自己的状态。我几乎没怎么睡觉，全靠止痛药和咖啡因撑着。我现在的状态很糟糕，事实上，今天早上我差点因为渚薰敢问我怎么样而对他发火。很可能我也会对碇真嗣这样，那又该怎么办呢？
+
+It's all my own stupid fault too. If I hadn't have let them get to me I wouldn't have said the things I did. I wouldn't have kicked that stupid skip and I wouldn't have a stupid broken foot.  
+这全是我自己愚蠢的错。如果不是我让他们影响到我，我就不会说出那些话。我不会踢那个愚蠢的垃圾桶，也不会弄断我的脚。
+
+The only good news that has come from it is that Kaworu is actually able to travel to Japan in December. That did make me happy but then it had to be ruined by the news of what Tokita had done. From ecstatic to angry in just a few seconds, that must be a new record for me. I am happy that Kaworu can come with me though. I wanted him there so much and I'm glad I was actually able to do something.  
+唯一的好消息是，卡沃鲁真的能在十二月来日本。这确实让我高兴，但随后就被时田做了什么的消息给毁了。从狂喜到愤怒只用了几秒钟，这对我来说肯定是新纪录。不过，我很高兴卡沃鲁能和我一起来。我非常希望他在那里，我很高兴我终于能做点什么了。
+
+I'm just frustrated that I can't even celebrate it because of my stupid foot. I've been told I need to rest it for a couple of weeks so now I have… nothing to look forward to.  
+我只是因为这愚蠢的脚而无法庆祝而感到沮丧。我被告知需要休息几周，所以现在我……没有什么可期待的。
+
+All I can really do is go against the advice the voice in my head is giving me. My finger hits the call button and I set the device down onto the table, switching it to speaker. It rings a couple of times and Shinji finally answers.  
+我唯一能做的就是违背脑海中那个声音给我的建议。我的手指按下了呼叫按钮，然后将设备放在桌子上，切换到扬声器模式。电话响了几声，真嗣终于接听了。
+
+_"Hey Asuka!" 嘿，明日香！_
+
+I regret this already but to my surprise he doesn't actually sound unhappy. If anything he actually sounds quite happy albeit slightly tired.  
+我已经开始后悔了，但出乎意料的是，他听起来并不难过。如果说有什么不同的话，他实际上听起来相当高兴，尽管略显疲惫。
+
+"Hey." I answer him, finding myself unable to muster up any sort of confidence in my voice.  
+"嘿。" 我回答他，发现自己无法在声音中凝聚任何自信。
+
+_"Fuyutsuki told me the news! They reversed the decision, you were right, we were able to do it!"_ Shinji speaks and I find myself still surprised at the joy in his voice. Why isn't he upset? Why isn't he mad at me? Didn't I hurt him?  
+"冬月告诉我这个消息了！他们改变了决定，你是对的，我们成功了！" 真嗣说道，我发现自己仍然对他的喜悦感到惊讶。他为什么不沮丧？为什么不生我的气？难道我没有伤害他吗？
+
+Or was I… wrong? No… I can't have been. Not about this.  
+还是我……错了？不……我不可能是错的。至少在这件事上不是。
+
+"Yeah." I answer, "I was a little bit surprised to be honest, I… Well I might have lost my temper with…"  
+"嗯。" 我回答，"说实话，我有点惊讶，我……呃，可能对……发了脾气。"
+
+_"Tokita?"_ Shinji finished the sentence for me.  
+"常田？" 真嗣帮我补完了句子。"
+
+I feel a smile creep onto my lips, "Yeah… that guy."  
+我感到嘴角不自觉地上扬，"是啊……那个家伙。"
+
+_"He was an asshole to me as well."_ Shinji answers and I admit I'm a bit surprised to hear him say that, _"He said a few things that weren't very nice. He also… told me about…"_  
+"他对我也挺混蛋的。" 真嗣回答道，我承认听到他这么说有点惊讶，"他说了一些不太好听的话。他还…告诉我了一些…"
+
+"Me and Kaworu?" "我和渚薰？"
+
+_"Yeah." "嗯。"_
+
+"Look about that…" I start to speak but I really don't know what to say to him. I have no words to explain it to him, "I meant to tell you but…"  
+"看那个…" 我开始说话，但真的不知道该对他说些什么。我找不到词来向他解释，"我本想告诉你的，但是…"
+
+_"Don't worry about it."_ Shinji actually cuts me off, _"I… know you're a private person Asuka and… you didn't have to tell me. I'm really happy for you."_  
+"别担心。" 真嗣居然打断了我，"我…知道你是个注重隐私的人，明日香，而且…你不必告诉我的。我真为你感到高兴。"
+
+I listen closely to his voice for any trace that he might be lying to me. It's hard to tell from voice alone but it is Shinji and I… I can tell. He sounds sincere, he sounds… happy.  
+我仔细聆听他的声音，试图捕捉他是否在对我撒谎的痕迹。仅凭声音很难判断，但他是真嗣，我…我能感觉到。他听起来很真诚，听起来…很开心。
+
+"I know but… you shouldn't have found out like that. We didn't mean to hide it, we just…"  
+"我知道，但是……你不应该以这种方式发现的。我们不是有意隐瞒，只是……"
+
+I trail off again as I try to find the words. We were going to tell him, after the meetings to be exact but Tokita didn't give us the chance. We knew it'd be strange if Shinji saw us turn up holding hands and sharing kisses.  
+我再次语塞，试图找到合适的词句。我们原本打算在会议结束后告诉他，但没想到富田没有给我们这个机会。我们知道，如果真嗣看到我们手牵手、亲吻，会觉得很奇怪。
+
+_"I understand."_ He replies, _"You're both my friends Asuka, I know… that sounds weird because of what happened with Kaworu but… I do consider him my friend."_  
+"我明白。" 他回答道，"你们都是我的朋友，明日香，我知道……这听起来有点奇怪，因为我和卡洛的事，但是……我真的把他当作朋友。"
+
+"I lied to you though, for a second time!" I say to him, not sure why I'm so desperate for him to be mad at me. Why do I seem to want people to confirm the bad things I think about myself? I don't want to be a bad person, I don't want to be thought of like that, so why do I try to persuade people to think I am that person?  
+"我再次对你撒了谎！" 我对他说，不明白自己为何如此渴望他对我发怒。为什么我似乎总想让人们证实我对自己的负面看法？我不想成为一个坏人，我不希望别人那样看我，那为什么我还要试图说服人们认为我是那样的人呢？
+
+_"You didn't lie."_ He answers, _"There wasn't a lie, you… just didn't tell me yet. Why would I be mad about that? If you weren't ready then… I understand. I'm really happy you're together, you both deserve happiness._"  
+"你并没有撒谎。" 他回答道，"没有谎言，你……只是还没告诉我。我为什么要为此生气呢？如果你当时还没准备好……我理解。我真的很高兴你们在一起，你们俩都值得幸福。"
+
+I sink back into the sofa. God Damnit Shinji… You… You're too nice, you're too pure for your own good. I should have known all along that he wouldn't be mad about this because that is what he does. I should have known because if he was he could have just turned around and not agreed to help us after he found out.  
+我陷回到沙发里。该死的真嗣……你……你太善良了，你太过纯净，对自己没好处。我早该知道他不会对此生气，因为这就是他的为人。我早该知道，如果他会生气，他本可以在发现真相后转身离开，不再同意帮助我们。
+
+"Thank you." I finally reply.  
+"谢谢。" 我终于回答道。
+
+_"I'm just glad it all worked out."_ He says, _"I told Fuytusuki I'll arrange tickets for the two of you. You're still going to come right?"_  
+"我只是很高兴一切都解决了。" 他说，"我告诉冬月，我会为你们俩安排票。你们还是会来吧？"
+
+"Of course we are you idiot!" I laugh, "We wouldn't have gone through all of that to just turn around and not come! We will be there, so you better make sure you're on top form. I won't accept anything less than perfection from you."  
+"当然会来，你这个笨蛋！" 我笑着说，"我们不会费尽周折后又转身不来的！我们会到的，所以你最好确保自己状态绝佳。我对你可不会接受任何低于完美的表现。"
+
+_"I'll try…"_ He answers before pausing, _"Hey Asuka, do you… do you think you could arrange it for me to speak to Kaworu again? I want to make up for last time."_  
+"我会试试…" 他回答后顿了顿，"嘿，明日香，你能…你能安排我再和渚薰谈谈吗？我想弥补上次的遗憾。"
+
+I nod, "I'll speak to him when he gets back from work and sort it out. I'm sure he'll want to hear from you. What did you want to say to him?"  
+我点点头，"等他下班回来我会跟他说的，安排好。我相信他也会想听你说话的。你想对他说什么呢？"
+
+_"Just that… I wanted to say sorry for not hearing him out the first time and I wanted him to tell his side I guess."_ Shinji answers me, his voice becoming more serious, _"I… I don't know if I can say I forgive him but I want to still be friends with him and move forward. He… deserves that chance."_  
+"只是…我想为第一次没听他说话而道歉，我想让他讲讲他的立场。" 真嗣回答我，语气变得更加严肃，"我…我不知道我是否能说我已经原谅他，但我想继续和他做朋友，向前看。他…值得这个机会。"
+
+"I'm glad you feel that way." I continue to smile, it seems my plans are coming together, getting those two to talk again will be easier than I had first thought, "Well, I'm sure he'll be more than happy to speak to you."  
+"我很高兴你有这种感觉。" 我继续微笑，看来我的计划正在逐步实现，让那两个人重新交谈似乎比我想象的要容易，"嗯，我相信他会非常乐意和你说话的。"
+
+---
+### Chapter 19: Scars To Prove It  
+第十九章：见证伤痕  
+
+**October 11th - Tokyo 2 – Rei Ayanami  
+10 月 11 日 - 东京 2 号 - 绫波零**
+
+I listen keenly as the notes from Shinji's cello glide through the air as he continues to play through this song. I look at him and it is as if he has transformed into a different person before my very eyes, he is absorbed into the song, his face one of pure concentration and confidence. He makes playing the complex sequence of notes look effortless as his fingers dance across the board. His other hand moves smoothly as it draws the bow across the strings.  
+我专注地聆听着真嗣的大提琴声在空中飘荡，他继续演奏着这首曲子。我看着他，仿佛他在我眼前变成了另一个人，他完全沉浸在音乐中，脸上满是专注和自信。他让演奏这复杂音符序列的动作看起来毫不费力，手指在琴板上轻盈跳跃。另一只手则流畅地拉动弓弦。
+
+I admit I am not overly familiar with this song. I have heard it during Shinji's attempts to rehearse but it is not something I have listened to on my own. When speaking to Asuka she has informed me that this song is considered a classic of the genre. I admit the song is interesting, it is quite lengthy compared to most music I hear and it has a high level of complexity.  
+我承认我对这首歌并不十分熟悉。我曾在真嗣练习时听过，但并非我主动去听的曲目。与明日香交谈时，她告诉我这首歌被认为是该流派的经典之作。我得说这首歌挺有意思，相比我常听的音乐，它篇幅较长且结构复杂。
+
+Quite curious is the fact that Asuka did express some mild annoyance as the songs recent popularity due to being used in a television show. This confused me, surely she would enjoy the fact that more people would hear this.  
+颇为有趣的是，明日香确实对这首歌因被用于电视剧而走红表示了些许不满。这让我困惑，按理说她应该高兴更多人能听到这首歌才对。
+
+The song comes to an end and Shinji plays the final few notes. Almost immediately I see him go from the confident instrumentalist to the shy person I know him to be.  
+歌曲结束，真嗣弹奏了最后几个音符。我几乎立刻看到他从自信的乐手变回了那个我所熟悉的害羞男孩。
+
+"D-Did I sound okay?" He looks up and asks me.  
+"我听起来还好吗？" 他抬头问我。
+
+I nod at him and smile, "You sounded perfect."  
+我朝他点点头，微笑道："你听起来很完美。"
+
+I look at him smile back and he blushes, "T-Thank you..."  
+我看着他回以微笑，他脸红了，"谢谢你..."
+
+"You are doing well." I say in encouragement, "Are the reheasals with the rest of the group going well?"  
+"你做得很好。" 我鼓励地说，"和其他成员的排练进展顺利吗？"
+
+He nods, "Y-Yeah... I think they are anyway. I had to miss the last few because of the meeting with the UN but they told me it's going okay and I've been trying to practice on my own. I can... play all of the songs now and I think everyone else can so they want to do a run of the show."  
+他点点头，"嗯...我想是的。因为联合国会议，我错过了最后几次排练，但他们告诉我一切进展顺利，我一直在努力自己练习。我现在能...演奏所有的曲子了，我想其他人也都能，所以他们想进行一次完整的演出彩排。"
+
+"That is good." I continue to smile, hearing my brother speak with confidence and passion is nice. He has gone so long trying to find something to enjoy and be passionate about. I hope this show is the first of many for him, "I am sure that everything will go well for you."  
+"那很好。" 我继续微笑，听到弟弟充满信心和热情地谈论，感觉很棒。他花了很长时间寻找自己喜欢并充满热情的事物。我希望这次演出是他众多演出中的第一个，"我相信一切都会对你顺利的。"
+
+"Thanks." Shinji sets his cello bow down for a moment, "Hey Rei... did you ever try to play anything?"  
+“谢谢。” 真嗣放下他的大提琴弓，问道，“嘿，绫波……你试过演奏什么曲子吗？”
+
+I shake my head, "No... Not properly, when I was younger our father did try..."  
+我摇了摇头，“没有……小时候父亲确实尝试过让我学……”
+
+I pause for a moment and wonder if this is really appropriate to tell him such things. I rarely speak about my childhood to Shinji, it is not a subject that tends to come up and with good reason. It is pretty clear to the both of us that we dislike the person that we call our father and any discussions make us uncomfortable. Still, he has asked me so I should answer honestly.  
+我顿了一下，思索着是否该告诉他这些。我很少和真嗣谈及我的童年，这个话题通常不会出现，也有充分的理由。我们俩都清楚，我们不喜欢那个所谓的父亲，任何关于他的讨论都让我们感到不适。尽管如此，既然他问了，我应该诚实地回答。
+
+Shinji seems to recognize the issue I am having, "It's okay Rei... He was a part of your life."  
+真嗣似乎察觉到了我的困扰，“没事的，绫波...他曾是你的生活的一部分。”
+
+"Okay." I answer him, "Our father did enroll me in violin lessons but I am afraid I was unable to take to the instrument. In fact, in my childhood I was not drawn to music in any way. It is only in more recent years I have come to respect an enjoy the medium."  
+“好的。”我回答他，“我们的父亲确实给我报了小提琴课，但我恐怕无法适应那个乐器。事实上，在我的童年时期，我对音乐没有任何兴趣。只是在近年，我才开始尊重并享受这个媒介。”
+
+"Oh, I see." “哦，我明白了。”
+
+"I was however able to draw as a capable level. Although I did not take any art classes it would seem I had some natural ability in that area." I explain to him, "I would do portraits of father, Fuyutsuki and even Doctor Akagi during my medical assessments, I would also draw other things. There was always a lot of waiting around during those times so it helped occupy my mind."  
+"然而，我能够以熟练的水平绘画。虽然我没有参加任何艺术课程，但似乎我在那方面有一些天赋。" 我向他解释道，"我会给父亲、冬月和甚至在医疗评估期间的赤木博士画肖像，我还会画其他东西。那些时候总是有很多等待的时间，所以这有助于占据我的思绪。"
+
+Shinji looks quite surprised at what I have said. I expected this, I have never told him about my prior artistic endeavors. It is not something I have really done for a long time.  
+真嗣听到我说的这些显得相当惊讶。我预料到了这一点，我从未告诉过他我之前的艺术尝试。这不是我很久以来真正做过的事情。
+
+"I had no idea... I never saw you do anything like that."  
+"我完全不知道...我从未见过你做那样的事情。"
+
+He seems apologetic that he didn't know, "No one was outside of father, Fuyutsuki and Ms Akagi knew of it really. I had not demonstrated such abilities outside of that environment and by the time I met you I was not drawing as frequently due to the increased medication I had to take."  
+他似乎因为不知情而感到抱歉，“除了父亲、冬月和赤木女士，真的没有人知道这件事。我在那种环境之外从未展示过这样的能力，而且自从我开始服用更多的药物后，我就不再那么频繁地画画了。”
+
+When I speak I can hear the sadness in my voice. When I speak of my past like this I realise just how little of a childhood I actually had. I was encouraged to a minimal degree but I was never truly allowed to be a person. I was kept under a steady course of drugs to dull my senses and keep me focused on my purpose. I only wonder what I would be now had this not have happened.  
+当我说话时，我能听出自己声音中的悲伤。当我这样谈论我的过去时，我意识到我的童年实际上是多么的少。我被鼓励到最低限度，但我从未真正被允许成为一个独立的人。我被持续地用药来抑制我的感官并让我专注于我的目的。我只是在想，如果没有发生这一切，我现在会是什么样子。
+
+I was just a tool to be used, a means to an end. Not too dissimilar to Nagisa. Whilst I was given more freedom in my life than Nagisa was it was not enough to change my nature. Any changes in my nature would be curbed by altering the dosage of my medication. I was seen as little more than a workman might see a hammer of a screwdriver by my creator.  
+我只是被利用的工具，达到目的的手段。与渚没有太大差别。虽然我在生活中比渚有更多的自由，但这并不足以改变我的本质。任何本质上的变化都会通过调整我的药物剂量来抑制。在我的创造者眼中，我不过是一个工人看待锤子或螺丝刀那样的存在。
+
+Unfortunately, for my creator, I was able to push past that and become more than they had intended for me.  
+遗憾的是，对于我的创造者而言，我能够突破那层限制，成为超越他们初衷的存在。
+
+"I see... I... wish I had gotten a chance to see them."  
+“我明白了……我……真希望有机会能见到他们。”
+
+"Actually... You can." I answer him, "When Misato took me to NERV she found a lot of my old drawings. I can show you them if you want."  
+“实际上……你可以。”我回答他，“当美里带我去 NERV 时，她发现了我许多旧画作。如果你愿意，我可以给你看。”
+
+Shinji nods at me, "Yeah! I'd love to see them!"  
+真嗣朝我点点头，“嗯！我很想看看！”
+
+I smile back, "I shall get them after you finish practicing. I... must warn you, there are some of father in there... there are also sketches of yourself and Asuka in there. They... were the last ones I ever did."  
+我回以微笑，“等你练习结束后，我就拿给你。我……得提醒你，里面有些是父亲的画……还有你和明日香的素描。它们……是我最后画的了。”
+
+"T-Thats okay..." “没-没关系……”
+
+Shinji picks up his notes and starts to go through them once again, picking out the next song he wants to practice. As much as I am enjoying hearing him play and aiding him with this, it is not the only reason I am here. I feel some remorse for what happened to him in his meeting the other day. He should not have learned about Asuka and Kaworu in that fashion. This is my fault, I should have told him. Once again, I have failed my brother.  
+真嗣拿起他的笔记，再次开始翻阅，挑选下一首要练习的歌曲。尽管我很享受听他演奏并协助他，但这并非我在此的唯一原因。对于前几天他在会议上发生的事情，我感到有些内疚。他不应该以那种方式得知明日香和薰的关系。这是我的错，我本该告诉他。又一次，我辜负了我的兄弟。
+
+"Shinji..." I start to speak before he can finish looking through his notes, "I... feel I should apologize to you for not informing you of Asuka and Kaworu's relationship."  
+“真嗣……” 在他翻完笔记之前，我开口说道，“我……觉得我应该为没有告诉你明日香和薰的关系而向你道歉。”
+
+Shinji sets his notes down and for a moment I see a look of sadness cross his face, he lets out a sigh and looks at me, "Asuka... already apologized for that. I told her she didn't need to and you... you don't need to apologize either."  
+真嗣放下笔记，我看到他脸上掠过一丝悲伤，他叹了口气，看着我，“明日香……已经为此道歉了。我告诉她没必要，你……你也不需要道歉。”
+
+"I do... I kept the truth from you and due to that I have caused you pain. I need to apologize."  
+“我确实……我对你隐瞒了真相，因此给你带来了痛苦。我需要道歉。”
+
+Shinji shakes his head, "No... You don't have to apologize. I... I know in this case it is more complicated and they probably wanted to keep it quiet. You did the same with one of your relationships and Hikari and Touji wanted to keep their relationship quiet at first too."  
+真嗣摇了摇头，“不……你不必道歉。我……我知道在这种情况下事情更复杂，他们可能想保密。你也对你的某段关系保密过，而光和透治最初也想对他们的关系保密。”
+
+I look at him in confusion, "But everyone knew they were together, it was obvious."  
+我困惑地看着他，“但大家都知道他们在一起，这很明显。”
+
+Shinji shrugs, "I didn't say it was smart."  
+真嗣耸耸肩，“我没说那很聪明。”
+
+"Does the news of their relationship hurt you?"  
+“他们恋情的消息让你难过吗？”
+
+Shinji nods, "Yes. It does... I... I loved Asuka. I loved her but... she doesn't belong to me. It's been five years, that is plenty of time for her to find someone and besides... I don't know if she liked or thought of me in that way."  
+真嗣点头，“是的。确实...我...我爱过明日香。我爱她，但是...她不属于我。已经五年了，足够她找到别人，而且...我不确定她是否喜欢我或以那种方式想过我。”
+
+I feel pang of guilt in my stomach and heart as I hear him say that. I know how Asuka felt for Shinji, I know she loved him. She had confessed as much to me over the years I got to know her properly. Yet, she found and fell in love with Kaworu. The human heart is a fragile and complicated thing.  
+听到他这么说，我心中涌起一阵愧疚。我知道明日香对真嗣的感情，我知道她爱他。这些年来，她曾向我坦白过这一点。然而，她遇到了薰并爱上了他。人心是脆弱而复杂的。
+
+"What about Kaworu?" I ask him. I admit, I do not truly know my brothers' feelings for Kaworu. I always did wonder what his feelings were for the boy but never asked.  
+“那薰呢？”我问他。我承认，我并不真正了解我兄弟对薰的感情。我一直想知道他对那个男孩的感觉，但从未问过。
+
+Shinji blushes but also shrugs, "I... I don't know. When he told me he loved me I... I thought I felt something for him. I do... I like him... I thought he was attractive so I guess because of him I figured out a few things I hadn't quite figured out about myself. Back then I... didn't know if it was because I was desperate for kindness..."  
+真嗣脸红了一下，然后耸耸肩，“我……我不知道。当他告诉我他爱我时，我……我觉得我对他也有些感觉。我……我喜欢他……我觉得他很有吸引力，所以我想是因为他，我才发现了一些自己之前不太明白的事情。那时候我……不知道是不是因为我渴望得到善意……”
+
+"But now you think it was genuine?"  
+"但如今你认为那是真心的吗？"
+
+He nods, "Yeah... I think it was. I like him... I don't know if I loved him then or even now but I care about him a lot. I want him to be happy. Thing is... even if I did love him not it doesn't matter, it's not like I can do anything about it."  
+他点头，“是的……我想是的。我喜欢他……我不知道当时是否爱他，甚至现在是否爱他，但我非常关心他。我希望他幸福。问题是……即使我真的爱他，现在也无所谓了，我无法为此做些什么。”
+
+"No... I suppose not." I lower my head and wonder if maybe there is. Asuka and Kaworu care for Shinji and Shinji cares for the two of them. It would not be normal by human standards but... if they care for one another then why would it matter.  
+"不……我想也是。" 我低下头，思索或许还有可能。明日香和渚薰关心真嗣，真嗣也关心他们两人。按人类的标准这或许不正常，但……如果他们彼此关心，那又有什么关系呢。
+
+"Don't worry about it, Rei." I look up and see him smiling, "It... It stings but... I'll be fine."  
+"别担心，丽。" 我抬头看见他微笑着，"这... 虽然有点刺痛，但... 我会没事的。"
+
+"That is... good to know. I am always here for you if you need me to be." I reassure him."  
+"那... 真是太好了。如果你需要我，我一直都在。" 我安慰他道。"
+
+"I know... thank you Rei." He nods at me and continues to smile as he selects the next song and starts to play his cello once again.  
+"我知道... 谢谢你，丽。" 他朝我点点头，继续微笑着挑选下一首曲子，再次拉起了他的大提琴。"
+
+**October 20th - Berlin – Asuka Langley Soryu  
+10 月 20 日 - 柏林 - 惣流·明日香·兰格雷**
+
+I step out of the elevator onto the thankfully empty corridor. As I put my foot down I feel a dull ache in it, the result of me having to put all of my weight onto the damn thing because my other one is still injured. The crutches are helping somewhat but I hate them, they make me slow and make it awkward for me to get around.  
+我走出电梯，踏入这条幸运空无一人的走廊。当我迈出脚步时，感到一阵隐痛，这都是因为我不得不将全部重量压在这只脚上，因为另一只脚还带着伤。拐杖在某种程度上有所帮助，但我讨厌它们，它们让我行动迟缓，也让我感到尴尬。
+
+This is the first time I've been out of the apartment in a week. We've only been out for around an hour and I've already decided I hate everything and everyone. I hate all those idiots on crowded streets and in crowded shops who can't seem to stop looking down at the phones long enough to see me struggling to get around. These idiots who nearly bump into me and then have the gall to blame me for it! They tell me to watch where I'm going!  
+这是我一周以来第一次离开公寓。我们只出去了大约一个小时，我已经决定讨厌一切和所有人。我讨厌那些拥挤街道和商店里的白痴们，他们似乎无法停止低头看手机，以至于看不到我艰难地移动。这些白痴差点撞到我，然后还有脸怪我！他们告诉我注意自己的方向！
+
+They're so lucky I need these damn things to walk around otherwise I'd take them and shove them straight up their a-  
+他们真幸运，我需要这些该死的东西才能走动，否则我早就把它们塞进他们的——
+
+"Asuka! Are you feeling okay?"  
+“明日香！你感觉还好吗？”
+
+I'm snapped from my, vaguely violent... okay very violent thoughts about crutches and orifices, by Kaworu's concerned voice. He's stood opposite me and looking at me with a worried expression, one that I've gotten used to over the last week.  
+被真嗣关切的声音从我对拐杖和某些部位的，呃，相当暴力的念头中拉回现实。他站在我对面，带着担忧的表情看着我，这种表情在过去一周里我已经习惯了。
+
+Everything I've tried to do he has been there, helping me and looking so worried throughout it. I appreciate the help from him but I wish he wouldn't worry so much, it's only a broken foot, it's not as if I'm about to die. Still... it's nice that someone cares.  
+我尝试做的每一件事，他都在那里，帮助我，全程显得那么担忧。我感激他的帮助，但希望他不要这么担心，只是脚骨折而已，又不是快要死了。不过……有人关心还是挺好的。
+
+"Fine." I answer, managing to take some of the annoyance out of my voice as I speak. I don't want to seem like I'm mad at Kaworu. None of this is his fault, it's all mine. I was the one who enthusiastically declared we were going to buy him a suit and I was the one stupid enough to break her own foot last week, "Just... idiots."  
+“好吧。”我回答，尽量让自己的语气不那么烦躁。我不想让卡沃鲁觉得我在生他的气。这一切都不是他的错，都是我的错。是我热情地宣布我们要给他买套西装，也是我上周愚蠢到把自己的脚弄骨折了，“只是……蠢货。”
+
+He smiles, "Yes, it is much nicer and quieter up here. The other levels were quite busy. I was actually concerned that at one point you were going to hit someone."  
+他微笑道：“是的，这里确实更舒适也更安静。其他楼层相当繁忙。我甚至担心你会不小心打到别人。”
+
+"Oh, believe me... I was." I nod back at him, "Shall we go and take a look then?"  
+“哦，相信我……我确实如此。”我朝他点点头，“那我们过去看看吧？”
+
+He nods, "Okay." 他点头，“好的。”
+
+I follow him, slowly, into the wider room and see immediately that we are going to be a little bit spoilt for choice in here. I spot my target immediately, some seats towards the center of the room. As much as I hate looking weak, I really need to sit down and rest my feet. I swear to god, next time I'm angry I'm getting a stress ball. No more kicking steel skips for Asuka!  
+我跟着他，慢慢地，走进了更宽敞的房间，立刻意识到我们在这里的选择会有些多。我立刻发现了目标，房间中央的一些座位。尽管我讨厌显得软弱，但我真的需要坐下来休息一下双脚。我发誓，下次生气时我要拿个减压球。再也不踢阿斯卡的钢制跳跃器了！
+
+I look towards Kaworu, he seems somewhat overwhelmed and I can't blame him. All around use are suits and accessories of a variety of colour and style. I've brought him to a good place as well, not exactly high-end celebrity prices but definitely upper tier. After all, it's been a long time since we've seen them and It's a big occasion, we have to look out best.  
+我望向薰，他似乎有些不知所措，我并不怪他。周围尽是各式各样色彩斑斓、风格各异的西装和配饰。我带他来的这个地方也不错，虽非顶级明星价位，但绝对是高端档次。毕竟，我们已经很久没见面了，这是个重要的场合，我们必须展现出最好的一面。
+
+"That prices... are so high." he whispers to me, "Are you sure this is okay?"  
+“那些价格……太高了。”他低声对我说，“你确定这样好吗？”
+
+"Kaworu, neither of us are really struggling for money right now, are we? If we can't spend a little bit of our vast payoffs on fancy clothes then what can we spend it on?"  
+“薰，我们现在都不缺钱，对吧？如果连我们丰厚的收入都不能花一点在高档衣服上，那还能花在什么地方呢？”
+
+"Well I actually donate some of mine to charitable organizations, I sponsor several kittens and have helped build wells in under-privileged countries." He answers.  
+"其实我会将一部分捐给慈善机构，我资助了几只小猫，还帮助在贫困国家建造水井。" 他回答道。
+
+I look at him and shake my head, I did wonder why he had a drawer with several stuffed cat toys. I can't deny his heart is in the right place, I do donate money myself to charity.  
+我看着他，摇了摇头，我确实好奇他为什么会有一个抽屉装着好几个毛绒猫玩具。我不能否认他的心意是好的，我自己也会捐钱给慈善机构。
+
+"Look, this is a one off Kaworu. Neither of us have really done this before so let's just... for once get something big and expensive and make ourselves look better than everyone else there."  
+"听着，这是第一次，卡沃鲁。我们俩都没真正做过这种事，所以就...这一次，我们买些大件昂贵的东西，让自己看起来比那里的其他人更出色。"
+
+He seems confused by the motion, "Okay..."  
+他对这个动作显得有些困惑，"好吧..."
+
+"Look, just go and pick some stuff. I'll... wait here I guess."  
+"听着，去挑些东西吧。我...就在这儿等着吧。"
+
+I watch as Kaworu wanders off to the aisles of suit jackets and get myself comfortable on the seat. I'm much happier up here than I was on the lower levels, aside from a sales assistant who hasn't approached us yet we are the only two on the floor. I guess not many men need a suit today.  
+我看着渚薰走向西装外套的货架，自己在座位上坐舒服了。比起楼下，我更喜欢这里，除了一个还没来打扰我们的销售员，整个楼层就我们两个人。看来今天不需要西装的男人不多。
+
+Shame the same can't be said for the other levels. For some reason it seems the entirety of Berlin have chosen to come shopping today. I'm just glad I've already picked out my dress for the event. I've already ordered it so I need to go and pick it up from the desk a couple of floors down. I've decided on a simple but elegant halter neck dress, pleated at the bottom and in a dark red colour.  
+可惜其他楼层就没这么幸运了。不知为何，今天整个柏林的人都似乎涌来购物了。幸好我已经选好了参加活动要穿的裙子。我已经下单了，得去楼下几层的柜台取货。我决定选一件简约而优雅的露背裙，裙摆是百褶设计，颜色是深红色。
+
+It's been a while since I've actually felt excited to dress up that smartly for an occasion. The last time must have been that damn date with Hikari's sisters' friend and I can remember exactly how that ended up. Since then I've not really been too bothered with the whole thing, it's not that I don't like the idea of doing it it's just I've never been in a position of mindset to do it.  
+已经很久没有因为要盛装出席某个场合而感到兴奋了。上次有这样的心情，恐怕还是和光姐的姐妹的朋友那次该死的约会，我至今记得那次的结果。自那以后，我对这类事情就不太上心了，并不是我不喜欢打扮，只是我从未处于那种心态去这么做。
+
+For this thing though, because I'm seeing Shinji again after so many years, because of where we're going and because I have Kaworu I want to. I want to be there and show how beautiful I am, how handsome Kaworu is. I want to actually be noticed again, instead of hiding myself away.  
+但这次不同，因为多年后再次见到真嗣，因为我们要去的地方，也因为有了薰，我想要这么做。我想在那里展示自己的美丽，薰的英俊。我想再次被人注意到，而不是隐藏自己。
+
+I look around the room again for Kaworu. I can see he has two items tucked under his arm and seems to be looking at a third option. I wonder what it is he'll have picked out for himself. Problem is, as I look around at the large number of options, that Kaworu would likely look good in anything. White, Black, Grey, Blue, Red, he'd look great in anything.  
+我又在房间里寻找卡罗鲁的身影。我看到他腋下夹着两件物品，似乎正在考虑第三种选择。不知道他会为自己挑选什么。问题是，当我环顾众多选项时，卡罗鲁无论穿什么都会很好看。白色、黑色、灰色、蓝色、红色，他穿什么都好看。
+
+I smile, not exactly a bad problem to have I suppose. I get to watch my boyfriend model suits for me. Things could be worse.  
+我笑了笑，这倒也不算是个坏问题。我可以看着我的男朋友为我试穿西装。情况本可以更糟。
+
+He finally returns to me, and I see what he has picked out. He catches my eye, "I am sorry I took a while, there was a lot of choice and I was not sure what would work for me. I know I wear a suit for work but I have never been to an occasion such as this. I was uncertain as to what would be appropriate."  
+他终于回到我身边，我看到了他挑选的东西。他迎上我的目光，“对不起，我花了些时间，选择太多了，我不确定什么适合我。我知道工作时穿西装，但我从未参加过这样的场合。我不确定什么才合适。”
+
+I nod and look between the three jackets he has selected. I try to picture him in each one of them, wondering how the white shirt and dark orange tie we've picked out might go with each option. I find myself drawn to the lighter grey suit jacket at first but I think I'll have to see him wearing them first to make sure. I get to see Kaworu model suits, not exactly the worst problem to have.  
+我点点头，目光在三件他挑选的夹克间游移。我试图想象他穿上每一件的样子，想知道我们挑选的白色衬衫和深橙色领带会如何搭配这些选择。起初，我被那件浅灰色西装外套吸引，但我想还是得看他穿上后的效果才能确定。能看到碇真嗣试穿西装，这绝不是最糟糕的问题。
+
+I take a quick look at the other two options on hand, a dark blue and a darker grey. I look up at him, "Which one do you prefer?"  
+我快速扫了一眼另外两件备选，一件深蓝和一件更深的灰色。我抬头看向他，“你更喜欢哪一件？”
+
+He shrugs, "I like them all but I think... the lighter one might look better."  
+他耸耸肩，“我都喜欢，但我觉得...浅色的可能更好看。”
+
+I nod, "Let's try that one on first then."  
+我点点头，“那我们先试试那一件吧。”
+
+I carefully get to my feet and grab my crutches to help get me to the seats near to the changing rooms. As we do so Kaworu leans in closer to me, "Thank you for this Asuka but you know... You did not have to pay for this."  
+我小心翼翼地站起来，拿起拐杖帮助我走向更衣室附近的座位。就在这时，渚薰向我靠得更近了一些，“谢谢你，明日香，但你知道的……你其实不必为此付钱的。”
+
+"I know." I smile at him, "But I wanted to. Consider it a very later Birthday present..."  
+“我知道。”我对他微笑，“但我愿意这么做。就当是一个迟来的生日礼物吧……”
+
+I give him a knowling glance as he freezes and looks at me somewhat shocked, "L-Late... Birtdhay present?"  
+我给了他一个心领神会的眼神，他顿时僵住，有些震惊地看着我，“迟...迟到的生日礼物？”
+
+I nod at him again, "Mm... 13th of September isn't it? Did you think I, the great Asuka Langley Soryu would not find out about that?"  
+我再次向他点头，“嗯...9 月 13 日对吧？你以为我，伟大的惣流·明日香·兰格雷会不知道这个？”
+
+"I... I..." I see him glowing red with embarrassment, admittedly I feel somewhat bad. I can already guess as to why he didn't tell me, "How... did you find out?"  
+“我...我...”我看到他因尴尬而满脸通红，说实话，我感到有些内疚。我已经猜到他为什么没告诉我，“你...你是怎么知道的？”
+
+"Rei told me." I answer him immediately, "At first I was a bit annoyed that you kept it secret but... I know why you did. It's not really... a day I imagine you want to remember."  
+"丽告诉我的。" 我立刻回答他，"起初我有点恼火你一直保密，但是...我知道你为什么这么做。这不是一个...我猜你不想记住的日子。"
+
+He shakes his head, "No... My... masters never really mentioned it to me, so I have never celebrated it before. As far as celebrating it now goes... how can I celebrate that day... so many people died so that beings like me could be born... I can't celebrate that. It is not a cause for celebration."  
+他摇摇头，"不...我的...主人从未真正向我提起过，所以我以前从未庆祝过。至于现在庆祝...我怎么能庆祝那一天...那么多人死去，才有了我们这样的存在...我无法庆祝那个。这不是庆祝的理由。"
+
+"Idiot..." I say to him tenderly, "You had no say in how you were born, you were born because of what happened but it was not your decision or fault. You have as much right to celebrate a birthday as I do. Never time... next time we will do something. Oh, and Kaworu... for the record..."  
+"傻瓜..." 我温柔地对他说，"你无法决定自己的出生，你的诞生是那些事件的结果，但这不是你的选择或过错。你和我一样有权利庆祝生日。下次...下次我们一定要做些什么。哦，还有，渚...作为记录..."
+
+He turns to grin at me, "Fourth of December?"  
+他转过身来对我咧嘴一笑，"十二月四日？"
+
+"Let me guess..." I fire him a grin back, "Rei told you?"  
+"让我猜猜..." 我回以一笑，"丽告诉你的？"
+
+He nods, "Yeah, she made sure to tell me. That is also the day of your second book release, isn't it?"  
+他点头，"是啊，她特意告诉我的。那也是你第二本书发布的日子，对吧？"
+
+"Exact same day." I answer with a bit of a sigh. I had almost forgotten about the release of the book. I've seen some hype for it in stores, promotion for it coming soon but for me I've wrote it now. It's being printed and I have no further part in the process aside from answering a few questions as 'Mari Makinami.' My focus now is on getting to Japan.  
+"“同一天。”我带着些许叹息回答。我几乎忘记了这本书的发行。我在商店里看到了一些关于它的炒作，宣传它即将上市，但对我来说，我已经写完了。它正在印刷中，除了以‘真希波·真理·伊拉丝多莉亚斯’的身份回答几个问题外，我在这个过程中没有进一步的角色。现在我的重点是前往日本。”
+
+"We leave for Japan after that, will your foot have healed by then?"  
+“那之后我们就去日本，你的脚到时候能痊愈吗？”
+
+I shrug "Should have done, the doctor said it wasn't that bad of a break. Said it should only take four weeks or so."  
+我耸耸肩，“应该好了，医生说那不是太严重的骨折。他说只需要四周左右。”
+
+"Good." We arrive at the changing rooms and I sit myself down again. He kisses me gently on the forehead and then slips into the rooms to change into the first suit. I'm still angry at myself for what happened last week but the more I think about it the more I see just how smoothly things are going.  
+“好。”我们到了更衣室，我又坐了下来。他温柔地吻了我的额头，然后溜进房间换上第一套衣服。我仍对自己上周发生的事感到生气，但越想越觉得事情进展得异常顺利。
+
+All I need to do now is work on the next stage, and that is getting Shinji and Kaworu to properly patch things up. I don't think I should have any trouble with that. Both of them seem more prepared to speak than beforehand. I just want to make sure there is no awkwardness between us when we arrive.  
+现在我需要做的就是进入下一阶段，那就是让真嗣和薰真正和解。我觉得这应该不难。他们俩看起来都比之前更愿意开口了。我只希望我们到达时彼此间不要有任何尴尬。
+
+I suppose we were already able to eliminate one potential reason for awkwardness with Tokita letting slip mine and Kaworus relationship to Shinji. He seems to be taking it well but I... I know him. I know he can hide things well, if he is hurt about it then he can hide it. I've basically stolen the person he cares about and loves and Kaworu has... well Rei always said Shinji had feelings for me but I never believed or understood why.  
+我想我们已经消除了一个可能导致尴尬的原因，那就是时田不小心透露了我和薰的关系给真嗣。他似乎接受得很好，但我……我了解他。我知道他善于隐藏，如果他对此感到受伤，他也能隐藏起来。我基本上抢走了他关心和爱的人，而薰……好吧，丽总是说真嗣对我有感情，但我从未相信或理解为什么。
+
+I hurt Shinji so much, so why would he like me? Still, he hurt me too... there are things he did that some people would say I should never forgive him for. Things I've tried to not think about because it was just such a unique and horrible time. I have forgiven him for those things though, I hope he knows that. If not then... I guess I'll have to tell him.  
+我伤害了真嗣那么多，他怎么会喜欢我呢？尽管，他也伤害了我……有些事情，有些人会说我不应该原谅他。那些我试图不去想的事情，因为那是一个如此独特而可怕的时期。但我已经原谅了他，我希望他知道这一点。如果他不知道……我想我得告诉他。
+
+A few moments later Kaworu steps out of the dressing room in the first of the three suits. He's selected the light grey one and I feel my heart skip a beat on seeing him. I'm fairly sure my jaw drops as I look him up and down. It's ideal... it's... perfect. He turns himself around allowing me to see the front and back of the suit before coming to stop facing me.  
+片刻之后，渚薰从更衣室里走了出来，穿着三套西装中的第一套。他选了那套浅灰色的，我看到他时心跳不由得漏了一拍。我敢肯定我的下巴都掉了下来，上下打量着他。这太理想了……简直是……完美。他转了一圈，让我看到西装的前后，然后停下来面对着我。
+
+"Do you like it?" I hear him ask me.  
+“你喜欢吗？”我听到他问我。
+
+" . ." I blurt out quickly as I relaize my eyes are keenly focused on Kaworu's lower half. I look up and around the room, this is bad... I need to stop these thoughts... jumping Kaworu right here and now would be bad, especially with my foot but... damn he looks so good.  
+" . ." 我急忙脱口而出，意识到自己的目光正紧紧锁定在渚薰的下半身。我抬头环顾房间，这可不妙...我得停止这些念头...在这里立刻扑倒渚薰会很糟糕，尤其是我的脚还受伤了...该死，他看起来真是诱人。
+
+"Asuka?" He looks at me confused.  
+"明日香？" 他困惑地看着我。
+
+"You look great." I'm finally able to regain some composure and force those thoughts briefly from my mind. I'd like to think I'm above shoving Kaworu into a changing room and tearing his clothes from him. At least... until my foot recovers I'm above it.  
+"你看起来很棒。" 我终于恢复了一些镇定，暂时将那些念头赶出脑海。我希望自己能超越把渚薰推进更衣室并撕掉他衣服的冲动。至少...在我脚伤痊愈之前，我是这么认为的。
+
+"You... really think so?"  
+"你...真的这么认为吗？"
+
+"Of course!" I answer, "Do you like it though?"  
+"当然！" 我回答，"不过你喜欢吗？"
+
+He nods eagerly, "I really like it. I think... we should go with it. Or would you rather I try on the others first?"  
+他急切地点头，"我很喜欢。我觉得...我们应该选这个。还是你想让我先试试其他的？"
+
+I think about it for a moment, I could watch Kaworu try on two more suits here and admire the view or we could pay for it now, pick up my stuff and I could enjoy Kaworu taking off some clothes. It's not a hard decision to make.  
+我稍作思考，我可以在这里再看几套卡哇鲁试穿的西装并欣赏这美景，或者我们现在就付款，取走我的东西，然后享受卡哇鲁脱衣服的过程。这并不是一个难以做出的决定。
+
+"I think... We should pay for it, pick up my stuff and then get ourselves home. I think... I could do with some rest and you..." I slowly get to my feet, stumbling slightly as I get myself closer to Kaworu. I hobble across to him looking as attractive as I can with a broken foot, so much for seduction. Still I'm able to get close to him, closer enough to run a finger up the front of his shirt and feel him shiver at my touch, close enough for me to see the passion in his eyes and also the effect my words and actions are having on other parts of his body, "You... can help me relax."  
+“我想...我们应该付款，取走我的东西，然后回家。我觉得...我需要休息一下，还有你...”我慢慢站起身，踉跄地靠近卡哇鲁。我一瘸一拐地走向他，尽管脚受伤了，我还是尽量显得迷人，但诱惑力大打折扣。不过我还是能靠近他，近到可以用手指顺着他的衬衫前襟滑上去，感受到他因我的触碰而颤抖，近到可以看到他眼中的激情，以及我的话语和动作对他身体其他部位的影响，“你...可以帮我放松。”
+
+**October 20th - Berlin – Late Afternoon – Kaworu Nagisa  
+10 月 20 日 - 柏林 - 傍晚时分 - 渚薰**
+
+My eyes open slowly to the dim light of our bedroom. Ahead of me I can see Asuka's naked form still napping peacefully. I could wake her up but she looks so beautiful as she lies there I daren't disturb her. Instead I quietly get up off of the bed but not before kissing her softly on the forehead.  
+我的眼睛缓缓睁开，适应着卧室里昏暗的光线。眼前是明日香赤裸的身体，她依然安详地睡着。我本可以唤醒她，但她躺在那里的样子如此美丽，我不敢打扰。于是我悄悄地从床上起身，临走前轻轻吻了吻她的额头。
+
+I reach down and pick up my underwear from the floor and slide them back on followed quickly by my jeans. Shirtless I make my way around to the other side of the bed and just look at her resting form for a few moments. I think about how truly lucky I am right now to have someone like her in my life. It could so easily have been different, a part of me still thinks it should have been. I still feel like I don't deserve her love but... I am happy to receive it and I am so happy I can love her.  
+我弯腰从地板上捡起内裤，迅速穿上，接着是牛仔裤。赤裸着上身，我绕到床的另一侧，静静地凝视她休息的模样。此刻，我深感自己是多么幸运，能有她这样的人出现在我的生活中。一切本可能截然不同，我内心的一部分仍觉得本该如此。我仍觉得自己配不上她的爱，但...我很高兴能接受这份爱，也很高兴我能爱她。
+
+I lean over to my side to grab one of my pillows. Being as careful as I can I lift her leg up and slide the cushion under her broken foot to try to provide more support. I then pull the covers over her body and kiss her on the forehead one more time.  
+我侧身去拿我的一个枕头。尽可能小心翼翼地抬起她的腿，将枕头滑到她受伤的脚底下，试图提供更多支撑。然后我拉过被子盖在她身上，再次吻了吻她的额头。
+
+As I turn to leave the room I find I can't stop smiling. I move past her discarded clothes on the floor and the two bags of shopping that were promptly dropped when we entered. Several hundred Euro's worth of clothing unceremoniously dumped on the floor as we let our desire take over and we spent most of our afternoon making love to one another.  
+当我转身离开房间时，发现自己忍不住微笑。我走过她丢在地上的衣服和那两袋购物袋，那是我们进门时急忙丢下的。价值数百欧元的衣物就这样随意地扔在地上，我们任由欲望主导，整个下午大部分时间都在彼此怀中缠绵。
+
+Outside of the first time we ever did anything sexual I do not think I have ever been as nervous as I was this time. I was so hesitant, believing that if we were to do anything I would end up injuring her more. Asuka was quite insistent that I wouldn't, I hope that is true. I wanted her to feel as wonderful as I felt during it.  
+除了第一次发生性关系外，我想我从未像这次这样紧张过。我非常犹豫，担心如果发生什么，我会让她受伤更重。明日香非常坚持说我不会，我希望这是真的。我希望她能感受到和我一样的愉悦。
+
+I leave the room, taking a final glance as Asuka just as I shut the door, hoping that I don't wake her. I am aware that she has been having some issues sleeping over the past week, so these moments of rest will do her good. I can easily wake her up before dinner later on. Until then I should just relax and play a game, I'm currently several hours into Japanese made RPG that came recommended by Rei of all people, so I should get back to that.  
+我离开房间，关门时最后看了一眼明日香，希望没有吵醒她。我知道她过去一周睡眠有些问题，所以这些休息时刻对她有好处。晚餐前我可以轻松叫醒她。在那之前，我应该放松一下，玩会儿游戏，我正在玩一款日本制作的 RPG，是丽推荐的，所以我应该继续玩下去。
+
+I sit myself down on the sofa and pick up the controller, my thoughts turning toward four days from now, when I will have the opportunity to speak with Shinji once again. I can only hope that this time I am much better prepared for it. I need to make sure I know what it is I want to say to him and I need to try and ensure my emotions do not get the better of me. To borrow a phrase from him, I must not run away.  
+我坐在沙发上，拿起控制器，思绪转向四天后的那一刻，届时我将再次有机会与真嗣交谈。我只希望这次我能准备得更充分。我需要确保我知道自己想对他说什么，并且要尽力保证我的情绪不会失控。借用他的一句话，我绝不能逃避。
+
+Due to having an actual date for it and knowing what I need to do makes me feel slightly better about things, yet some of that nervousness remains. This nervous feeling, I have within me, it seems to be a core component of who I am now. I do not think I will ever be rid of it but at the same time I do not know if I would want to be. If I were rid of it would I also risk being rid of the good feelings that came with who I am now.  
+由于有了确切的日期，并且知道我需要做什么，这让我对事情感觉稍微好一些，但那种紧张感依然存在。这种紧张的感觉，似乎已成为我现在的核心组成部分。我不认为我会摆脱它，但同时我也不确定我是否想要摆脱。如果我摆脱了它，是否也会冒着失去伴随我现在的那些美好感觉的风险。
+
+When I was Tabris I did not feel these things. I feel... nothing. I felt what I thought was joy but it pales in comparison to now. It pales compared to the joy I feel when I cook a meal that Asuka compliments, it pales compared to the joy I felt when I found out I could travel, and it pales compared to the joy I feel when we make love.  
+当我还是塔布里斯时，我没有这些感受。我感到... 空无一物。我曾以为那是喜悦，但与现在相比显得苍白无力。与明日香称赞我做的饭菜时的喜悦相比，与得知我能旅行时的喜悦相比，与我们在爱中感受到的喜悦相比，都显得苍白无力。
+
+I realize I have to accept these negative feelings I sometimes have in order to feel the better ones. It is part of being human and if I'm being honest, these days I feel more positive than I do negative.  
+我意识到，为了感受到更好的情绪，我必须接受自己有时产生的这些负面情感。这是作为人的一部分，如果坦诚地说，这些天我感觉积极的时候比消极的时候多。
+
+I think this discussion will be a big hurdle for me to get over in terms of letting things go. I need to be able to talk to him properly. I know how much I hurt him and I am willing to apologize and discuss that. I just hope that he can listen and give me the opportunity to prove myself to him. I would be happy with that opportunity at the very least.  
+我认为这次讨论对我来说将是一个巨大的障碍，尤其是在放下事情方面。我需要能够和他好好谈谈。我知道我伤他有多深，我愿意道歉并讨论这件事。我只希望他能倾听并给我一个证明自己的机会。至少，如果能得到那个机会，我会很高兴。
+
+If we can get through this then I can finally allow myself some excitement for the trip to Japan. I have had a few brief bursts of excitement but I haven't allowed myself to get too carried away yet. After all, without knowing the reception I will get, how can I be excited for it? If I know I will be hated by the people there then... No... I shouldn't think like that. I do not think such a thing will happen.  
+如果我们能度过这个难关，我终于可以让自己对去日本的旅行感到一些兴奋了。虽然我有过几次短暂的兴奋时刻，但我还没有让自己太过激动。毕竟，在不了解我将得到的接待的情况下，我怎么能为此感到兴奋呢？如果我知道那里的人会讨厌我，那么...不...我不应该那样想。我不认为会发生那样的事。
+
+Still, I know my trip will not be without its problems. I have been granted more information on my restrictions whilst there. I'm going to be monitored 24/7 and have several restrictions put on me. There will be guards posted outside out hotel room and nearby all the time. Myself and Asuka will not even be allowed outside of the city to explore anything nearby and anywhere we would like to visit within the city will require us to submit an application beforehand.  
+尽管如此，我知道我的旅程不会一帆风顺。关于我在那里的限制，我获得了更多信息。我将被全天候监控，并受到多项限制。酒店房间外和附近将一直有警卫驻守。我和明日香甚至不被允许离开城市去探索周边地区，我们想在市内访问的任何地方都需要提前提交申请。
+
+It will be an annoyance to the both of us, more so for Asuka I imagine. For me I am still in the mindset that even being allowed to live somewhat freely is more than I deserve. It is perhaps a mindset I need to get out of and maybe I will do so in time. Yet the sins of my masters and what I used to be still weigh heavily on me.  
+这对我们俩来说都将是一种烦扰，我想对明日香来说更是如此。对我而言，我仍然认为能够相对自由地生活已是我应得的。这或许是一种我需要摆脱的心态，也许随着时间的推移我会做到。然而，我过去的主人的罪行和我曾经的身份仍然沉重地压在我心头。
+
+I suspect some of these additional restrictions are due to their findings in Tokyo-3 as well. I am probably not supposed to know but Fuyutsuki did tell me what they were able to find a living creature within the ruins of that old city. From what I understand it is a unified form of Adam and Lilith. Naturally he wanted to know if I had any idea what might have happened. After all, my soul was a fragment of Adams at one point but I no longer have any connection to that part of Adam. It is as much its own unique entity as I am. I am not Adam, I am not Tabris, I am simply Kaworu Nagisa, a human being and happily so.  
+我怀疑这些额外的限制中，有一部分是因为他们在东京-3 的发现。我本不该知道，但冬月确实告诉了我他们在那座古城废墟中找到了一个活物。据我所知，那是亚当与莉莉丝的统一体。自然，他想知道我是否有什么头绪。毕竟，我的灵魂曾是亚当的一部分，但我已与那部分亚当断绝了联系。它与我一样，都是独一无二的个体。我不是亚当，不是塔布里斯，我只是渚薰，一个普通人，并且乐在其中。
+
+Still this fusion does intrigue me. My knowlegde of them and their creators is limited outside of the few echoes I can remember from my time as an Angel. I know that they were created many years ago and sent out on varied courses along with several other so-called Seeds of Life. Something went wrong and both Adam and Lilith crashed here. It was something that should never have happened, two SOL on one planted shouldn't have been able to co-exist and for a long time they didn't, one even tried to kill the other but humanity had other plans.  
+尽管如此，这种融合确实引起了我的兴趣。我对它们及其创造者的了解有限，除了作为使徒时能回忆起的零星片段。我知道它们是在多年前被创造出来的，与其他所谓的生命之种一起被送往不同的轨道。出了差错，亚当和莉莉丝都坠落于此。这本不该发生，一颗星球上不应有两个生命之种共存，而且很长一段时间内它们确实无法共存，甚至一个试图消灭另一个，但人类有别的打算。
+
+The fact that they have now found a way to co-exist and even join in unison is beautiful to me, in its own way. Although it does have some ramifications for me. I know the powers that be in the UN will feel I have something to do with it or I might try to do something whilst there. Naturally I have nothing to do with it nor would I want anything to do with it. I simply want to go to Japan, I want to see Shinji, enjoy the concert and be with the one I love.  
+他们如今找到了共存甚至合为一体的方法，在我看来，自有其美好之处。尽管这对我确实有些影响。我知道联合国的高层会认为我与此事有关，或者我可能会在那里有所行动。当然，我与此事毫无瓜葛，也不想有任何牵扯。我只想去日本，我想见真嗣，享受演唱会，与心爱的人在一起。
+
+**October 24th - Tokyo 2 – Shinji Ikari  
+10 月 24 日 - 东京 2 区 - 碇真嗣**
+
+Once again, I have my phone in my hand and I find myself looking down at it nervously. All those familiar feelings are there, the slight trembling of my hand, the sickly feeling in my stomach and the lump forming in my throat. I'm scared because this might be the last time I have this opportunity to speak to him.  
+又一次，我手里握着手机，紧张地低头看着它。那些熟悉的感受都在，手微微颤抖，胃里一阵恶心，喉咙里哽着一块东西。我害怕这可能是最后一次有机会和他说话了。
+
+I've already worked out what it is I'm going to say to him and it terrifies me because it means finally speaking to someone about those things I did many years ago. It means I finally re-open a wound I don't know if I'm ready to re-open. It means I risk upsetting him and Asuka with it too. I really hope I don't but I need... I need to do this.  
+我已经想好了要跟他说的话，这让我感到恐惧，因为它意味着我终于要向某人坦白多年前我所做的那些事。这意味着我终于要重新揭开一个我不知道自己是否准备好面对的伤口。这意味着我可能会因此让他和明日香都感到不安。我真的希望不会这样，但我需要……我需要这么做。
+
+I need to tell him of all those bad things I did. I need him to know that I'm not the perfect person he thinks I am, that I have been selfish and cowardly. I need him to know this because I don't want there to be those sorts of secrets between us. I want this to be a fresh start... even if it ends up with him hating me. I am willing to accept that.  
+我需要告诉他我所做的那些坏事。我需要让他知道我不是他心目中那个完美的人，我曾自私且懦弱。我需要他知道这些，因为我不想我们之间存在这样的秘密。我希望这是一个全新的开始……即使最终他会因此恨我。我愿意接受这个结果。
+
+I let out a sigh and take a moment to try to compose myself. I can't let myself get into this state before I've even spoken to him. I need to stop overthinking this, just phone him... let him say what he needs to and then I can say what I need to and go from there.  
+我叹了口气，花了一点时间试图让自己平静下来。我不能在还没跟他说话之前就陷入这种状态。我需要停止过度思考，直接打电话给他……让他先说他的，然后我再说我的，就这样继续下去。
+
+My thumb hits the call button and it rings a couple of times before I hear his voice, _"Hello?"_  
+我的拇指按下通话键，电话响了几声后，我听到了他的声音，“喂？”
+
+I feel my heart beating harder in my chest just on hearing his voice. I also take some comfort in the fact that he sounds nervous as well. The idea of him being nervous is strange t me, when I met him all those years ago he came across as so calm and confident. He seemed to at peace and as if nothing would trouble him. I just have to remember he isn't that person anymore.  
+仅仅听到他的声音，我就感到心跳在胸腔里加速。同时，我也从中得到了一些安慰，因为他听起来也很紧张。他紧张的样子对我来说很陌生，多年前我第一次遇见他时，他表现得那么平静和自信。他似乎内心平和，仿佛没有什么能困扰他。我必须记住，他不再是那个人了。
+
+"K-Kaworu..." I start to reply, "Are you doing okay?"  
+“K-Kaworu...” 我开口回应，“你还好吗？”
+
+_"Yes, I am doing very well."_ He answers, I can hear him making his own effort to stay calm, _"Are you okay?"_  
+"是的，我很好。" 他回答道，我能听出他在努力保持平静，"你还好吗？"
+
+"Y-Yeah... I'm good. Thanks!" I trail off as we both fall in an awkward silence, the first of what I imagine will be many. I wonder if maybe I should start telling him some of the things I wanted to. Or maybe even ask him to tell me about him. Before I can decide he actually begins to speak.  
+"嗯... 我很好。谢谢！" 我们陷入了尴尬的沉默，这可能是许多次中的第一次。我想也许我应该开始告诉他一些我想说的事情。或者甚至让他告诉我关于他的事情。在我决定之前，他实际上开始说话了。
+
+_"I'm sorry I am not quite as... eloquent as you remember Shinji. This is... difficult for me. I have a lot I want to say but I feel I am not able to say it quite as easily as I would have hoped."_ He pauses for a moment, _"I suppose I should... thank you for what you did for me. You... have no idea how much it meant to me."_  
+"对不起，我没有你记忆中那么... 能言善辩，真嗣。这对我来说... 很困难。我有很多话想说，但我觉得我无法像我希望的那样轻松表达出来。" 他停顿了一下，"我想我应该... 感谢你为我所做的一切。你... 不知道这对我意味着多少。"
+
+"I-It's okay..." I blush as I answer him, "I... I'm glad I was able to help in some way. I thought it was unfair that they did that to you. I also... I also wanted to make sure you were able to come here for the concert..."  
+"我...我没事..." 我红着脸回答他，"我...我很高兴能以某种方式帮到你。我觉得他们那样对你不公平。而且...我也想确保你能来参加这场音乐会..."
+
+_"I... Thank you... Watching you play would be incredible. I am really looking forward to it."  
+"我...谢谢你...看你演奏一定会非常棒。我真的很期待。"_
+
+"I hope I can live up to what you expect them." I answer with a smile as my cheeks glow redder.  
+"希望我不会让你失望。" 我微笑着回答，脸颊越发红润。"
+
+_"I am sure you will."_ I can picture his smile as he talks to me and I feel that little sense of giddiness within me, _"Shinji... I... I am not quite sure I know how to say what I want to too you. I want to make sure I don't hurt you any more than I already have done, I don't want to make you angry but... if I do then please know I don't intend to. I just want to make sure you know the truth of who I am, and what I was. Last time we spoke I... I wasn't ready to tell you properly but now... I am."_  
+"我确信你会的。" 我能想象他说话时对我微笑的样子，我感到内心涌起一丝小小的兴奋，"真嗣...我...我不太确定该如何向你表达我想说的。我不想再伤害你，也不想让你生气，但...如果我做了什么让你不快的事，请知道我并非有意。我只是想确保你了解我的真实身份，以及我曾经的经历。上次我们交谈时，我...我还没准备好坦白，但现在...我准备好了。"
+
+"No... It was my fault too..." I reply to him as my hand tenses around the phone, the giddiness replaced once more by the sickly feeling, "I wasn't ready to speak to you either. I thought it'd be easier than it was but I was wrong. Please... tell me... I want to know, who are you?"  
+"不...这也是我的错..." 我回答他，手中的电话握得更紧了，那份兴奋被一种恶心的感觉所取代，"我也没准备好和你说话。我以为会比实际更容易，但我错了。请...告诉我...我想知道，你是谁？"
+
+There is a bit more of a pause as I feel more side-effects of my nervousness take over. I set the phone down on the table and switch it to speaker phone, my hand now sweating so much it's hard to hold the device. I place my other hand on my leg, forcing it down in an attempt to stop it trembling.  
+我感到更多的紧张副作用袭来，停顿了一会儿。我把手机放在桌子上，切换到免提模式，我的手现在出汗太多，很难握住设备。我用另一只手放在腿上，强迫它停止颤抖。
+
+_"My life started on September 13th in the year 2000... It was started as the result of Second Impact. Scientists for Gehirn were attempting a contact experiment with the dormant First Angel, Adam. When it happened it reduced Adam to an embryonic state and would set into motion the awakening of the Angels some years later..."_ He begins to explain.  
+"我的生命始于 2000 年 9 月 13 日...这一切源于第二次冲击。Gehirn 的科学家们试图与沉睡中的第一使徒亚当进行接触实验。当实验发生时，亚当被削弱至胚胎状态，并为几年后使徒的觉醒埋下了伏笔..." 他开始解释道。
+
+I listen keenly, "So... that is when you were born?"  
+我专注地听着，"那么...你就是那时诞生的吗？"
+
+_"Yes... When the contact experiment happened SEELE were able to somehow affix Adam's soul into a body they had prepared. They gave it two names, Kaworu Nagisa and Tabris."  
+"是的...接触实验发生时，SEELE 设法将亚当的灵魂附着在他们准备好的躯体上。他们给了它两个名字，渚薰和塔布里斯。"_
+
+"So... you're not that different to Rei then?"  
+"这么说...你和丽其实没那么不同？"
+
+_"No... I suppose I am not. Although unlike Rei I have no knowledge of which human contributed to the creation of my body. Such things I suppose are irrelevant and knowing those who created me the donor is most likely dead anyway."_ He continues, _"As Kaworu Nagisa I had a life. Basic education and piano lessons but soon it became all about my purpose on this Earth. One... which you already know..."_  
+"不...我想我确实不是。虽然不像丽，我对哪个人的贡献造就了我的身体一无所知。这些事情我想无关紧要，而且知道创造我的人，捐赠者很可能已经去世了。"" 他继续说道，""作为渚薰，我有过一段生活。基础教育和钢琴课，但很快这一切都变成了我在这个地球上的使命。一个...你已经知道的使命..."
+
+My mouth goes dry as I listen to him speak. As he tells me these things I can't help but compare him to my sister. She too was the same, raised for one thing, given only the basics.  
+我听着他的话，嘴巴发干。当他告诉我这些事情时，我不禁将他与我的妹妹相比较。她也是如此，只为一件事被抚养长大，只接受了最基本的教育。
+
+"I'm sorry... I had no idea. You... You were no different to Rei then..." I finally reply.  
+"对不起...我完全不知道。你...你当时和丽没什么不同..." 我终于回答道。
+
+_"Perhaps but... I still cannot help but feel I should have done more. I now know of the various lies and ways in which I was manipulated but it does little to ease my mind. Regardless that is the truth of what happened."_ he answers, _"The truth is Shinji, I was sent to Tokyo-3 to meet you in hope that it would help me achieve my supposed purpose. I was supposed to manipulate you for them and betray you at that moment and... I did exactly that."_  
+"也许吧，但我还是忍不住觉得我应该做得更多。我现在知道了那些谎言和被操纵的方式，但这并不能让我的心情好受多少。不管怎样，这就是发生的事实。" 他回答说，"事实是，真嗣，我被派到东京-3 来见你，希望这能帮助我实现所谓的目的。我本应该为了他们操纵你，并在那一刻背叛你...而我确实那么做了。"
+
+His words immediately cause me to relive that moment briefly. The moment I woke up and heard those sirens and moments later found out the boy I had fallen for was an Angel. I can still remember the confusion and the anger I felt at that moment. He had lied... he had betrayed me.  
+他的话立刻让我短暂地重温了那个时刻。我醒来时听到那些警报声，不久后发现我爱上的人竟然是一个使徒。我至今仍记得那一刻的困惑和愤怒。他撒了谎...他背叛了我。
+
+My voice is barely a whisper, "I know you did..."  
+我的声音几乎细不可闻，“我知道你做了……”
+
+_"When I look back on it I think that if I had just one more day... maybe I wouldn't have done it. Maybe I would have been able to fight against the call I felt within me or maybe... I would have found a way to take my own life and not have to put you through that."_ I can hear his voice start to tremble as he trails off.  
+“当我回想起那一切时，我想，如果再给我一天时间……也许我就不会那么做了。也许我能抵抗住内心那股召唤，又或许……我能找到自我了断的方法，不必让你经历这些。”我能听到他的声音开始颤抖，话音渐渐消失。
+
+"It's okay Kaworu..." “没事的，薰……”
+
+_"I just want you to know that... although I was supposed to manipulate you my words were genuine. When I said I loved you I... I meant it. I felt something when I met you, I had... not felt that sort of joy in my life before. It made me question everything I knew and everything I was but I couldn't fight my greater purpose."  
+"我只是想让你知道……尽管我本应操纵你，但我的话是真心的。当我告诉你我爱你时，我……我是认真的。遇见你时，我感受到了一种从未有过的喜悦。这让我质疑我所知道的一切和我所是的一切，但我无法抗拒我更大的使命。"_
+
+"K-Kaworu..." I whisper back at him, my voice on the verge of cracking itself. My legs trembling as I speak.  
+"薰……" 我轻声回应他，声音几乎要破裂。我的双腿颤抖着说话。"
+
+_"Know this Shinji I... am truly sorry for the pain I caused you. I know no words or actions can make up for what I have done but I am willing to try. Also... thank you... because you proved me right. When I saw Lilith, when I knew I had to die I... I knew the strength of your heart. I knew you could move past what I had done and... you proved me right... You allowed me and everything else a second chance..."  
+"你要知道，真嗣，我……真的为给你带来的痛苦感到抱歉。我知道任何言语或行动都无法弥补我所做的一切，但我愿意尝试。还有……谢谢你……因为你证明了我是对的。当我看到莉莉丝，当我明白我必须死去时，我……我知道你内心的力量。我知道你能超越我所做的一切，而……你证明了我是对的……你给了我和其他一切第二次机会……"_
+
+"I... I forgive you Kaworu..." I try to say the words without letting my voice break and almost manage it. Strangely though I am smiling. His words have touched me, reached into my heart and brought tears to my eyes.  
+"我...我原谅你，渚薰..." 我努力不让声音哽咽，几乎做到了。奇怪的是，我却在微笑。他的话触动了我，深入我心，让我泪眼朦胧。
+
+I take a deep breath and try to calm myself before the next part. Kaworu... I forgive you but I am about to tell you something and I hope you can forgive me. I still haven't quite worked out how I'm going to word this, I'm not very good with these subjects in normal conversation.  
+我深吸一口气，试图在接下来的部分前平静自己。渚薰...我原谅你，但我即将告诉你一些事，希望你能原谅我。我还没完全想好怎么表达，我在正常对话中不太擅长处理这些话题。
+
+_"Thank you. Shinji... I am not sure I deserve your forgiveness but I will accept it."  
+"谢谢你。真嗣...我不确定我是否配得上你的原谅，但我愿意接受。"_
+
+"Kaworu there... is something I have to tell you now. I'm not quite sure how to say it but I think there is something you should know."  
+"渚薰，现在我有件事必须告诉你。我不太确定该如何表达，但我觉得你应该知道一些事情。"
+
+_"What is it?"_ He sounds confused.  
+"什么事？" 他的声音听起来很困惑。"
+
+"It's about Asuka... Well not so much about her but about something that happened between us before Third Impact. I... Has she told you anything about that time?"  
+"是关于明日香的... 其实不完全是关于她，而是关于第三次冲击前我们之间发生的一些事。我... 她有没有跟你提起过那段时间的事情？"
+
+_"No... Only that she was injured before it happened."  
+“不……只是她在这之前受了伤。”_
+
+I nod, "I see... I don't know if I should tell you... perhaps it would be best hearing it from her but... I am going to. I want there to be no secrets between us when we meet. I just ask that... you don't hate me for this."  
+我点点头，“我明白……我不知道是否该告诉你……也许最好是从她那里听到，但……我会说的。我希望我们见面时没有任何秘密。我只请求……你不要因此恨我。”
+
+**October 24th - Berlin – Kaworu Nagisa  
+10 月 24 日 - 柏林 - 渚薰**
+
+_"I see... I don't know if I should tell you... perhaps it would be best hearing it from her but... I am going to. I want there to be no secrets between us when we meet. I just ask that... you don't hate me for this."  
+“我明白了...我不知道该不该告诉你...也许最好是从她那里听到，但是...我要说。我希望我们见面时没有任何秘密。我只请求...你不要因此恨我。”_
+
+I look at the phone resting on table in confusion. I have no idea what Shinji is about to tell me or why I would hate him for it. If he hurt Asuka then sure she would not have the feeling she does for him, so what could he have possibly done to suddenly provoke this.  
+我困惑地看着桌上的电话。我不知道真嗣即将告诉我什么，也不知道我为什么会因此恨他。如果他伤害了明日香，那么她对他的感情肯定不会像现在这样，所以他到底做了什么会突然引发这种情况。
+
+I try to think back to what Asuka has told me about her pre-Third Impact life. The honest truth is that whilst she has confessed a great deal to me regarding her life little of it really included Shinji and herself. She spoke to me about her attitude towards him and how she treated him but very little else. Most of the discussion surrounded her earlier life.  
+我试图回想明日香在第三次冲击前的生活中告诉我的事情。老实说，虽然她向我坦白了很多关于她生活的事情，但其中很少涉及真嗣和她自己。她谈到了她对他的态度以及她如何对待他，但其他方面几乎没有提及。大部分讨论都围绕着她的早年生活。
+
+"Shinji I... am not sure I could ever hate you, especially not after what I have done to you. Please... tell me what you have to tell me, I am sure it is not as bad as you think."  
+"真嗣，我...我不确定我是否能恨你，尤其是在我对你做了那些事之后。请...告诉我你想说的话，我相信它不会像你想象中那么糟糕。""
+
+I try to take a few breaths to calm myself. The emotion from the phone call has been more intense than I imagined. Just hearing him say he forgave me nearly pushed me past the brink of tears. My chest hurts from it all but... I have to see this through.  
+我试着深呼吸几次来平复自己。电话里的情绪比我预想的要强烈得多。仅仅听到他说原谅我，就几乎让我泪流满面。我的胸口因这一切而疼痛，但是...我必须坚持下去。
+
+_"Okay I..."_ I hear him take a deep breath, _"I will start with the easiest thing then. This all happened... after your death... I... I did something terrible. Something really bad and... I know Asuka knows about it. I just... she never brought it up. I guess it's not the sort of thing that can be brought up but... I don't want to hide it anymore. I... I'm not the good person you think I am Kaworu... I... I am trying to be good but..."_  
+"好吧，我..."我听到他深吸了一口气，"我会从最简单的事情开始。这一切发生...在你去世之后...我...我做了一些可怕的事。真的非常糟糕，而且...我知道明日香知道这件事。我只是...她从未提起过。我想这不是那种可以轻易提起的事，但是...我不想再隐瞒了。我...我不是你认为的那个好人，薰...我...我正努力变得善良，但是..."
+
+He trails off, "Shinji... You are a good person but we all make mistakes. Sometimes we... betray our friends and threaten the destruction of the earth or sometimes we just say the wrong thing. I am sure what you have done is no worse than what I nor anyone else have."  
+他话音渐弱，“真嗣...你是个好人，但我们都会犯错。有时我们...背叛朋友，威胁地球的毁灭，或者有时只是说错了话。我相信你所做的并不比我和其他人更糟糕。”
+
+I actually hear him laugh at that before pausing. I give him a moment to figure out what he wants to say, _"Asuka's death... before Third Impact was my fault. I... I could have stopped it but I... I did nothing. I left Asuka up there to fight all by herself whilst I sat in front of Unit 01."_  
+我确实听到他在那之后笑了笑，然后停顿了一下。我给他一点时间来想清楚他想说什么，“明日香的死...在第三次冲击之前是我的错。我...我本可以阻止的，但我...什么都没做。我让明日香一个人在那里战斗，而我却坐在初号机前。”
+
+"Why?" I ask him, it's the only thing I can say. I know about the fight of course, Asuka has mentioned it once to me. I've seen the scars left behind by it... left behind my dummy plugs using my pilot date. I've felt the guilt from that.  
+"“为什么？”我问他，这是我唯一能说的话。当然，我知道那场战斗，明日香曾向我提起过一次。我见过那场战斗留下的伤疤...由我的模拟插入栓利用我的驾驶员数据留下的。我感受到了那份愧疚。”
+
+Asuka never told me why she had to fight that battle alone. I just assumed it was due to lack of a choice but Shinji could have helped her. Is that what he is telling me?  
+明日香从未告诉我她为何必须独自面对那场战斗。我只是以为她别无选择，但真嗣本可以帮她的。他是在告诉我这个吗？
+
+_"I... I don't know."_ Shinji answers me, _"When I got to Unit 01 so many things had happened. I had just seen Misato die, I had watched other people be shot and killed and Unit 01 was encased in this stuff. I didn't think I could move it but I... I didn't even try... I just sat and waited for someone or something to kill me... I..."_  
+"我...我不知道。" 真嗣回答我，"当我到达初号机时，发生了太多事情。我刚刚目睹了美里死去，看着其他人被枪杀，初号机被这种东西包裹着。我以为我动不了它，但我...我甚至没有尝试...我只是坐着，等待某人或某物来杀我...我..."
+
+"Oh Shinji..." I so wish I was there to wrap my arms around him right now. To hug him and tell him things are alright.  
+"哦，真嗣..." 我多么希望此刻能在他身边，用双臂紧紧抱住他。拥抱他，告诉他一切都会好起来的。
+
+_"I didn't even try though Kaworu... I... I could probably have commanded it to move or at least got into the cockpit but I didn't... I just left her to die."_ He tails off again, _"I had lost so much, I didn't want to lose her but after Misato and you I..."_  
+"我甚至没有尝试，尽管卡沃鲁...我...我本可以命令它移动，或者至少进入驾驶舱，但我没有...我只是让她等死。" 他又停了下来，"我已经失去了那么多，我不想再失去她，但在美里和你之后我..."
+
+"I had broken you... I am sorry I..."  
+"我伤害了你...我很抱歉我..."
+
+Shinji quickly cuts me off, _"No! No... My actions... Kaworu you did hurt me but... my actions were my own. No matter how damaged I was... I could still have done something. I... Oh god..."_  
+真嗣迅速打断我，"不！不...我的行为...卡沃鲁，你确实伤害了我，但...我的行为是我自己的选择。无论我有多么受伤...我本可以做些什么的。我...哦，天哪..."
+
+I hear a stifled noise from the other side of the phone and I wonder if maybe it would be a good time to end this. Shinji does not need to tell me anything else, especially if it is affecting him this much.  
+我听到电话那头传来一声压抑的响动，不禁想着或许现在是结束这段对话的好时机。真嗣不需要再告诉我更多了，尤其是这件事对他影响如此之大。
+
+"Are you okay, we do not need to continue this now?"  
+“你还好吗，我们现在不需要继续这个话题了吧？”
+
+_"I will be okay. I need to get this out. You weren't the reason I didn't help her then Kaworu... I had done something earlier in the day... something … horrible to her. Please don't blame yourself for my actions, I have to take responsibility..."  
+“我会没事的。我需要把这些说出来。那时我没有帮助她，不是你的原因，卡沃鲁……那天早些时候，我做了一些……对她来说很可怕的事。请不要因为我的行为而自责，我必须承担责任……”_
+
+All he is saying only further adds to me being confused, he is claiming he is responsible for her death but also doing something else to her. Asuka has not mentioned such a thing to me. I wonder what it could be.  
+他所说的一切只是让我更加困惑，他声称自己对她的死负有责任，但同时又在对她做其他事情。明日香并没有向我提及这样的事情。我好奇那会是什么。
+
+Still his words do unsettle me. I can't help but feel some responsibility because I know my actions helped to break him. If I had not done what I did then maybe this would not have happened.  
+尽管如此，他的话确实让我感到不安。我不禁觉得自己也有责任，因为我知道我的行为帮助摧毁了他。如果我没有做那些事，也许这一切就不会发生。
+
+"Tell me..." “告诉我...”
+
+_"After you... after what happened I tried to visit her in the hospital. She was unconscious and she just looked so unlike Asuka... I... I wanted the Asuka I knew back. I wanted her to do something, I needed her to do something. To call me an idiot, to yell at me and to have that fire that pushed me forward..."  
+"在你之后... 发生了那些事，我试图去医院看望她。她昏迷不醒，看起来完全不像我认识的明日香... 我... 我想要回我认识的那个明日香。我想要她做些什么，我需要她做些什么。骂我是个白痴，对我大吼大叫，拥有那种推动我前进的火焰..."_
+
+"What did you do?" "你做了什么？"
+
+_"I tried to wake her up... I was being stupid... she was under sedation but I shoot her and the covers came off. I saw her naked and... I did something horrible. I... I violated her..."  
+"我试图唤醒她... 我那时很愚蠢... 她被注射了镇静剂，但我还是掀开了她的被子。我看到了她的裸体，然后... 我做了件可怕的事。我... 我侵犯了她..."_
+
+V... Violated? For a moment time stands completely still as I try to process just what Shinji has said to me. My mouth hangs open in complete shock as my hands start to tremble. Did he really say that? Does he actually mean what I think he means? What the hell did you do Shinji?  
+侵犯？那一刻时间仿佛完全静止了，我试图理解真嗣对我说的话。我的嘴巴因震惊而张开，双手开始颤抖。他真的这么说了吗？他真的是那个意思吗？你到底做了什么，真嗣？
+
+"Shinji... What... What did you do?" I try to keep my voice as steady as I can. I can actually feel anger rising within me but I try to stem it. I don't want to believe that Shinji could be capable of something so... despicable. I need to hear the full story before I do or say anything.  
+"真嗣...你...你做了什么？" 我尽力保持声音平稳。我能感觉到愤怒在心中升起，但我试图抑制它。我不愿相信真嗣能做出如此...卑鄙的事。我需要听完整个故事，再决定如何做或说什么。
+
+Scenarios play out in my mind of what he might have done, of his hands on her whilst she slept. It makes me feel sick to think about it. Is this really what he might have done? Was he... that broken? Did I... break him that much with what I did. No, I can't blame myself, Shinji's actions were his own.  
+我脑海中浮现出他可能做过的事情，想象着他在她熟睡时触碰她的情景。这让我感到恶心。这真的是他可能做的事吗？他...那么破碎吗？我...我做的事让他那么崩溃吗？不，我不能自责，真嗣的行为是他自己的选择。
+
+"Shinji, did you... touch her?" I can't hide the darkness in my voice as I ask him the question.  
+"真嗣，你...碰了她吗？" 我无法掩饰声音中的阴暗，向他提出这个问题。
+
+_"NO! No No No No No! I... I didn't!"_ Shinji frantically replies to me, _"No... I... I didn't do anything like that. I... I... What I did I..."_  
+“不！不不不不不！我...我没有！” 真嗣慌乱地回答我，“不...我...我没有做那样的事。我...我...我到底做了什么...”
+
+"Shinji, calm yourself." I try to do what Asuka has done to me several times when I've been in that state. I keep my voice steady with a hint of harshness. I admit I feel some relief at hearing he didn't touch her but then what did he actually do?  
+“真嗣，冷静下来。” 我尝试模仿阿斯卡在我处于那种状态时对我的做法。我保持声音平稳，带有一丝严厉。听到他没碰她，我确实感到一丝宽慰，但那他到底做了什么呢？
+
+"Take your time, what did you do?"  
+“慢慢来，你做了什么？”
+
+I hear him take a deep breath, _"I... When I saw her lying there... I... touched... myself. I just... I don't know why, I... I just wanted to feel something good in some way and for maybe twenty seconds I did but then... I finished and realized exactly what it was I had done. I looked down at my covered hand and... I just felt sick and wrong... I wanted to die..."_  
+我听到他深吸了一口气，“我……当我看到她躺在那里……我……碰了自己。我只是……我不知道为什么，我……我只是想以某种方式感受到一些美好的东西，也许有二十秒钟我确实感受到了，但随后……我结束了，意识到我做了什么。我低头看着我那被遮住的手，……我只觉得恶心和错误……我想死……”
+
+I have to hold myself back from saying good, my anger nearly rising to the surface on hearing him admit this to me. I admit, I am at a loss on what to say, I can feel my nails digging into my leg as I try to calm myself down from being angry at him.  
+我不得不克制自己不说‘好’，听到他向我承认这一点，我的愤怒几乎要爆发出来。我承认，我不知道该说什么，我能感觉到我的指甲深深地扎进我的腿里，试图从对他发怒中平静下来。
+
+I'm finding myself getting angry at myself too because my brain is trying to make me blame myself. If I didn't play my part in breaking him I would have prevented this. Shinji would have fought to protect Asuka... he wouldn't have done this. This isn't my goddamn fault though, Shinji... no matter how broken he was is responsible for his own actions. In many ways just as I was.  
+我也发现自己对自己感到愤怒，因为我的大脑试图让我责怪自己。如果我没有参与打破他，我就会阻止这一切。真嗣会努力保护明日香……他不会做这种事。但这不是我的该死的错，真嗣……无论他有多破碎，他都要为自己的行为负责。在很多方面，就像我一样。
+
+"Shinji..." "真嗣..."
+
+_"K-Kaworu I... I'm so sorry..."_ Shinji pauses again to compose himself. I can hear him sniffing and there is the sound of shuffling as I hear him wipe away tears from his eyes.  
+""不，不，渚薰...我...我很抱歉..."" 真嗣再次停顿，试图平复情绪。我能听到他吸鼻子的声音，还有窸窸窣窣的动静，他似乎在擦拭眼角的泪水。
+
+"And Asuka knows about it?"  
+"那明日香也知道这件事吗？"
+
+_"Y-Yeah... At least I think she does, she mentioned something once about us just putting all the stuff around Third Impact behind us."  
+"嗯...至少我觉得她是这么想的，她曾经提到过我们只是把第三次冲击的所有事情都抛在脑后。"_
+
+"I see..." I let out a sigh, not knowing how to handle this situation. This is not how I had thought this would go. I can't quite get the image out of my head of what Shinji has admitted either, the thought of it repulses me, that he could have done such a thing and yet... I feel pity for him.  
+"我明白了..." 我叹了口气，不知道该如何应对这种情况。这不是我预想中的发展。我无法从脑海中抹去真嗣承认的那一幕，想到他可能做过那样的事，我感到厌恶，然而...我又对他心生怜悯。"
+
+_"Do you... hate me?" "你...恨我吗？"_
+
+"No Shinji." I answer, "I... could never hate you but... I do not know how to react to what you have told me. I am... angry but I know my actions probably played a part in your mental state back then. I know there were a great many things that played a part and..."  
+"不，真嗣。" 我回答，"我……永远不会恨你，但……我不知道该如何回应你告诉我的事。我……很生气，但我知道我的行为可能在那时的你的心理状态中起了作用。我知道有很多事情都起了作用，而且……"
+
+_"My actions were my own Kaworu... I... I know I wasn't myself but that doesn't excuse what I did. It... was awful and... I am sorry."  
+"我的行为是我自己的选择，薰……我……我知道我当时不正常，但这并不能为我的所作所为开脱。那……很糟糕，而且……我很抱歉。"_
+
+"I... do not think it is me you should apologize to Shinji." I answer him, "I... am glad you told me about this. I... would not like there to be these sorts of secrets between us either but it is Asuka who you should apologize to and speak about this with."  
+"我……不认为你应该向我道歉，真嗣。" 我回答他，"我……很高兴你告诉我这些。我……也不希望我们之间有这种秘密，但你应该向明日香道歉，并和她谈谈这件事。"
+
+_"You think I should speak to her?"_ He asks me.  
+"你觉得我应该和她谈谈吗？" 他问我。
+
+"Yes. I do." "是的，我是这么认为的。"
+
+_"I... I will then." "我... 那我就去谈谈。"_
+
+"Good." I reply, feeling myself calm down a little bit. I truly did not expect Shinji to tell me anything like this, my mind immediately goes to Asuka and how she feels about such a thing. She never told me anything like this had happened, does she truly know? Has she forgiven him? Did that play a part in her wanting to get out of Japan? I should ask her myself. I should try to find out these things properly.  
+"好。" 我回答，感觉自己稍微平静了一些。我真的没想到真嗣会告诉我这些，我的思绪立刻转向了明日香以及她对此事的感受。她从未向我透露过这样的事情，她真的知道吗？她原谅他了吗？这是否是她想离开日本的原因之一？我应该亲自问她。我应该努力弄清楚这些事情。
+
+_"I-If you no longer want to visit in December I understand..."_ Shinji suddenly says, _"I just..."_  
+"如果...如果你不想在十二月来访，我理解..." 真嗣突然说道，"我只是..."
+
+"Shinji." I cut him off, "I would not miss this opportunity to visit you and see you perform. What you have told me is... concerning and I admit I do not know how to process it, it will take me time but I... do not hate you nor do I no longer wish to visit you. I just require some time. If Asuka has forgiven you then you should forgive yourself and move forward... "  
+"真嗣。" 我打断了他，"我不会错过这次拜访你并观看你表演的机会。你告诉我的事情...令人担忧，我承认我不知道如何处理，这需要时间，但我...并不恨你，也不想不再见你。我只是需要一些时间。如果明日香已经原谅了你，那么你也应该原谅自己，继续前进...
+
+_"O-Okay I... I will try."  
+"好-好的，我... 我会试试。"_
+
+"Good. Goodbye Shinji, I will speak to you later."  
+"很好。再见，真嗣，我们稍后再聊。"
+
+_"Goodbye Kaworu." "再见，薰。"_
+
+I hang the phone up and sit for a few moments in a stunned silence. My mind goes over what has just happened once more, from the elating high of being granted forgiveness and the promise of us moving on as friends to the lows of his confession.  
+我挂断电话，呆坐片刻，震惊得说不出话来。脑海中再次回放刚刚发生的一切，从被宽恕的喜悦和作为朋友继续前行的承诺，到他坦白时的低谷。
+
+I feel some of that anger come back to me but I try to stem it. What Shinji did was despicable but I try to remind myself of all the circumstances. I try to remind myself that the Shinji who did those things is not the true Shinji. Whilst is it true, this does not justify his actions it makes them understandable. I think then, perhaps what I should do is speak to Asuka about it. Find out if she did truly know about these things.  
+我感到那股怒火又涌了上来，但我努力克制。真嗣的行为令人不齿，但我试图提醒自己考虑所有情况。我试图提醒自己，那个做出这些事的真嗣并非真正的真嗣。尽管如此，这并不能为他的行为开脱，只是让它们变得可以理解。我想，或许我应该和明日香谈谈这件事。弄清楚她是否真的知道这些事。
+
+As I get up off the seat I look once again at the phone and see Shinji's profile card still on the screen. I try to push the thoughts out of my mind for good. I should not dwell on them any longer. It is not my business, it is between Asuka and Shinji now. It is for them to sort out and for me to respect Asuka's decision.  
+当我从座位上站起来时，再次看向手机，屏幕上还显示着真嗣的资料卡。我努力将这些念头彻底赶出脑海。我不该再纠结于此。这不是我的事，现在是明日香和真嗣之间的事了。该由他们来解决，而我应该尊重明日香的决定。
+
+Yet, I feel once more bit of anger within me and my hand instinctively curls up into a fist. Shinji... hurt her and allowed her to die. A part of me wanted to avenge that. It feels so stupid to want that given what I did but I have seen her hide those scars, I've seen her look at them with sadness and now I know they wouldn't be there if it weren't for him.  
+然而，我心中再次涌起一丝愤怒，我的手本能地握成了拳头。真嗣...伤害了她，让她死去。我的一部分想要为她复仇。考虑到我所做的一切，这种想法显得如此愚蠢，但我见过她隐藏那些伤痕，我见过她带着悲伤凝视它们，现在我知道，如果不是因为他，那些伤痕根本不会存在。
+
+If anything, this is just further confirmation of how confusing it can be to be human. I truly don't know what to feel.  
+如果说有什么，这不过是进一步证实了作为人类是多么令人困惑。我真的不知道该有什么感觉。
