@@ -8,12 +8,24 @@
         "type": "tabs",
         "children": [
           {
-            "id": "3660f98da3bd7fae",
+            "id": "854625221470a1b3",
             "type": "leaf",
             "state": {
               "type": "markdown",
               "state": {
-                "file": "kira862 - ❤️Two of Us.md",
+                "file": "TailoftheDevil - Angel.md",
+                "mode": "source",
+                "source": false
+              }
+            }
+          },
+          {
+            "id": "d3b8f650bf594b32",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "kira862 - Spawn of Adam.md",
                 "mode": "source",
                 "source": false
               }
@@ -85,7 +97,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "kira862 - ❤️Two of Us.md",
+                "file": "TailoftheDevil - Angel.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -102,7 +114,7 @@
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "kira862 - ❤️Two of Us.md",
+                "file": "TailoftheDevil - Angel.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               }
@@ -125,7 +137,7 @@
             "state": {
               "type": "outline",
               "state": {
-                "file": "kira862 - ❤️Two of Us.md"
+                "file": "TailoftheDevil - Angel.md"
               }
             }
           }
@@ -146,10 +158,16 @@
       "workspaces:管理工作区布局": false
     }
   },
-  "active": "3660f98da3bd7fae",
+  "active": "854625221470a1b3",
   "lastOpenFiles": [
-    "DeadlyPole - 🍋Shinji and Asuka.md",
+    "kira862 - Spawn of Adam.md",
     "kira862 - ❤️Two of Us.md",
+    "TailoftheDevil - Angel.md",
+    "Tashikawa - Shinji, Asuka and The Last Angel.md",
+    "AgentKaji - ❤️The Asuka Variations.md",
+    "Bardic Jester - ❤️This Way.md",
+    "Bardic Jester - This Way.md",
+    "DeadlyPole - 🍋Shinji and Asuka.md",
     "Da Games Elite - The Little Angel.md",
     "Marco Strange - Underneath.md",
     "Marshall Banana - Asuka Strikes.md",
@@ -157,7 +175,6 @@
     "Shizumaru - I Mustn't Run Away.md",
     "Shizumaru - The Quiet Moments.md",
     "SheriffJohnStone - Care.md",
-    "Tashikawa - Shinji, Asuka and The Last Angel.md",
     "atare - Some Stupid Game.md",
     "Axel Terizaki - Shinji, will you dance with me.md",
     "atare - Don't wark at me!.md",
@@ -168,11 +185,6 @@
     "README.md",
     "Norsehound - Splint.md",
     "Karina Kineshi - A Beautiful Day for Piggyback Rides.md",
-    "Snafu the Great - Asuka's Christmas Carol.md",
-    "Daquarma - ❤️Open Your Eyes.md",
-    "Lexarius - Unasked Advice - ROE.md",
-    "evil chick - The Dreadful Project.md",
-    "The Silent One1 - Asuka, My Love.md",
-    "FreckledBitches - 🍋This Love.md"
+    "Snafu the Great - Asuka's Christmas Carol.md"
   ]
 }

@@ -1,4 +1,4 @@
-[kira862](https://m.fanfiction.net/u/2230351/)
+[kira862](https://fanfiction.net/u/2230351/)
 
 **Rated M** **for**: Strong Language, Adult Themes, Violence, And LEMOM!  
 分级为 M，原因：强烈语言、成人主题、暴力，还有 LEMON！
