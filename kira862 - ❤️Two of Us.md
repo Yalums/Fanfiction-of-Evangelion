@@ -25583,3 +25583,777 @@ Trying to ignore these feelings, and the thoughts that were circling in her mind
 **Speaking of the next chapters, I've decided to move up the time frame of the second half, so with that said, we'll have three more chapters until that point. Enjoy  
 说到接下来的章节，我决定将后半部分的时间线提前，因此，在此之前，我们将会有三章内容。敬请期待。**
 
+---
+
+### Chapter 27: Lust
+欲望  
+
+**So, incredibly early update here, and I'll talk about why at the end, among other things. This chapter is much stronger M than last one (chapter title says it all), and does have two A/N for content which some people may not want to read. As usual look for the bold lettering for the alert.  
+所以，这里是一个非常早的更新，我会在最后解释原因，以及其他一些事情。这一章比上一章（从章节标题就能看出来）更加成人向，并且包含两个 A/N，内容可能有些人不想阅读。一如既往地，请留意加粗字体以获取提示。**
+
+---
+
+The months had passed since winter, and it was now close to summer once again. Gone were the cold days spent bundled up next to each other, replaced with the natural warmth of a sunny afternoon. As was usual with the passing of the months, Shinji and Asuka continued to mature and grow, both in body, and in mind. It was now more than a year since they had settled down in their house, and you could almost consider them a young married couple for how they acted. Their feelings for each other continued to grow along with their bodies, but they relatively maintained the same distance with each other. But things had changed.  
+自从冬天过去，现在又接近夏天了。那些寒冷的日子里他们紧紧依偎在一起的时光已经不复存在，取而代之的是阳光明媚的下午带来的自然温暖。随着月份的流逝，真嗣和明日香继续在身体和心灵上成熟成长。自从他们在这个房子里安定下来已经超过一年了，他们的行为几乎可以被视为一对年轻的夫妇。他们对彼此的感情随着身体的成长而不断加深，但他们之间相对保持着同样的距离。但事情已经发生了变化。
+
+As was usual, Shinji was the first to awake in the morning. A bead of sunlight pierced through a gap in the blinds of their window, and Shinji's eyes fluttered open slowly. His arm was outstretched in front of him, and there was a certain weight pressing down on it. Asuka was using his arm as a pillow as she continued to sleep, her mouth slightly agape while she breathed softly, still deep within her dreams. Shinji watched her cute face for several seconds, before he carefully removed his arm from under her. She didn't wake up, which he was thankful for, but then again, he wasn't very surprised at this either.  
+一如既往，清晨总是真嗣第一个醒来。一缕阳光透过窗帘的缝隙，真嗣的眼皮缓缓抬起。他的手臂向前伸展，上面压着某种重量。明日香正枕着他的手臂继续沉睡，嘴巴微微张开，呼吸轻柔，依旧沉浸在梦乡之中。真嗣凝视着她可爱的脸庞几秒钟，然后小心翼翼地从她身下抽出手臂。她没有醒来，这让他感到庆幸，不过对此他也不感到意外。
+
+Leaving the bed, he put on a t-shirt and pants and looked over at Asuka once again. She had tossed in her sleep in the short time he had left the bed, and he could see her cleavage thanks to the loose fitting shirt she was wearing. Not for the first time, nor the last, did he imagine exploring that valley that was hidden to him. Once or twice since the incident at the hot springs he had come close, but there was always a cut off point.  
+离开床铺，他穿上 T 恤和裤子，再次看向明日香。她在短暂的睡眠中翻了个身，宽松的衬衫让她露出了胸前的曲线。这不是他第一次，也不会是最后一次，想象着探索那片对他隐藏的深谷。自从温泉事件以来，他曾一度或两次接近，但总有一个界限在那里。
+
+Sighing lightly, he began to leave the room, but paused once again as his eyes noticed a stain on the white carpet of their bedroom. Shaking his head, he left the bedroom to prepare breakfast.  
+他轻叹一声，正要离开房间，却在目光扫过卧室白色地毯上的污渍时再次停下。他摇了摇头，离开卧室去准备早餐。
+
+During the winter months when they had been cooped up in the house for long periods at a time, Asuka had found an easy way to pass the time on occasion. Her solution, was alcohol of course. It had been several months now since they had depleted all the canned goods in the grocery store, but the alcoholic beverages hadn't been touched yet, which Asuka had quickly latched onto. There had been many times during the winter months when she had flat out passed out, and Shinji had to carry her upstairs. She didn't seem to care whether the alcohol was lukewarm or not, but she had quickly grown accustomed to sake, which as an added bonus, was normally drunken warm.  
+在漫长的冬季里，他们长时间被困在屋内，偶尔间，明日香找到了一种消磨时光的简单方法。她的解决之道当然是酒精。几个月前，他们已经耗尽了杂货店里的所有罐头食品，但酒精饮料却还未曾动过，明日香很快就抓住了这个机会。在冬季的许多时候，她会直接醉倒，而真嗣不得不把她抱上楼。她似乎并不介意酒精是温的还是冷的，但她很快就习惯了喝温热的清酒，这算是个额外的福利。
+
+This wasn't to say that Shinji didn't occasionally drink as well. He wasn't nearly as fond of sake as Asuka was though, and tended to go for liquor, but was always careful to never get so drunk he lost control of himself. Asuka could get rather ferocious whenever she got drunk, and Shinji had lost track of how many times he had kissed her while the taste of alcohol was on her breath. She knew her limit, but she always tried to get a reaction out of Shinji. He was always adamant though, that whatever she tried, he wouldn't go along with since her actions weren't her own. Shinji wasn't sure how many of these incidents Asuka actually remembered the next morning when she woke up, but she never mentioned it, and neither did Shinji. Once, she had stripped down to nothing but her underwear, and then tried to force Shinji to do the same, but he had put his foot down at that, and gotten angry at her. The stain on the carpet of their bedroom was a result of that night, after Asuka had thrown up her dinner.  
+这并不是说真嗣偶尔不喝酒。他虽然不像明日香那样喜欢清酒，更倾向于选择烈酒，但总是小心翼翼，从不让自己醉到失去自控。明日香一醉就会变得相当凶猛，真嗣已经记不清有多少次在她的呼吸中带着酒气时吻过她。她知道自己的极限，但总是试图从真嗣那里得到反应。然而，真嗣总是坚决表示，无论她尝试什么，他都不会配合，因为她的行为并非出自本意。真嗣不确定明日香第二天醒来时究竟记得多少这些事情，但她从未提起，真嗣也没有。有一次，她脱得只剩内衣，然后试图强迫真嗣也这么做，但他坚决拒绝了，并对她发火。那天晚上，明日香把晚餐吐在了卧室的地毯上，留下了污渍。
+
+Shinji wasn't sure whether Asuka did all this because she was bored, or if she just wanted him to try something. Her defenses were entirely down whenever these things happened, but Shinji could never bring himself to touch her. It would be far too wrong to take advantage of her in such a state.  
+真嗣不确定明日香这么做是因为无聊，还是只想让他尝试些什么。每当这种事情发生时，她的防御完全放下，但真嗣始终无法让自己去触碰她。在这种状态下占她便宜，实在是太不应该了。
+
+Shinji took his time preparing breakfast, since he knew it would be a while before Asuka made her way downstairs. She had gotten rather drunk last night, and had collapsed on the bed, immediately falling into a dreamless, drunken sleep. She didn't try anything towards Shinji, but even so, he had remained downstairs for several hours even after she had fallen asleep. He would be lying if he wasn't worried sometimes about Asuka's drinking problem, but he hoped that it was simply a phase she was going through. She was old enough to make her own decisions, and even if Shinji did occasionally voice his opinion, she would usually brush him off.  
+真嗣慢慢准备早餐，因为他知道明日香还要过一会儿才会下楼。她昨晚喝得相当醉，一倒在床上就立刻陷入了无梦的酣睡。她对真嗣没有任何举动，即便如此，她睡着后他还是在楼下待了几个小时。如果说他有时不担心明日香的酗酒问题，那他就是在撒谎，但他希望这只是她正在经历的一个阶段。她已经足够成熟，可以自己做决定了，即使真嗣偶尔表达自己的看法，她通常也会置之不理。
+
+Letting out a low sigh, Shinji let their small grill continued spouting flames, not quite feeling hungry enough to make his own portion of food. He leaned back in the wicker chair on the back patio, looking across the lawn.  
+真嗣低声叹了口气，任由他们的小烤架继续喷出火焰，他并不怎么感到饿，所以没有为自己准备食物。他靠在后院里的柳条椅上，眺望着草坪。
+
+He couldn't express himself as feeling angry towards Asuka, but he was significantly annoyed with her sometimes when she got so drunk she lost control of herself. His feelings for her weren't going to change because of that, but still, he wished that they could go further. The image of her naked body was still firmly ingrained within his mind, and he had used it many times when the urge hit him, but just imagining was no longer satisfying. He wanted that sight again, with physical contact between them. Asuka had already bared herself before Shinji, so wasn't it his turn now?  
+他对明日香并没有生气的情绪，但有时她喝得烂醉如泥、失去控制时，他确实会感到相当恼火。他对她的感情不会因此改变，但尽管如此，他还是希望他们能更进一步。她赤裸的身体形象仍深深烙印在他的脑海中，每当冲动袭来，他多次以此为慰藉，但仅凭想象已不再满足。他渴望再次见到那一幕，并希望彼此间能有身体接触。明日香已经在真嗣面前展露过自己，那么现在不正是轮到他的时候了吗？
+
+As wild images began assaulting his mind, he became aware that he was quickly growing hard. He tried banishing these thoughts away quickly, but try as he might, his thoughts continued drifting back to Asuka, and all the things he wanted to experience with her.  
+当狂野的画面开始冲击他的思绪时，他意识到自己正迅速变得坚硬。他试图迅速驱散这些念头，但无论他如何努力，思绪仍不断飘回明日香，以及他渴望与她经历的一切。
+
+'Damn it,' thought Shinji as the pressure in his pants started growing tighter. He still felt disgusted with himself whenever this happened, and unfortunately, it was happening far more often than he was comfortable with. Maybe it was because of Asuka's drunken advances, but he was having to release his pent up tension far more often than he used to. Right now though...was he really going to do that while sitting out here on the patio?  
+“该死，”真嗣心想，随着裤子里的压力越来越紧。每当这种情况发生时，他仍然感到厌恶自己，不幸的是，这种情况比他愿意承认的还要频繁。也许是因为明日香醉酒的挑逗，但他现在不得不比以前更频繁地释放积压的紧张情绪。不过现在……他真的要坐在这里的露台上做那件事吗？
+
+Before Shinji was about to make a possible life altering decision, the sliding door opened, and Asuka stepped outside. In many ways, this did nothing to improve Shinji's situation, but at least he hadn't been in the middle of unbuttoning his pants. Asuka it seemed was still half asleep though, so she didn't notice anything unusual about Shinji's expression.  
+在真嗣即将做出可能改变一生的决定之前，滑动门打开了，明日香走了出来。在许多方面，这并没有改善真嗣的处境，但至少他还没有开始解开裤扣。不过，明日香似乎还半睡半醒，所以她没有注意到真嗣的表情有什么异常。
+
+Sinking down into the chair beside him, she tilted her head back and placed both her hands over her face. Shinji assumed that she had a headache, but he wasn't about to console her because of her decision.  
+她沉沉地坐进他旁边的椅子，头向后仰，双手捂住脸。真嗣猜她可能是头痛，但他并不打算因为她的决定而安慰她。
+
+"Isn't breakfast done yet?" mumbled Asuka.  
+"早餐还没好吗？" 明日香咕哝道。
+
+"I honestly didn't think you'd be up this early, so I took my time preparing it."  
+"老实说，我没想到你会这么早起，所以就慢慢准备了。"
+
+Asuka simply groaned. If she felt this bad, she probably should have just continued sleeping Shinji thought. Well, now that she was up at least, he supposed he may as well finish.  
+明日香只是哼了一声。如果她感觉这么糟糕，真嗣想，她或许应该继续睡下去。不过，既然她已经起来了，他觉得还是把早餐做完吧。
+
+Shinji busied himself with the grill, while simultaneously preparing coffee, more for Asuka than himself. It was instant stuff, but better than nothing. Asuka stirred slightly as he passed her a mug, and slowly sipped the coffee while continuing to groan about her headache. Shinji did his best to ignore her mumblings while he poured some batter into a pan, making pancakes.  
+真嗣忙着打理烤架，同时也在为明日香准备咖啡，虽然对他自己来说不过是速溶的，但总比没有好。明日香在他递过杯子时微微动了动，慢慢地啜饮着咖啡，一边继续抱怨她的头痛。真嗣尽力不去理会她的嘟囔，一边将面糊倒入平底锅中，做起煎饼来。
+
+After about twenty minutes, he passed her a plate with two fluffy pancakes, to which she immediately started digging into. With it fresh off the grill, it seared the inside of her mouth, but it helped to further wake her up at least. By the time that Shinji was starting on his own, she had woken up considerably, but her headache was still bothering her.  
+大约二十分钟后，他递给她一盘两个松软的煎饼，她立刻开始大快朵颐。刚从烤架上拿下来的煎饼烫伤了她的口腔内部，但至少这有助于她进一步清醒。等到真嗣开始享用自己的那份时，明日香已经明显清醒了许多，但她的头痛依旧困扰着她。
+
+Asuka stood up, and walked inside the house, leaving Shinji to himself out on the patio. After he finished, he cleaned the dishes in the sink, noticing that Asuka had laid down on the couch, her eyes closed as she tried to ignore the pain. He sighed lightly, wondering how much more he could take of this.  
+明日香站起身，走进屋内，留下真嗣独自在露台上。他完成后，在洗碗池里清洗餐具，注意到明日香已经躺在沙发上，双眼紧闭，试图忽视疼痛。他轻叹一声，不知道自己还能忍受多久。
+
+Without having anything further to do, he walked into the living room, sitting down on their leather chair, and then looked over at Asuka. Shinji was reaching a point where he had started considering to hide the alcohol from her if this continued, which was something that he really didn't want to do. Asuka wasn't a child that you'd hide stuff from when she threw a temper tantrum.  
+无所事事之下，他走进客厅，坐在他们的皮椅上，然后看向明日香。真嗣已经到了考虑如果这种情况继续下去，是否要对她隐瞒酒精的地步，这是他真的不想做的事情。明日香并不是一个你会因为她发脾气而隐瞒事情的孩子。
+
+"Shinji?" Asuka spoke to him quietly.  
+“真嗣？”明日香轻声对他说。
+
+"...Yeah?" asked Shinji while he continued looking at her. Asuka turned towards him slightly, outstretching her hand towards him. Shinji hesitated briefly, before placing his hand in hers. Asuka gently tugged on his arm, guiding him off the chair and towards the couch. She sat up briefly so that Shinji could sit beside her, and then slowly collapsed on top of him, pressing her body against him. Shinji didn't even feel any desires stirring within him as she did this, and just calmly accepted her.  
+“……嗯？”真嗣一边继续看着她一边问道。明日香微微转向他，伸出一只手。真嗣犹豫了一下，然后将手放在她的手上。明日香轻轻地拉了拉他的手臂，引导他离开椅子走向沙发。她短暂地坐起来，以便真嗣可以坐在她旁边，然后慢慢地倒在他身上，将身体紧贴着他。真嗣在她这样做的时候甚至没有感到任何欲望的涌动，只是平静地接受了她。
+
+"...Sorry," mumbled Asuka.  
+"...对不起," 明日香咕哝道。
+
+Shinji had heard this multiple times before now, and the word had quickly worm off. If Asuka was showing remorse over her actions, then she going about it the wrong way.  
+真嗣之前已经多次听到过这句话，这个词很快就失去了效力。如果明日香对自己的行为感到懊悔，那么她的表达方式显然不对。
+
+Shinji didn't say anything to her, but just calmly rested his hand against her back, softly stroking her hair. Asuka let out a calm breath while he did this, pressing her face into his chest and rubbing her face against it. He couldn't refuse her, even if he wanted to. It wasn't something he wanted to do, but even so, he didn't want this to continue.  
+真嗣没有对她说什么，只是平静地将手放在她的背上，轻轻抚摸着她的头发。明日香在他这样做的时候，轻轻地呼出一口气，将脸埋进他的胸膛，并在上面蹭了蹭。即使他想拒绝，也无法做到。这不是他想做的事情，但即便如此，他也不希望这种情况继续下去。
+
+Asuka was starting to feel better though, thanks to Shinji's gentle caresses. Her headache was slowly starting to wear off, and she moved her face closer to Shinji's. She was unsure whether he'd accept her for how she was right now, but as she tenderly placed her lips against his, testing the waters, Shinji kissed her back as well. Afterall, Shinji couldn't refuse her.  
+尽管如此，由于真嗣温柔的爱抚，明日香开始感觉好些了。她的头痛逐渐消退，她将脸庞贴近真嗣。她不确定他是否会接受现在的自己，但当她温柔地将双唇贴上他的，试探性地，真嗣也回吻了她。毕竟，真嗣无法拒绝她。
+
+For a moment, Asuka's headache disappeared while they kissed. She felt tired, though exhausted might have been a better description. She knew that what she had been doing was wrong, but she felt there was no better way to calm herself. Initially, drinking had been just a simple way to pass the time, but it had grown into something else. With every passing day, Asuka was aware of the pain she felt whenever she was held, or kissed by Shinji. This pain was something that had started in her heart, and quickly spread to her entire body. Drinking had quickly become a means to forget about this pain. The truth was that she desperately wanted Shinji, but because of her own limitations and decisions, was unable to break through to this point. When she was drunk, she was free, able to commit to things which she normally couldn't commit to, even if she knew this was wrong. She was no longer satisfied with pleasuring herself, and doing it while drunk only made it worse.  
+有那么一刻，当他们亲吻时，明日香的头痛消失了。她感到疲惫，尽管用筋疲力尽来形容或许更贴切。她知道自己在做的事是错误的，但她觉得没有更好的方法来平复自己。起初，喝酒只是打发时间的一种简单方式，但渐渐地演变成了别的东西。随着每一天的过去，明日香都能感受到每当被真嗣拥抱或亲吻时，心中涌出的痛苦迅速蔓延至全身。这种痛苦始于内心，并迅速扩散到她的整个身体。喝酒很快成了忘却这种痛苦的手段。事实上，她迫切地想要真嗣，但由于自身的局限和选择，她无法突破这一点。醉酒时，她是自由的，能够做出平时不敢承诺的事情，即便她知道这是错的。她不再满足于自我愉悦，而醉酒时这样做只会让情况更糟。
+
+Asuka broke off the kiss from Shinji, and sat upright on his waist. Just the fact that she didn't feel anything from Shinji's waist made it abundantly clear that he didn't feel anything from her right now, even if they had just kissed.  
+明日香从真嗣的吻中抽离，直挺挺地坐在他的腰上。仅仅是因为她没有从真嗣的腰间感受到任何东西，这一点就足以清楚地表明，即使他们刚刚接吻，他现在也没有从她那里感受到任何东西。
+
+"Something wrong?" asked Shinji.  
+“有什么不对劲吗？”真嗣问道。
+
+"No, it's nothing," replied Asuka. Moments later, she got off the couch, and slowly made her way back upstairs.  
+“不，没什么，”明日香回答。片刻后，她从沙发上起身，缓缓地走回楼上。
+
+Shinji watched her leave, only imagining what was going through her mind. Even with the breakfast they had just had, he could very faintly taste the staleness of alcohol on her breath. Needless to say, he didn't enjoy this. Shinji felt like they were slowly growing further apart because of this, and it seemed that Asuka felt so as well.  
+真嗣目送她离去，只能想象她心中所想。尽管刚刚共进早餐，他仍能隐约从她呼吸中嗅到酒精的陈腐味。不用说，他并不喜欢这样。真嗣觉得他们正因这逐渐疏远，而明日香似乎也有同感。
+
+Scratching the back of his head, Shinji left the couch and then walked outside onto the back patio. He wasn't sure what to do, but he didn't think the answer existed inside a bottle.  
+真嗣挠了挠后脑勺，离开沙发，走到外面的后阳台。他不确定该做什么，但觉得答案并不存在于酒瓶之中。
+
+---
+
+Upstairs, Asuka threw herself down on the bed, and rolled over onto her back. Even though she had passed out drunk last night, she hardly felt like she had gotten any sleep. When she wasn't drunk, she tossed and turned, her thoughts alive with Shinji, aware that he was sleeping beside her. She wasn't able to concentrate during the day, and her appetite had been plummeting recently. She felt sick, like their was a parasite infesting her body and feeding off of her.  
+楼上，明日香扑倒在床上，翻身仰躺。尽管昨晚醉得不省人事，她几乎感觉自己没怎么睡。清醒时，她辗转反侧，满脑子都是真嗣，意识到他就睡在旁边。她白天无法集中精神，食欲也近来急剧下降。她感到不适，仿佛体内有寄生虫在侵蚀并吸取她的养分。
+
+Despite all this, the brief kiss she had shared with Shinji was enough to arouse her. It didn't take much for her to become excited anymore, and many times she had woken up in the middle of the night, aware of a slight moistness seeping between her legs. It was times like those when she stole downstairs in the middle of the night to relieve her tension, her face buried into the pillows on the couch as her voice screamed into the soft fabric. She had no idea whether Shinji knew about these sleepless night, but she sincerely hoped not.  
+尽管如此，她与真嗣那短暂的亲吻已足以激起她的欲望。她不再需要太多就能兴奋起来，许多次她半夜醒来，感觉到双腿间微微的湿润。每当这种时候，她会悄悄下楼，在沙发上用枕头掩面，声音在柔软的织物中尖叫，以缓解紧张。她不知道真嗣是否知晓这些无眠之夜，但她真心希望他不知情。
+
+She couldn't take this much longer, and it was just a matter of time before she lost control. She wondered how Shinji could put up with her, in many senses. She wasn't stupid, and knew he wanted her as well, but he was holding back. It wasn't possible that he was still worried about his unusual self, since he had overcome that long ago. So how was he able to hold back against her? Asuka knew he looked at her with such desires, but she no longer wanted him to just look at her, his thoughts concealed.  
+她无法再忍受更久了，失控只是时间问题。她想知道真嗣是如何忍受她的，从多方面来说。她并不愚蠢，知道他也想要她，但他却在克制。他不可能是还在担心自己的异常，因为他早已克服了那些。那么，他是如何在她面前克制自己的呢？明日香知道他用那样的渴望眼神看她，但她不再希望他只是看着她，心思深藏。
+
+None of these thoughts were helping Asuka to relieve these feelings though. Even if it was no longer enough, she couldn't ignore her body which was starting to tingle.  
+然而，这些想法并没有帮助明日香缓解这些情绪。即使这已不再足够，她也无法忽视自己开始感到刺痛的身体。
+
+She was confident in herself. She had always been considered beautiful, but it was possible that somebody could easily mistake her for a woman in their early twenties, instead of a teenage, sixteen year old girl. In the nearly two years since she had woken up in Tokyo-3, Asuka's body had certainly changed to that of a woman. Her hips were curved perfectly, her legs slender, her breasts supple and full, while her butt voluptuous. Asuka was attractive, simple enough.  
+她对自己充满信心。一直以来，她都被认为很美丽，但有人可能会轻易误以为她是个二十出头的女性，而不是一个十六岁的少女。自从近两年前在东京-3 醒来后，明日香的身材确实变成了一个成熟女性的模样。她的臀部曲线完美，双腿修长，胸部柔软而丰满，臀部丰满诱人。明日香很迷人，这一点毋庸置疑。
+
+When Asuka had first met Shinji, she had thought nothing of him. He was just a stupid boy, timid, indecisive, a bore, and somebody who she could never imagine spending the rest of her life with. As she grew to know him though, she realized that he could be shy, tender, caring, and stubborn. She had quickly become used to his presence always beside her, and counted him as a friend, and then started to show affection towards him. Shinji was now quickly become a young man in his own right. His natural muscles had started developing, his voice had grown deeper, his face, though she had initially thought nothing of it, had steadily seemed to grow more pleasing in her eyes, and his shaggy hair she frequently found herself twirling her fingers around. And now, she wanted nothing more than to have him pleasure her.  
+当明日香第一次遇见真嗣时，她对他毫无感觉。他不过是个愚蠢的男孩，胆小、优柔寡断、无趣，她从未想过会与他共度余生。但随着了解的深入，她发现他可以害羞、温柔、体贴且固执。她很快就习惯了他的陪伴，将他视为朋友，并开始对他表现出好感。真嗣正迅速成长为一个真正的年轻人。他的肌肉自然地开始发育，声音变得低沉，尽管她起初并不在意，但他的脸庞似乎逐渐变得顺眼，而他那蓬乱的头发，她发现自己常常不自觉地用手指缠绕。如今，她别无所求，只希望他能让她感到愉悦。
+
+**(A/N: Following paragraphs depict scenes of masturbation. If you don't want to read this, skip to the next bold faced lettering.)  
+(作者注：以下段落描述自慰场景。如果您不想阅读，请跳至下一段粗体字部分。)**
+
+Asuka's body gave a sudden jolt, while she continued thinking about Shinji. She wanted him to kiss her tenderly, his hands running down the length of her back. She wanted his eyes to rove along her naked body, his hands gliding there way along her navel, until they finally found there way to her breasts. She wanted him to see all her tender spots, to feel the wetness between her legs.  
+明日香的身躯突然一震，她继续想着真嗣。她渴望他温柔地吻她，双手沿着她的背部滑下。她希望他的目光在她赤裸的身体上游走，双手顺着她的肚脐滑行，最终找到通往她胸部的路径。她想要他看到她所有的敏感点，感受她双腿间的湿润。
+
+As she thought this, Asuka's hand began gravitating towards the spot between her legs. She was wearing shorts, but even then, she could feel the wetness spreading through the cotton. Her hands slipped down her shorts, and she pressed a finger against that spot, her finger sinking into the soft flesh covered by her underwear which was steadily growing slicker. Her thoughts of Shinji continued while she did this, only imagining what it would feel like if he was doing this.  
+这样想着，明日香的手开始向双腿间的部位移动。她穿着短裤，但即便如此，她仍能感觉到湿润透过棉布扩散开来。她的手滑进短裤，用手指按住那个部位，指尖陷入被内裤覆盖的柔软肉体中，内裤逐渐变得湿润。她一边这样做，一边继续想着真嗣，只是想象如果是他在做这件事会是什么感觉。
+
+While her one hand focused on the spot between her legs, the other found its way to her breasts, slipping under her shirt and cupping her breast. The shirt was pulled up, revealing the white bra which covered them, but Asuka's hand slipped into the bra. Her breathing was growing ragged now, and she winced as her finger brushed against her erect nipple. Again, her thoughts of Shinji coincided as she pleasured herself.  
+她的一只手专注于双腿之间的敏感地带，另一只手则摸索到自己的胸部，滑入衬衫下，轻握住乳房。衬衫被拉起，露出覆盖其上的白色胸罩，但明日香的手却滑进了胸罩内。她的呼吸变得急促，当手指轻触到挺立的乳头时，她不禁皱眉。此时，她的思绪再次与真嗣交织，她在自我愉悦中沉沦。
+
+Becoming lost in her own pleasure, she bit her tongue, holding back the cry of ecstasy. She didn't care about her appearance, her mind only focusing on relieving this feeling. Her underwear was thoroughly soaked, but she didn't care. Her hand which had been focusing on her tender spot, plunged into her underwear, where she slowly inserted her finger. Her other hand continued focusing on her breast, rolling around her pink nipple with the occasional pinch.  
+沉浸在自我欢愉中，她咬紧舌尖，压抑住即将脱口而出的欢愉呼喊。她不在乎自己的形象，心中只想着如何缓解这份感觉。内裤早已湿透，但她毫不在意。专注于敏感地带的那只手，探入内裤，缓缓插入手指。另一只手则继续在乳房上徘徊，不时轻捏那粉嫩的乳头。
+
+All too suddenly, Asuka felt her body shudder, and she turned her face, forcing it into the pillow as she reached her climax. Her scream was muffled by the pillow, but it still echoed around the room. She was breathing raggedly, but for the moment lay still, her finger still touching her spot while her legs were tucked together.  
+突然间，明日香感到身体一阵颤抖，她转过头，将脸埋进枕头，随着高潮的到来，她的尖叫被枕头闷住，但仍回荡在房间里。她呼吸急促，但此刻静静地躺着，手指仍触碰着敏感点，双腿紧贴在一起。
+
+Slowly, she rolled over onto her back, removing her hand from her underwear and her breast. Her shorts were halfway down her thighs, and her shirt was still hiked up far enough to see her one bare breast. Asuka continued panting while she lay there, but she knew she couldn't stay like this.  
+她慢慢地翻身仰躺，从内裤和胸部移开手。短裤滑落到大腿中部，衬衫仍高高撩起，露出一只裸露的乳房。明日香继续喘息着躺在那里，但她知道不能一直这样下去。
+
+**(A/N: Ends here) (作者注：至此结束)**
+
+Leaving the bed, she grabbed a change of clothes and entered the bathroom, stripping everything off. Wiping herself down, she examined herself in the mirror, suddenly feeling lonely. This was only a temporary thing, which she knew. There was only so far the imagination could go before it began to long for the real thing.  
+她离开床铺，抓起一套干净衣服走进浴室，脱去所有衣物。擦拭着身体，她在镜中审视自己，突然感到一阵孤寂。她知道这只是暂时的。想象终究有限，一旦超越界限，便会渴望真实。
+
+Returning to the bed, Asuka collapsed once more on it, glad that there hadn't been any stain resulting from her climax. It wasn't enough, and would probably never be enough. Unwillingly, Asuka's thoughts drifted to Shinji again, but the only thing she thought was-  
+回到床上，明日香再次瘫倒，庆幸高潮并未留下任何痕迹。这远远不够，或许永远都不够。不情愿地，明日香的思想再次飘向真嗣，但她心中所想的只有——
+
+'I wonder how different it would feel to have Shinji's fingers touch me?'  
+'如果换成真嗣的手指触碰我，感觉会有何不同呢？'
+
+---
+
+The day passed by slowly, and Shinji kept to himself downstairs. He tried to keep his mind occupied on anything other than Asuka, but found this difficult. He had been reading a book, but had kept rereading the same paragraph and eventually started skimming through it, at this point giving up, and just placed it beside him on the couch.  
+日子缓缓流逝，真嗣独自待在楼下。他试图让自己的思绪远离明日香，却发现这很难做到。他一直在看书，却不断重复阅读同一句话，最终开始略读，这时他放弃了，只是将书放在沙发旁。
+
+He still hadn't come to a satisfactory decision, debating on what to do. Asuka had continued pushing him further and further to his limits with her drunken advances, and each time Shinji had pushed her away. He wanted to accept her, but couldn't when she acted that way. Whatever would happen between them, Shinji didn't want to be the only one to remember it. The first time had to be something special, even if it would be unbelievably awkward. There was no other thought in Shinji's mind, but this. The problem was how Asuka was behaving.  
+他仍未做出满意的决定，纠结于该怎么做。明日香借着酒意向他步步紧逼，每次真嗣都推开了她。他想接受她，但当她那样表现时却做不到。无论他们之间会发生什么，真嗣不希望只有自己记得。第一次必须是特别的，即使会无比尴尬。真嗣心中别无他想，问题在于明日香的行为。
+
+'And speaking of such,' thought Shinji as he heard the sound of soft feet walking down the stairs.  
+“说到这个，”真嗣听到轻轻的脚步声从楼梯上传来，心中暗想。
+
+Shinji glanced over towards the hallway just as Asuka entered. She had changed her clothes from earlier, but was still dressed loosely in shorts and a t-shirt. Shinji was wondering what she had been doing upstairs for these past hours, but he wasn't going to ask. Asuka sat down on the couch beside him though, far closer than he would have expected considering the distance between them earlier.  
+真嗣瞥向走廊，正好看到明日香走进来。她换了衣服，但依旧穿着宽松的短裤和 T 恤。真嗣好奇她刚才在楼上做了什么，但并没有问出口。明日香坐在了他旁边的沙发上，比他预想的要近得多，考虑到之前他们之间的距离。
+
+"Asuka?" asked Shinji. “明日香？”真嗣问道。
+
+Asuka didn't immediately look at him, her gaze fixed in front of her. Slowly though, she turned to face him, and Shinji noticed that her moments seemed a little strange. Before he was able to say anything else though, Asuka darted across the couch, and pushed him down, wrapping her arms around him. This was certainly a change from earlier, and Shinji wasn't sure what to make of it, but that was when Asuka kissed him, and he understood what was happening.  
+明日香没有立即看向他，目光固定在前方。不过，她慢慢地转过头来，真嗣注意到她的动作有些奇怪。还没等他说些什么，明日香突然扑到沙发上，将他推倒，双臂环绕着他。这和之前的情况大相径庭，真嗣一时不知所措，但就在这时，明日香吻了他，他明白了正在发生的事情。
+
+'She's been drinking,' thought Shinji as he tasted the alcohol on her breath as her tongue entered his mouth. Shinji didn't respond to this desperate display of affection, only wondering how she could be drinking when it was hardly past noon at this point. Besides, how the hell could she be drunk when she never even came downstairs? Did she have a bottle stashed upstairs somewhere?  
+“她喝了酒。”真嗣想着，当她的舌头伸进他的嘴里时，他尝到了她呼吸中的酒精味。真嗣没有回应这种绝望的示爱，只是疑惑她怎么会在这种时候喝酒，毕竟现在才刚过中午。而且，她怎么可能醉了，她甚至都没下楼来？难道她在楼上藏了瓶酒？
+
+Shinji didn't get any chance to ask her though, as Asuka continued her feverish kissing of him. Shinji didn't think she was truly drunk, since she seemed conscious enough, unlike how she sometimes was, but this was still not something he wanted.  
+然而，真嗣没有机会问她，因为明日香继续狂热地吻着他。真嗣不认为她真的醉了，因为她看起来足够清醒，不像有时那样，但这仍然不是他想要的。
+
+Just as he was about to push her off him though, Asuka leaned back and looked down at Shinji. She was smiling, but her eyes seemed sad.  
+正当他准备推开她时，明日香却往后一仰，低头看着真嗣。她在微笑，但眼神中似乎带着悲伤。
+
+"How come you aren't doing anything?"  
+"你怎么什么都不做？"
+
+Shinji didn't reply, and he didn't think Asuka wanted the answer truthfully. It would only hurt her. But as Asuka leaned in to kiss him again, Shinji turned his head to the side, looking away from her. The smile dropped from Asuka's face after he did this.  
+真嗣没有回答，他也不认为明日香真的想知道真相。那只会伤害她。但当明日香再次倾身想要吻他时，真嗣却别过头去，避开了她的目光。他这么做后，明日香脸上的笑容消失了。
+
+"Shinji...kiss me." "真嗣...吻我。"
+
+"...No." "...不。"
+
+"...Please..." "...求你了..."
+
+Shinji returned his eyes to her, and spoke softly, "Asuka, could you get off me?"  
+真嗣将目光转回她身上，轻声说道：“明日香，你能从我身上下来吗？”
+
+"...I won't." "...我不会的。"
+
+"Asuka, I don't want this. Not now."  
+"明日香，我不想要这个。现在不行。"
+
+"...Why?" "...为什么？"
+
+It took all of Shinji's willpower to not angrily retort to her question, but he wasn't sure how to even react to her next question.  
+真嗣用尽所有意志力才忍住不对她的问题愤怒反驳，但他不确定该如何回应她的下一个问题。
+
+"It's because I've been drinking, isn't it?"  
+“是因为我喝了酒，对吧？”
+
+Shinji continued looking at her sad expression. He didn't know what he could do for her if she insisted on behaving like this. Slowly, he felt his heart begin to harden slightly.  
+真嗣继续注视着她悲伤的表情。如果她坚持这样表现，他不知道自己能为她做些什么。慢慢地，他感到自己的心开始变得有些坚硬。
+
+"...It's true, isn't it?" said Asuka her voice steadily growing in volume.  
+"...这是真的，对吧？" 明日香的声音逐渐提高。
+
+Eventually, Shinji only muttered one word.  
+最终，真嗣只低声说了一个词。
+
+"...Yes." "...是的。"
+
+At that, Asuka lost control of herself.  
+听到这话，明日香失控了。
+
+"Why the fuck do you think I've been doing this!?" she shouted. "Don't you understand how I feel, what I want!?"  
+“你他妈以为我为什么要这么做！？”她大声喊道，“你难道不明白我的感受，我想要什么吗！？”
+
+Shinji just let her words assault him. Whatever her reason, he wasn't going to accept it. But next, Asuka did something completely unexpected. Forcibly grabbing Shinji's hand, she placed it at the center of her chest, directly between her breasts. Shinji was taken aback by her action, and tried ignoring his hand brushing against her breasts. This was difficult, but somehow, Shinji managed to ignore the feeling.  
+真嗣任由她的话语冲击着自己。无论她的理由是什么，他都不打算接受。但接下来，明日香做了一件完全出乎意料的事。她强行抓住真嗣的手，放在自己胸部的正中央，直接夹在双峰之间。真嗣被她的举动吓了一跳，试图忽略自己的手触碰到她胸部的感觉。这很难，但不知怎的，真嗣还是设法忽视了那种感觉。
+
+"Don't you get it!?" she yelled at him. "Why won't you just do something!?"  
+"你还不明白吗！？" 她对他吼道。"你为什么就是不做点什么！？"
+
+"I'm not going to do anything to you while you're drunk Asuka," said Shinji, the anger in his voice growing. "Or have you considered how I feel?"  
+"我不会在你喝醉的时候对你做什么的，绫波，" 真嗣说道，他的声音中的怒气越来越盛。"或者你有没有考虑过我的感受？"
+
+Asuka blinked once. Her mind was hazy, and she had drunken far more alcohol than she probably should have, but what's done is done.  
+绫波眨了一下眼。她的思绪模糊不清，她喝的酒远远超过了她可能应该喝的量，但事已至此。
+
+"Asuka, how do you think I feel whenever you're drunk, and I have to carry you upstairs? How do you think I feel when you're so drunk you don't even register that we are kissing? Do you honestly think I'd be happing to have you while you're drunk? Or do you want both of us to be so drunk we can't remember anything, and that in our minds, nothing ever happened, because we can't fucking remember anything!? I will not touch you like this Asuka!"  
+“明日香，你以为每次你喝醉了，我都得把你扛上楼，我会是什么感觉？你以为当你醉到连我们在接吻都察觉不到时，我会是什么感觉？你真的以为我会愿意在你喝醉时碰你吗？还是你希望我们俩都醉到什么都不记得，然后在我们心里，什么都没发生过，因为我们他妈的什么都不记得了！？我不会这样碰你的，明日香！”
+
+Wrenching his arm free from her grasp, Shinji pushed her off him, and then stood up, leaving Asuka sprawled on the couch. Throwing open the sliding glass door, he opened it with such force that it bounced backwards. Asuka felt dizzy from the sudden shift in her position, but she quickly stood up. She instinctively knew she had done something she shouldn't have. She tried shouting for Shinji, but he was already walking across the yard and down towards the tree line behind their house. She was even halfway towards putting on her shoes, and running out towards him, but that was when she saw something rather unexpected erupting into the sky.  
+真嗣猛地挣脱她的手，将她推开，然后站起身来，留下明日香瘫倒在沙发上。他用力拉开滑动玻璃门，门反弹回来。明日香因突然的变动感到头晕，但她很快站了起来。她本能地知道自己做了不该做的事。她试图呼喊真嗣，但他已经穿过院子，走向房子后面的树丛。她甚至已经穿上一半鞋子，准备跑出去追他，但就在这时，她看到了天空中突然爆发的意外景象。
+
+A flash of orange streaked across the sky, signifying that Shinji had used his AT-field in anger, something which he hadn't done in a long time. Asuka stood frozen as she saw this, unable to move. She hadn't seen his AT-field in a long time, which just showed how angry Shinji was at the moment. But even though she was still frozen, and unable to move, she continued yelling after him.  
+一道橙色光芒划过天际，预示着真嗣愤怒地使用了 AT 力场，这是他许久未曾有过的举动。明日香呆立原地，动弹不得。她已经很久没有见过他的 AT 力场了，这足以说明真嗣此刻的愤怒程度。尽管她依旧僵硬，无法动弹，却仍对着他大喊大叫。
+
+"Shinji! Please! I'm sorry! I need you! I want you! I...I...I..."  
+“真嗣！求你了！对不起！我需要你！我想要你！我...我...我...”
+
+For all Asuka's shouting and pleading, she never got a response, even though her voice echoed around the house, and surely reached the tree line which Shinji disappeared into.  
+尽管明日香声嘶力竭地呼喊和恳求，却始终没有得到回应，尽管她的声音在屋内回荡，想必也传到了真嗣消失的那片树丛边缘。
+
+---
+
+Shinji hadn't felt this in a long time, and had assumed that it had passed. Back in Tokyo-2, he had been barely able to control it, but he had changed since then, at least he thought he had.  
+真嗣已经很久没有这种感觉了，他曾以为这种感觉已经过去。在东京-2 时，他几乎无法控制它，但自那以后他觉得自己已经改变了。
+
+Stamping through the path that led to the field behind their house, Shinji bitterly started striking objects out of the way within his field of view, using his AT-field. He had to calm down, but the more he thought about it, the more frustrated he got. He didn't care what Asuka's reasons were, or how many times she said she was sorry. He wouldn't cross that boundary, especially if she was drunk.  
+真嗣踏着通往家后田间小径，苦涩地开始用他的 AT 力场击打视线内的物体。他必须冷静下来，但越是这么想，他就越感到沮丧。他不在乎明日香的理由，也不在乎她说了多少次对不起。他不会越过那条界限，尤其是如果她喝醉了的话。
+
+He needed to calm himself, but using his AT-field was doing the opposite of this. Making a conscious decision to suppress that part of himself, something he hadn't needed to do in a long while, he paused in the middle of the path, and took a deep breath. Shutting out everything else, he focused on the sounds around him, tuning his mind to only focus on the nature around him. Slowly, he began to calm himself. Even so, he was in mood to return to the house.  
+他需要让自己冷静下来，但使用 AT 力场却适得其反。他下意识地决定压抑自己的这一部分，这是他很久没有必要做的事情了。他在小径中间停下，深吸一口气。屏蔽掉其他一切，他专注于周围的声音，让自己的思绪只集中在自然环境上。慢慢地，他开始平静下来。即便如此，他也没有心情回到屋里。
+
+With his anger calmed, he continued walking on the path ahead of him, until he broke through the tree line, and into the open field. The grass was kept low, thanks to his AT-field, and Shinji sprawled out on the grass, stretching himself out as he looked up at the sky.  
+怒气平息后，他继续沿着前方的道路前行，直到穿过树丛，步入开阔的田野。得益于他的 AT 力场，草地保持得很低矮，真嗣伸展四肢躺在草地上，仰望着天空。
+
+He wasn't wrong, this much he believed, but he still felt a slight pang in his heart when he thought about it. More than a full year had passed since he had first kissed Asuka, fully awakening his desires towards her. He loved her, and wanted to experience every pleasurable thing with her, but not while she was drunk. But was this just him acting afraid? Asuka wasn't simply hinting at it anymore, but was practically throwing herself at him, wanting him to embrace her fully. Was Shinji's will so weak that he couldn't just accept her, even if she was drunk? Was he naive in thinking that the first time should be special? How would somebody else react in this situation?  
+他并不认为自己错了，这一点他深信不疑，但每当想起这件事，心中仍会隐隐作痛。自从第一次亲吻明日香，完全唤醒了他对她的渴望以来，已经过去了一年多的时间。他爱她，想要与她体验所有愉悦的事物，但不是在她醉酒的时候。但这只是他在害怕吗？明日香不再只是暗示，而是几乎在向他投怀送抱，希望他能完全接纳她。真嗣的意志真的如此薄弱，以至于即使她喝醉了，他也无法接受她吗？他认为第一次应该是特别的，这是否太天真了？在这种情况下，别人会如何反应呢？
+
+Never before did Shinji realize how much life experience he lacked, and for the first time in his life, wished that he had an adult to communicate these thoughts to. Such a thing wasn't going to happen, so he only had his own thoughts, and feelings on the subject. Ultimately, it came down to what Shinji wanted, disregarding Asuka for the moment. Both of them had to be in mutual agreement on the subject, otherwise it was pointless. As he was currently though, he couldn't agree to it, and he didn't think this would change. Maybe he was being stubborn, or maybe he just didn't want to hurt Asuka by accident.  
+真嗣从未如此深刻地意识到自己生活经验的匮乏，生平第一次，他渴望有个成年人能倾诉这些思绪。然而这不过是奢望，他只能依靠自己的想法和感受来面对这个问题。归根结底，这取决于真嗣自己的意愿，暂且抛开明日香不谈。两人必须在这件事上达成共识，否则一切都是徒劳。就目前而言，他无法同意，也不认为这种情况会改变。或许他只是在固执己见，又或许他只是不想无意中伤害到明日香。
+
+Shinji continued laying there, his mind wavering from one subject to the next, though always returning to Asuka. Time passed slowly for him, but his mind continued working in the background. He didn't know how long he continued laying there, his eyes glazed over while he stared at the sky, but he started realizing that he was growing hungry. Lunch had already come and gone, and it had been several hours since breakfast. He still didn't want to go back up to the house, but he was starting to grow restless just staying here. Even though it probably wasn't something he should do right now, he did briefly think about practicing with his AT-field, even though he had hit a brick wall recently.  
+真嗣继续躺在那里，思绪从一个话题飘到另一个话题，但总是回到明日香身上。对他来说，时间过得很慢，但他的大脑仍在后台运转。他不知道自己躺了多久，双眼呆滞地凝视着天空，但他开始意识到自己饿了。午餐已经过去，距离早餐也已过了几个小时。他仍然不想回到屋里，但只是呆在这里让他开始感到不安。尽管现在可能不是他应该做的事情，但他确实短暂地考虑过练习 AT 力场，尽管他最近遇到了瓶颈。
+
+Whether this was the wrong, or correct decision, Shinji never got the chance to make it. He distinctly heard the snapping of a twig behind him, and his body spun around, thinking that a wild animal might have stumbled across him. To his surprise, he saw a figure walking towards him, their hair blowing in the wind as a breeze passed by them.  
+无论这是对还是错的决定，真嗣都没有机会做出选择。他清楚地听到身后树枝断裂的声音，身体迅速转身，以为可能是野生动物偶然发现了他。令他惊讶的是，他看到一个人影向他走来，他们的头发在微风中飘动。
+
+"...Asuka?" Shinji wondered, not expecting her here in the slightest, especially after everything that had happened. He honestly wasn't sure whether he could talk with her right now, as their argument came back to him, and he found himself frowning slightly.  
+"...明日香？" 真嗣疑惑地想，完全没想到会在这里见到她，尤其是在发生了那么多事情之后。他真的不确定现在是否能和她交谈，因为他们的争吵又浮现在脑海中，他发现自己微微皱起了眉头。
+
+Asuka didn't reply to him though, and continued walking towards him. She wasn't looking at him, her eyes staring across the field, while her hands were clasped behind her back. She was wearing vivid navy jeans, and sporting a white t-shirt with an emblem splash across the front.  
+然而，明日香并没有回答他，继续向他走来。她没有看他，目光凝视着远处的田野，双手交叉在背后。她穿着鲜艳的海军蓝牛仔裤，身上是一件白色 T 恤，胸前印着醒目的徽章图案。
+
+Asuka walked by him, without giving him a single glance, and stood several paces away from where Shinji was still sitting. Shinji stared at her back, wondering what she was doing. At least she didn't seem to have continued drinking.  
+明日香从他身边走过，一眼都没看他，站在离真嗣仍坐着的地方几步远的地方。真嗣盯着她的背影，想知道她在做什么。至少她看起来没有继续喝酒。
+
+"You know, sometimes I forget how much you care about me," said Asuka suddenly.  
+"你知道吗，有时候我会忘记你有多在乎我，" 明日香突然说道。
+
+Shinji didn't reply, but continued watching her. Asuka had something on her mind, which seemed clear by her demeanor. Shinji wasn't sure whether he wanted to listen to her right now however, no matter what she had to say.  
+真嗣没有回答，只是继续看着她。明日香心里似乎有事，从她的举止中可以明显看出。真嗣不确定自己现在是否想听她说话，不管她要说什么。
+
+"I don't blame you for earlier. I recognize that it was wrong how I acted in that situation, but at the same time, I felt like I had hit a brick wall, and couldn't overcome up."  
+"我不会怪你之前的反应。我承认自己在那种情况下的行为是错误的，但与此同时，我感觉自己像是撞上了一堵墙，无法逾越。"
+
+Shinji frowned at her, not understanding what she was talking about. He understood that alcohol was used in an attempt to overcome whatever road block she had run into, but even so, he couldn't agree with this. If she had just talked to him instead, then maybe things would have been different.  
+真嗣皱眉看着她，不明白她在说什么。他知道她试图用酒精来克服遇到的障碍，但即便如此，他也不能赞同这种做法。如果她当时选择和他谈谈，也许情况会有所不同。
+
+"Hey Shinji?" said Asuka as she turned her head to look at him. "Have you ever wanted something so desperately, that you would do anything to obtain it, even if it could possibly hurt yourself, or the person beside you?"  
+“嘿，真嗣？”明日香转过头来看着他，问道，“你有没有那么渴望过某样东西，以至于愿意不惜一切代价去得到它，哪怕这可能会伤害到你自己，或是你身边的人？”
+
+Shinji had never owned many worldly possessions due to his constant moving, so he had never cared for physical objects very much. But this of course didn't just refer to worldly objects either.  
+由于经常搬家，真嗣从未拥有过多少物质财富，所以他并不太在意物质的东西。当然，这不仅仅是指物质上的东西。
+
+"No, I don't think so. Besides, if it could hurt somebody I truly care about, then I don't think it would be worth it."  
+“不，我不这么认为。再说了，如果它会伤害到我真正在乎的人，那么我认为它就不值得。”
+
+"Maybe thats where we're different then," said Asuka with a sad smile, glad that Shinji had at least responded to her. "I don't know if it's because of my upbringing, or my own desperation, but I've never felt such a strong desire before. I only cared about myself, and in doing so made a mistake. I regret it, but even now, that desire is still strong, if not stronger."  
+“也许这就是我们的不同之处吧，”明日香带着悲伤的微笑说道，庆幸真嗣至少回应了她。“我不知道这是因为我成长的方式，还是我自己的绝望，但我从未有过如此强烈的渴望。我只关心自己，这样做犯了个错误。我后悔了，但即便现在，那种渴望依然强烈，甚至更甚。”
+
+Shinji realized that they were dancing around the larger question, even though both knew what it was. It was unspoken between them, but Asuka had nearly spoken the truth earlier when she had demanded him to kiss her. The thin line between them had shrunken so far that the thought was always on their mind, but this was the closest they had come to speaking freely about it.  
+真嗣意识到他们一直在回避那个更大的问题，尽管双方都心知肚明。这个问题在他们之间未曾明说，但明日香之前几乎说出了真相，当她要求他吻她时。他们之间的那条细线已经缩得如此之短，以至于这个念头始终萦绕在他们心头，但这是他们最接近自由谈论它的时刻。
+
+"I know I screwed up earlier, but that doesn't mean I wont continue chasing after what I want."  
+"我知道我之前搞砸了，但这并不意味着我会停止追逐我想要的东西。"
+
+"...Does that mean you'll continue drinking?" asked Shinji after a pause.  
+"...那意味着你会继续喝酒吗？" 真嗣停顿了一下问道。"
+
+"...I don't want to, and I don't enjoy it, but it also helped to ignore everything for a while."  
+"...我不想喝，也不喜欢，但它也确实帮助我暂时忽略了所有事情。"
+
+"Why would you need to do that though, that's what I don't understand?" asked Shinji suddenly, his voice slightly growing in volume. "Why wouldn't you just try talking to me about it? Back when I first starting realizing the changes I was going through, you were always there beside me, reassuring me that everything was fine, and that I was me. Asuka, if you hadn't helped me through those weeks, I think things would be vastly different right now. So why didn't you just try talking to-"  
+"可你为什么要这么做呢，我就是不明白这一点？" 真嗣突然问道，声音微微提高。"为什么不直接跟我谈谈呢？当我最初开始意识到自己正在经历的变化时，你总是在我身边，安慰我一切都会好，我还是我。明日香，如果没有你那几周的帮助，我想现在的情况会大不相同。所以你为什么不试着跟我谈谈呢？"
+
+"Don't you understand how difficult and embarrassing that is!?" shouted Asuka suddenly. "And why do I have to say anything. You're a guy, so show some backbone for once damn it!"  
+"你难道不明白那有多难堪吗！？" 明日香突然喊道。"而且我为什么要说什么。你是男生，就不能硬气一次吗，该死的！"
+
+Shinji flinched slightly at her words. It wasn't like he was deliberately not saying anything, but he felt that it was too soon to begin with, so he had ignored it for now, even if his body didn't want to agree to this. But Asuka had been battling with her mind for a while now, while Shinji was coasting along on the given path.  
+真嗣听到她的话微微一颤。他并非有意不说话，只是觉得时机未到，所以暂时忽略了，尽管他的身体并不愿意同意这一点。但明日香已经与自己的内心斗争了一段时间，而真嗣则一直沿着既定的道路前行。
+
+"Asuka...I...well-" "明日香...我...嗯-"
+
+"And don't tell me it hasn't crossed your mind. I'm not stupid."  
+"别告诉我你没想过。我又不是傻子。"
+
+Shinji bit back a certain retort that referred to Asuka's late night journey's downstairs, but that would do the opposite of improving the situation.  
+真嗣忍住了提到明日香深夜下楼的某些反驳，但那样只会让情况变得更糟。
+
+"So...what do you-" started Shinji slowly, before being cut off by Asuka.  
+"那么...你想说什么-" 真嗣缓缓开口，却被明日香打断了。
+
+"Like I said, I won't stopping chasing after what I want."  
+"就像我说的，我不会停止追求我想要的东西。"
+
+Asuka was dead set in her determination, something which Shinji still lacked. Scratching the back of his head, he nervously looked away from Asuka, trying to focus his mind elsewhere. Well, in the meantime though, Shinji felt that it might be best to continue this back at the house. He still wasn't sure, and neither had he said everything on the subject, especially with regards to Asuka's drinking.  
+明日香坚定不移，而真嗣仍缺乏这种决心。他挠了挠后脑勺，紧张地避开明日香的目光，试图将注意力转移到别处。尽管如此，真嗣觉得最好还是回家后再继续这个话题。他仍不确定，也没有把所有关于明日香喝酒的事情都说出来。
+
+"Asuka, do you mind if we go back to the house and continue this? I didn't eat lunch, so I've been feeling hungry this whole time."  
+“明日香，我们回屋继续好吗？我午饭没吃，一直觉得饿。”
+
+"...I don't," mumbled Asuka. She had said what she wanted more or less, so the only thing she could do now was wait for Shinji. She tried suppressing her desires, but she didn't think she could lie any further. She had pushed those thoughts away for so long, that she was ready to finally face them.  
+“……我不介意。”明日香咕哝着。她已经差不多说出了自己想要的，现在唯一能做的就是等待真嗣。她试图压抑自己的欲望，但她觉得无法再撒谎了。她已经把这些念头推开太久，现在终于准备好面对它们了。
+
+They walked back to the house slowly, Shinji walking in front, and Asuka behind him. Asuka had her eyes glued to his back, watching his every movement. Her imagination began to run wild and to her embarrassment, she felt her arousal growing. Her body starting tightening up as her mind continued created images, and her heart started beating wildly. Just by being this close to Shinji was making her feeling like this, and when he turned around to look at her, Asuka couldn't hide the blush that spread across her face.  
+他们慢慢走回家，真嗣走在前面，明日香跟在后面。明日香的眼睛紧盯着他的背影，观察着他的一举一动。她的想象力开始狂奔，让她尴尬的是，她感到自己的欲望在增长。她的身体开始紧绷，脑海中不断浮现出画面，心跳也加速起来。仅仅是因为靠近真嗣就让她有这样的感觉，当他转过身来看她时，明日香无法掩饰脸上蔓延的红晕。
+
+"You okay Asuka?" "你还好吗，明日香？"
+
+"Y-Yeah, I'm fine," said Asuka in what she hoped was a stable voice. She didn't know how much more she could take of this.  
+"嗯，我没事，" 明日香尽量用平稳的声音说道。她不知道自己还能承受多少这样的压力。
+
+Shinji gave her a strange look, but shrugged off her strange reaction. He was feeling slightly strange himself, and things probably would have been different if Asuka was in front of him.  
+真嗣给了她一个奇怪的眼神，但还是忽略了她的异常反应。他自己也感到有些奇怪，如果明日香在他面前，情况可能会有所不同。
+
+By the time they reached their house, Asuka was freely panting from her exhaustion. She had afterall walked all the way down to the field, and then walked back after a short time later. While Asuka collapsed on the couch, Shinji made himself something quick to eat. He asked whether she wanted anything, but she just waved her hand from where she was laying.  
+当他们到家时，明日香已经因为疲惫而大口喘气。毕竟她一路走到田野，又没过多久就走回来了。明日香瘫倒在沙发上，而真嗣则迅速给自己弄了点吃的。他问她是否需要什么，但她只是躺在那里挥了挥手。
+
+When he was finished cooking, Shinji sat in the chair beside the couch, to which Asuka was glad for. If Shinji sat beside her just now, she would have knocked his plate out of his hands and kissed him. She was still aroused, and this didn't seem to be changing anytime soon. It wasn't just her exhaustion that was making her sweat, but her desire to have Shinji kiss her, among other things. She was really reaching her limit.  
+真嗣煮完饭后，坐在沙发旁的椅子上，这让明日香感到欣慰。如果真嗣现在坐在她旁边，她可能会打翻他的盘子并吻他。她仍然感到兴奋，而且这种情况似乎不会很快改变。不仅仅是疲惫让她出汗，还有她对真嗣吻她以及其他事情的渴望。她真的快到极限了。
+
+Finishing his makeshift meal, Shinji dumped his plate in the sink, and let out a low sigh. He was still nervous about what to do with Asuka. It wasn't like he didn't want that, but he felt it was happening all too quickly. Maybe if things progressed a little more then...but he was aware of how much he wanted it, so maybe it wasn't such a bad thing afterall.  
+吃完临时准备的饭菜后，真嗣把盘子扔进水槽，低声叹了口气。他仍然对如何处理与明日香的关系感到紧张。并不是说他不想要那样，只是他觉得这一切发生得太快了。也许如果事情再发展一点...但他也意识到自己有多么渴望，所以也许这并不是什么坏事。
+
+Turning around to speak to her, Shinji came face to face with Asuka who had sneaked away from the couch and stood directly behind him. Her face was flushed red, and she was biting her lips slightly, but Shinji saw a glimmer in her eyes which he hadn't seen in a while.  
+转过身来与她说话，真嗣迎面碰上了从沙发上悄悄溜走并直接站在他身后的明日香。她的脸颊泛红，微微咬着嘴唇，但真嗣在她眼中看到了久违的光芒。
+
+"Sorry if I'm going about this the wrong way, but I really don't care anymore."  
+“如果我这样做不对，抱歉，但我真的不在乎了。”
+
+Without any further words, Asuka brought her face parallel with Shinji's, and pressed her lips against his. Though she said she didn't care anymore, Shinji could still feel the nervousness and tension within her kiss. It was something he hadn't felt from her in a while, and Shinji assumed it must be because she wasn't sure whether he'd respond in turn. It had been a long time since Shinji had felt Asuka's lips without the taste of alcohol on her breath, so he let himself fall into the familiar motions.  
+没有再多说什么，明日香将自己的脸贴近真嗣的，轻轻地吻上了他的唇。尽管她说自己不再在乎，真嗣仍能感受到她吻中的紧张与不安。这是他许久未从她那里感受到的，真嗣猜想这或许是因为她不确定他是否会回应。自从上次感受到明日香唇间的气息未带酒味已过去很久，于是他让自己沉浸在这熟悉的动作中。
+
+Cupping Asuka's face, he kissed her back slowly, letting his feelings for her transmit through the kiss. He had truly missed this, and whatever worries he was having earlier, were quickly melting away. This just felt somehow right to him. He felt himself smiling slightly while they kissed, and quickly tried to correct this, but Asuka didn't seem to mind, and even starting smiling herself. As Shinji noticed this though, he also saw that tears were silently leaking from her eyes. This shocked him immensely, and he couldn't help but pause and ask if she was alright.  
+他双手捧起明日香的脸颊，缓缓回吻她，让对她的情感通过这个吻传递。他真的非常想念这一刻，之前所有的忧虑都迅速消融。这感觉对他来说，不知为何如此正确。他在亲吻中不禁微微一笑，随即试图纠正，但明日香似乎并不介意，甚至也开始微笑。然而，当真嗣注意到这一点时，他也看到泪水正无声地从她的眼中滑落。这让他大为震惊，忍不住停下询问她是否还好。
+
+"Asuka, what's wrong?" “明日香，怎么了？”
+
+"Nothing...I'm just happy," she replied with a radiant smile, ignoring the tears of happiness which were uncontrollably streaming down her cheeks. Shinji stared at her within arms length, and then slowly drew closer to her, kissing her softly against her cheek, his lips brushing against the salty tears. Asuka continued silently crying, as her body began to feel warm and her heart elated.  
+“没什么……我只是很高兴，”她带着灿烂的笑容回答，无视那些无法控制、顺着脸颊流淌的幸福泪水。真嗣在咫尺之间凝视着她，然后慢慢靠近，轻吻她的脸颊，唇瓣轻触着咸涩的泪珠。明日香继续默默流泪，身体感到温暖，内心充满喜悦。
+
+Shinji pressed his lips against hers again, this time kissing her more deeply as his tongue found hers, and they became entwined with one another. Shinji quickly found his brain begin to shut off as they kissed, while his desires began to take over. Their bodies were now firmly pressed against each other as they stood in the middle of the kitchen. Shinji felt a reaction pressing against his pants, and didn't mind it in the slightest. Towards the woman he loved, this was normal, and more so when she wasn't drunk.  
+真嗣再次将唇贴上她的，这一次吻得更深，他的舌头找到了她的，彼此缠绵。随着亲吻，真嗣很快感到自己的理智开始关闭，欲望开始占据上风。他们的身体现在紧紧地贴在一起，站在厨房中央。真嗣感觉到裤子里的反应，对此毫不在意。对于他爱的女人，这是正常的，尤其是当她没有喝醉的时候。
+
+Shinji quickly had to suppress himself though, when Asuka began pressing her body more firmly against his. She obviously knew that he was aroused, and could feel his groin pressing against her, but she didn't shy away from this sensation. She had come to accept this, and even wanted it. Her warm body pressed against his, creating friction, and Shinji was quickly losing control of the thing between his legs. He had never felt like this until today, but he tried holding himself back.  
+然而，当明日香开始更紧地贴住他的身体时，真嗣迅速压制住自己。她显然知道他兴奋了，能感觉到他的下体紧贴着她，但她并没有因此退缩。她已经接受了这种感觉，甚至渴望它。她温暖的身躯紧贴着他，产生摩擦，真嗣很快失去了对双腿间那物的控制。他从未有过今天这样的感觉，但他试图克制自己。
+
+Asuka suddenly stopped however, and drew back from him. Shinji had complicated feelings with regards to this, but was unsure whether he wanted her to continue or not. Anymore would have been dangerous. Asuka still hadn't finished though, because she took his hand and whispered directly into his ear-  
+然而，明日香突然停了下来，从他身边退开。真嗣对此心情复杂，不确定是否希望她继续。再进一步可能会很危险。但明日香还没说完，因为她握住他的手，直接对着他的耳朵低语——
+
+"Lets continue this on the couch since it'll be more comfortable."  
+“我们到沙发上继续吧，那里会更舒服。”
+
+She breathed softly against his ear after she said this, and Shinji felt a pleasant shiver travel up his spine. He didn't even nod, but just placed his hand in Asuka's, letting her steer him towards the couch. Lying down, Asuka pulled Shinji on top of her, their faces inches apart from each other. Shinji pressed his lips against hers, and they continued kissing, but Shinji now wanted to repay Asuka for what she had done earlier.  
+她说完后，轻轻对着他的耳朵呼吸，真嗣感到一阵愉悦的颤栗沿着脊椎上升。他甚至没有点头，只是把手放在明日香的手中，任由她引导他走向沙发。躺下后，明日香将真嗣拉到自己身上，两人的脸相距仅几英寸。真嗣将嘴唇贴在她的唇上，他们继续亲吻，但真嗣现在想回报明日香之前所做的一切。
+
+He wished that she was wearing shorts as he did this, but he supposed there would be opportunity for that another time. Placing a hand on her leg, he slowly trailed his hand up, before circling around to her inner thigh. As he had started this, Asuka's interpretation of what he was going to do played out in her head, and her body shuddered pleasantly, the spot between her legs quickly growing moist. When Shinji's hand moved to her inner thigh, Asuka realized her erotic thought had been wrong, but Shinji did something instead which was pleasant for Asuka.  
+他希望她此刻能像他一样穿着短裤，但他猜想下次总会有机会的。他将手轻轻搭在她的腿上，缓缓向上游移，随后绕至她的大腿内侧。就在他开始这一动作时，明日香脑海中浮现出对他的意图的解读，她的身体不由自主地颤抖起来，愉悦感油然而生，双腿间迅速变得湿润。当真嗣的手移向她的大腿内侧时，明日香意识到自己的色情幻想错了，但真嗣接下来的举动却让她感到愉悦。
+
+He began rubbing her thigh slowly, still wishing that she wasn't wearing pants, but the effect seemed to make Asuka react. She moaned softly, her voice leaking out while they continued to kiss passionately. Next, Shinji slowly moved his hand up towards her hips, and then surprising Asuka, placed his hand against her butt, grasping her slightly. Asuka was so surprised, that for one moment, she even stopped kissing Shinji, but his hand didn't remain at her butt for long, and quickly snaked its way up her back, touching her smooth skin. Asuka's body started shivering uncontrollably as waves of pleasure assaulted her, the wetness between her legs becoming even more pronounced.  
+他开始缓缓地揉搓她的大腿，心中仍希望她没有穿裤子，但这一举动似乎让明日香有了反应。她轻轻地呻吟着，声音在两人继续热情拥吻时悄然泄出。接着，真嗣慢慢地将手移向她的臀部，然后出乎明日香意料地，将手放在她的臀部上，轻轻握住。明日香如此惊讶，以至于有那么一刻，她甚至停止了与真嗣的亲吻，但他的手并没有在她的臀部停留太久，很快便沿着她的背部向上游走，触碰到她光滑的肌肤。明日香的身体开始不由自主地颤抖，一波波快感袭来，她双腿间的湿润变得更加明显。
+
+This is what she had wanted, what she had always wanted in the far reaches of her heart. Finally, she felt the emptiness within her being filled. If things continued as they were, then eventually, Asuka would willingly give her entirety to Shinji.  
+这正是她所渴望的，她内心深处一直渴望的。终于，她感到内心的空虚被填满了。如果事情继续这样发展下去，那么最终，明日香会心甘情愿地将全部交给真嗣。
+
+Shinji still wasn't set on this course however. Separating his lips from hers, Shinji sat up, positioning himself beside Asuka so that he was no longer crushing her with his weight. Asuka wasn't pleased with his though, and gave a low sigh while she looked at him.  
+然而，真嗣仍未下定决心走上这条路。他将自己的嘴唇从她的唇上移开，坐起身来，调整自己的位置，不再用体重压着明日香。明日香对此并不满意，她看着他，发出了一声低沉的叹息。
+
+"Is something wrong?" she asked.  
+"有什么不对劲吗？" 她问道。
+
+"...Sorry, I'm just having difficulty coping right now."  
+"...抱歉，我现在只是有点难以应对。"
+
+'Why do you have to make things so complicated?' wondered Asuka. 'Isn't it enough to just accept it?'  
+“为什么你非要把事情弄得这么复杂？”明日香疑惑道，“简单接受不就好了吗？”
+
+Sitting up, Asuka leaned against him, her eyes locking onto his chest, and then turning down towards his waist. She didn't want to stop, but Shinji seemed distracted right now. She wanted to press her body against his bare chest like in the past, but even that wasn't enough. Though she was unsure about it right now, she was curious about the thing between his legs. She had felt it pressing against her many times before, even with the separation of their clothes, but this was the first time she gave it serious thought. In the past, these thoughts might have repulsed her, but now, they turned her on.  
+坐起身来，明日香靠向他，目光锁定在他的胸膛，随后向下移至腰间。她不想停下，但真嗣此刻似乎心不在焉。她渴望像过去那样将身体紧贴他赤裸的胸膛，但即便如此也不够。尽管此刻她对此感到不确定，但她对那两腿间的事物产生了好奇。她曾多次感受到它隔着衣物抵着自己，但这是她第一次认真思考。以往这些念头或许会让她反感，如今却让她兴奋不已。
+
+Like Asuka said in the past, she wasn't going to stop chasing after what she wanted. Pressing her warm body against Shinji again, she felt him shudder slightly as her breasts pressed into his side. He was focusing on something else at the moment, but she saw his eyes flicker over to her briefly. She wanted to know what he was thinking right now, even if his thoughts were erotic. Asuka gave him a seductive smile, but Shinji very pointedly looked away from her. Asuka's smile turned into a smirk, at least glad that she was getting a reaction from Shinji now. Looking down at his pants, she noticed that there was still a significant bulge there. She began staring it at, though quickly looked away when Shinji's eyes flickered back to her, her face briefly turning red.  
+正如明日香过去所说，她不会停止追逐自己想要的东西。她再次将温暖的身躯紧贴着真嗣，感觉到他微微颤抖，她的胸部紧贴在他的侧边。他此刻正专注于其他事情，但她瞥见他的目光短暂地扫过她。她想知道他现在在想什么，即使他的思绪是色情的。明日香给了他一个诱惑的微笑，但真嗣却故意移开了视线。明日香的微笑变成了得意的笑，至少她现在能从真嗣那里得到反应了。她低头看着他的裤子，注意到那里仍然有一个明显的隆起。她开始盯着它看，但当真嗣的目光再次扫过她时，她迅速移开了视线，脸上短暂地泛起了红晕。
+
+'Whatever,' thought Asuka. Standing up, she stretched, letting out a small yawn in the process. After walking down to the field in back, coupled with her lack of sleep, she was feeling tired.  
+“随便吧，”明日香心想。她站起身，伸了个懒腰，同时打了个小哈欠。从后院走到田野，再加上缺乏睡眠，她感到疲惫。
+
+"I think I'm going to sleep for a few hours. Wake me up around dinner if you will."  
+“我想我要睡几个小时。晚饭时叫醒我，如果你愿意的话。”
+
+"Right," said Shinji, his voice strained slightly.  
+“好，”真嗣说道，声音略显紧张。
+
+Shinji didn't look around the house again until after Asuka had gone upstairs, though in all honesty, he wished he could have gone upstairs before her. Simply put, he needed to change his underwear. He hadn't stopped kissing Asuka because he didn't want to continue, but because he was overly aware of his groin pressing against his pants, and the wetness that had quickly spread. Shinji wasn't sure whether he felt disgusted, or relieved in a certain sense.  
+直到明日香上楼后，真嗣才再次环顾屋内，尽管说实话，他真希望自己能比她先上楼。简而言之，他需要换条内裤。他停止亲吻明日香并非不想继续，而是因为他过于意识到自己的下体紧贴着裤子，以及迅速蔓延的湿润感。真嗣不确定自己是感到厌恶，还是在某种程度上感到释然。
+
+Letting out a heavy sigh, he tried to distract himself for a while, at least until dinner.  
+他重重地叹了口气，试图分散自己的注意力，至少到晚餐时间。
+
+---
+
+Shinji found cooking to be far more difficult to focus on than he initially thought. He had fine tuned his methods over the long course of his time working on a campfire, or makeshift stove, but with Asuka's face constantly in his mind, he found it nearly impossible to work.  
+真嗣发现烹饪比他最初想象的要难集中注意力得多。他在长时间使用篝火或临时炉灶的过程中已经精心调整了自己的方法，但由于明日香的面容不断浮现在脑海中，他发现自己几乎无法工作。
+
+After burning the canned food for the third time in a row, Shinji sank into the wicker chair, and buried his face in his hands. He couldn't get Asuka's face out of his mind, and more importantly, her body. He wanted to feel her smooth skin as his hands explored every inch of her body. He didn't want to deal with her clothes preventing him from doing this.  
+连续第三次烧焦罐头食品后，真嗣瘫坐在柳条椅上，双手掩面。他无法将明日香的面容从脑海中抹去，更重要的是，她的身体。他渴望感受她光滑的肌肤，双手探索她身体的每一寸。他不希望她的衣物妨碍他这样做。
+
+Shinji had been battling with his arousal constantly through the afternoon ever since Asuka had gone upstairs, and even considered relieving it himself, but had held himself back. The more he thought about her though, the more uncomfortable he became.  
+自从明日香上楼后，真嗣整个下午都在与自己的兴奋感作斗争，甚至考虑过自行解决，但最终还是克制住了。然而，他越是想她，就越感到不适。
+
+"Why does it smell like burning cardboard out here?" came a voice behind him.  
+“为什么这里闻起来像烧纸板？”他身后传来一个声音。
+
+Spinning around, Shinji saw that Asuka had opened the sliding glass door and stepped outside, though because of his distraction, he hadn't noticed.  
+真嗣转过身，看到明日香打开了滑动玻璃门走了出来，但由于他的分心，他并没有注意到。
+
+"Do you really need to ask that?" said Shinji with a grumble.  
+“你真的需要问这个吗？”真嗣咕哝着说。
+
+"Well, it's good to know you're human I suppose. This is my first time I've seen you actually mess up while cooking. What happened?"  
+"嗯，知道你也是人我就放心了。这是我第一次见你在做饭时出错。怎么了？"
+
+'I couldn't stop thinking of you, and ended up burning the food,' thought Shinji, obviously not capable of speaking these thoughts out loud.  
+'我满脑子都是你，结果把食物烧焦了，' 真嗣心想，显然他无法将这些想法大声说出来。
+
+"I was distracted," said Shinji simply.  
+"我走神了，" 真嗣简单地回答道。
+
+"Hmm?" wondered Asuka with a raised eyebrow, assuming far more from this simple statement then what Shinji had said.  
+"嗯？" 明日香挑起眉毛，对这个简单的陈述做出了远超真嗣所言的假设。
+
+"Well, guess I'll take over at least since you seem incapable right now."  
+"好吧，看来我至少得接手了，既然你现在似乎无能为力。"
+
+"I thought you were sleeping."  
+"我还以为你在睡觉呢。"
+
+"I was, until I got woken up by the smell of charcoaled food."  
+"我本来在睡，直到被烧焦食物的气味弄醒。"
+
+"...Sorry," mumbled Shinji.  
+"……抱歉，" 真嗣咕哝道。"
+
+"Don't worry about it," said Asuka with a smile. "Consider it my attempt at repaying you for putting up with me these past few months. I know I've been an idiot."  
+"别放在心上，" 明日香微笑着说，"就当是我这几个月来忍受我的补偿吧。我知道自己一直很蠢。"
+
+"Asu-"
+
+Asuka placed a finger against his lip, silencing him immediately.  
+明日香用手指轻触他的唇，立刻让他安静下来。
+
+"Not another word. Just sit there and let me deal with everything."  
+"别再说了。就坐在那儿，让我来处理一切。"
+
+Shinji closed his mouth and did just that, letting Asuka take over the task of preparing dinner. Quickly though, it became clear to Shinji that Asuka had an ulterior motive for cooking dinner. She was making far larger motions that pronounced her body, and seemed to always want her back at Shinji. With this, Shinji was able to see her butt, clearly defined by the tight jeans she was wearing. He was tempted to stand up multiple times and go wait in the living room, though Asuka would occasionally throw glances at him, and Shinji knew that if he tried to stand up, she'd make him sit back down.  
+真嗣闭上嘴，照做了，让明日香接手准备晚餐的任务。然而很快，真嗣就意识到明日香做饭另有目的。她的动作幅度很大，刻意凸显自己的身材，而且似乎总是有意无意地把背部朝向真嗣。这样一来，真嗣就能清楚地看到她紧身牛仔裤包裹下的臀部。他好几次都想站起来去客厅等着，但明日香时不时会瞥他一眼，真嗣知道如果他试图站起来，她肯定会让他坐回去。
+
+So, with the pressure in his pants redoubled, Shinji sat in the chair with his eyes glued to Asuka, who couldn't help but occasionally chuckle. She was having fun teasing Shinji in such a way, though she didn't mind cooking either.  
+于是，随着裤裆里的压力倍增，真嗣坐在椅子上，眼睛紧盯着明日香，而她忍不住偶尔轻笑出声。她很享受这样逗弄真嗣，不过做饭本身她也不介意。
+
+This continued all the way until Asuka was serving dinner, which they ate outside. The sun was just disappearing behind the horizon, and they had front row seats to this spectacle. Sitting beside each other, they silently ate the dinner the Asuka had finished. Shinji wasn't feeling as uncomfortable as he was earlier, but there was still the occasionally reaction as he glanced at Asuka. She was enjoying herself however, and didn't seem to be worried about much.  
+这一直持续到明日香准备晚餐，他们选择在户外用餐。太阳正缓缓沉入地平线，他们有幸坐在这壮观景象的第一排。并肩而坐，他们默默地吃着明日香准备好的晚餐。真嗣不再像之前那样感到不自在，但偶尔还是会有些不自然的反应，当他瞥向明日香时。然而，明日香似乎很享受，看起来并不担心什么。
+
+When they were finished, Shinji took up the task of cleaning everything, since he had made most of the mess while trying to prepare the food, and failing multiple times. While he was doing this, Asuka disappeared back upstairs. Shinji wasn't sure whether she had gone back to sleep, but even if she did, he found this rather odd. Either way, he tried focusing on cleaning the kitchen and grill in the meantime.  
+饭后，真嗣承担起清理的任务，毕竟大部分混乱都是他在尝试准备食物时造成的，失败了多次。在他做这些的时候，明日香又回到了楼上。真嗣不确定她是否回去睡觉了，但即便如此，他还是觉得这很奇怪。无论如何，他尽量专注于清理厨房和烤架。
+
+Placing the last of the dishes in the cupboard, he dried his hands off in front of the sink. He'd be lying if he said he wasn't curious about what Asuka was doing right now, so before anything else, he decided to go check on her.  
+将最后几个盘子放进橱柜后，他在水槽前擦干了手。如果他说自己对明日香现在在做什么不好奇，那他就是在撒谎，所以在做其他事情之前，他决定去看看她。
+
+Marching up the stairs, he then walked down the long hallway to the bedroom, and was surprised to find it closed. Shinji found this strange, but thought that Asuka may be changing. Knocking on it twice, he got a reply from her, and then entered the bedroom.  
+他走上楼梯，穿过长长的走廊来到卧室，惊讶地发现门是关着的。真嗣觉得这很奇怪，但想到明日香可能在换衣服。他敲了两下门，得到了她的回应，然后走进了卧室。
+
+Asuka was laying on the bed, though she was clearly in no mood to go to sleep. Her back was against the headboard, and her legs were drawn up in front of her. There was a book beside her, so Shinji assumed that she might have been reading, but there was something about her expression as he walked in that he couldn't figure out.  
+明日香躺在床上，显然没有睡意。她的背靠在床头板上，双腿蜷缩在身前。她旁边有一本书，所以真嗣猜她可能在看书，但当他走进来时，她脸上的表情让他有些不解。
+
+"God, about time you show up. What did you do, clean both the kitchen and living room?"  
+“天啊，你终于来了。你做了什么，打扫了厨房和客厅吗？”
+
+Shinji let that slide, and was about to open his mouth when Asuka swung her legs off the bed, and then jumped up the rest of the way, springing her body forward. She darted towards Shinji, wrapped her arms around him, drawing him into a strong hug.  
+真嗣没在意这些，正要开口时，明日香却把腿从床上挪开，然后一跃而起，身体向前弹射出去。她冲向真嗣，双臂环抱住他，给了他一个紧紧的拥抱。
+
+"Asuka?" asked Shinji, a bit surprised by this suddenness.  
+“明日香？”真嗣有些惊讶于这突如其来的举动。
+
+Asuka didn't reply, her face buried in Shinji's chest. She had been waiting for him this entire time, so she was trying to suppress her sudden desires temporarily. There were so many things she wanted to do right now, but she had to put those on hold for now.  
+明日香没有回答，她的脸埋在真嗣的胸前。她一直在等他，所以她试图暂时压抑自己突如其来的冲动。现在她有很多想做的事情，但她必须暂时搁置这些念头。
+
+Breaking apart, Asuka looked up at Shinji, wanting to kiss him. Instead, she asked him for a small favor.  
+分崩离析之际，明日香抬头望向真嗣，渴望吻他。然而，她却向他提出了一个小小的请求。
+
+"Hey Shinji, I want you to turn around for a second."  
+“嘿，真嗣，我要你转过身去一会儿。”
+
+"...Why?" asked Shinji rather skeptically.  
+“……为什么？”真嗣颇为怀疑地问道。
+
+"I won't say. Just turn around."  
+"我不会说的。转过身去吧。"
+
+Shinji frowned at her, and for one moment, Asuka thought she may have to forcefully turn him, when he moved his feet, and stared at the door behind him.  
+真嗣皱眉看着她，有那么一刻，明日香以为她可能得强行让他转身，但他挪动了脚步，凝视着身后的门。
+
+"Is this alright?" "这样可以吗？"
+
+"...Yeah," said Asuka. "...嗯，" 明日香说道。
+
+Shinji let out a low sigh, wondering what Asuka was doing behind him. Whatever it was, she was being careful, and he couldn't hear anything of importance. There was a very obvious possibility that arose in Shinji's mind, but he pushed that thought away. For Asuka to do something like that, he didn't feel it very plausible.  
+真嗣发出一声低沉的叹息，想知道明日香在他背后做什么。无论是什么，她都很小心，他听不到任何重要的声音。真嗣的脑海中浮现出一个非常明显的可能性，但他把那个念头推开了。明日香会做那样的事，他觉得不太可能。
+
+"Okay Shinji...you can turn around."  
+"好了，真嗣...你可以转过身来了。"
+
+Shinji did so, without much thought, and when he saw Asuka, immediately felt a reaction from his groin. Asuka was standing there, clad in nothing but her white underwear. This wasn't the first time Shinji had seen her in nothing but underwear, though Asuka was blushing furiously, and her hands were fidgeting in front of her, while her eyes were directed at the floor. Her cleavage was well defined, even though her bra expertly held her breasts in place. Her butt was heavily accented, and her underwear met the definition of cute, with lace at her hips, and a delicate pattern done along the hem. Shinji swallowed every perverted thought he suddenly had...but he wanted her then and there.  
+真嗣没有多想就照做了，当他看到明日香时，下体立刻有了反应。明日香站在那里，只穿着她的白色内衣。虽然这不是真嗣第一次看到她只穿内衣的样子，但明日香的脸红得像熟透的苹果，双手不安地摆弄着，眼睛盯着地板。尽管她的胸罩巧妙地托住了胸部，但她的乳沟依然清晰可见。她的臀部线条突出，内裤则是可爱风格，腰部有蕾丝装饰，边缘还有精致的图案。真嗣咽下了所有突然冒出的猥琐念头……但他当时就想要她。
+
+"...Hey...Shinji?" “……嘿……真嗣？”
+
+"...Yes?" “……嗯？”
+
+"...This isn't weird, is it?"  
+“……这不会很奇怪吧？”
+
+Shinji paused, and thought long and hard about this question before he answered her.  
+真嗣停顿了一下，对这个问题的答案深思熟虑了一番后才回答她。
+
+"No...it's natural. Afterall Asuka, I lo-"  
+“不……这是自然的。毕竟，明日香，我……”
+
+Whether Asuka had any sort of inkling towards what Shinji had been about to say, she didn't say, and likely hadn't heard him. At the words 'natural', Asuka was already halfway towards Shinji. Cutting him off, she pressed her lips firmly against his, her near naked body pressing against his.  
+明日香是否察觉到真嗣即将说出的话，她没有表露，也可能根本没听到。在听到‘自然’这个词时，明日香已经半途走向真嗣。她打断了他，坚定地吻上了他的唇，近乎赤裸的身体紧贴着他。
+
+Shinji felt all of his neurons fire at once, as nerve impulses traveled along his whole body, creating waves of pleasure that he had never felt before. He kissed Asuka hungrily, wrapping his arms around her, his hands clawing at her back. Asuka arched herself backwards, her hips grinding against Shinji's, feeling a reaction from his groin. She was quickly becoming lost in this, but she wanted to keep her mind clear if she could.  
+真嗣感到所有的神经元瞬间被激活，神经冲动沿着全身传播，产生了前所未有的愉悦浪潮。他饥渴地吻着明日香，双臂紧紧环绕着她，双手在她背上抓挠。明日香向后弓起身体，臀部摩擦着真嗣的，感受到他胯间的反应。她很快就在这感觉中迷失，但仍尽力保持头脑清醒。
+
+Their tongues reached one another, and soon they were entwined with one another as the exchange of saliva occurred. Asuka began heating up once again, and her body started tingling, her underwear quickly becoming moist. This wasn't enough though. She wanted more than just this. She wanted Shinji to explore her entire body. She wanted him to squeeze her butt, and brush his finger against her nipples.  
+他们的舌头相互触碰，很快便缠绵在一起，唾液的交换随之发生。明日香再次感到身体发热，开始颤抖，内裤迅速变得湿润。但这还不够。她想要的不仅仅是这些。她希望真嗣能探索她的全身。她希望他捏她的臀部，用手指轻触她的乳头。
+
+While Asuka's mind began to slow degrade into more erotic things, she didn't realize that Shinji had stopped kissing her. Slowly, it began to dawn on her, and she briefly thought bitterly that he had reached his limit, and was forcefully stopping himself. What did it take for him to take her damn it? Hadn't she done everything she could without actually telling him to just do it? Asuka didn't know it, but she was wrong in her assessment however.  
+当明日香的心思逐渐沉沦于越发色情的幻想中时，她并未察觉到真嗣已经停止了亲吻。慢慢地，她开始意识到这一点，并短暂地苦涩地想，他是否已经达到了极限，正强迫自己停下来。到底需要什么才能让他接受她呢？难道她所做的一切还不够，非要她直接告诉他去做吗？明日香并不知道，但她对情况的判断其实是错误的。
+
+Grabbing the edge of his shirt fluttering near his waist, Shinji pulled it up and over his head in one fluid motion, chucking it into a corner of the room. Asuka stared blankly back at him after he had done this, and then slowly placed a hand against his chest. Shinji shivered briefly at her touch, but Asuka then placed her other hand against his chest, and her hands started moving on their own. She explored his upper chest, as she had done multiple times before this. Her hands moved over his muscles, his nipples, his navel, and up to his broad shoulders, eventually wrapping her arms around his neck, and looking into his eyes. Without any hesitation, Asuka kissed him, wrapping her lips around his, inserting her tongue into her mouth.  
+真嗣抓住飘动在他腰间的衬衫边缘，一气呵成地将其从头顶脱下，随手扔到房间的一角。明日香在他做完这一切后茫然地看着他，然后缓缓地将一只手放在他的胸前。真嗣在她触碰的瞬间微微颤抖，但明日香随即用另一只手也贴上他的胸膛，双手开始不由自主地移动。她探索着他宽阔的胸膛，就像之前多次做过的那样。她的手滑过他的肌肉、乳头、肚脐，直至宽阔的肩膀，最终环抱住他的脖子，凝视着他的眼睛。毫不犹豫地，明日香吻了他，双唇紧贴，舌尖探入他的口中。
+
+Now that his shirt was off as well, the sensation of Asuka's breasts, concealed by nothing but a bra, pressing against his chest was almost too much for Shinji. Asuka wasn't large breasted by any means, but neither was she small. They were average, and while Asuka still had room to grow, it wasn't like they weren't large enough for Shinji. They would fit perfectly in his hand, giving him plenty to play with, but even with them pressed against his chest, he could tell how flexible they were. Just by glancing down at her chest, he could see the moderate gap between her breasts, and longed to plunge his hand down that mysterious gap.  
+现在他的衬衫也脱掉了，仅穿着胸罩的明日香胸部紧贴在他胸前的感觉，对真嗣来说几乎难以承受。明日香并不算大胸，但也绝非小巧。它们中等大小，尽管明日香仍有成长空间，但并不意味着它们对真嗣来说不够大。它们能完美地落入他的手中，让他有足够的把玩空间，即便紧贴着他的胸膛，他也能感受到它们的柔软弹性。只需瞥一眼她的胸部，他就能看到那适中的乳沟，渴望将手探入那神秘的缝隙。
+
+Asuka caught him looking, and give him a slight smirk, before drawing his eyes back to her face, kissing him, her lips sucking against his own. Her nails clawed at his back, creating scratch marks, making Shinji shiver. Asuka didn't care about the moisture between her legs, even though her underwear was slick now. She lost herself in her kiss with Shinji, as their hands ran along each others backs. Asuka's mind had shut off entirely.  
+明日香察觉到他在看，微微一笑，然后将他的目光引回她的脸庞，吻着他，她的唇紧贴着他的。她的指甲在他背上划出痕迹，让真嗣颤抖。明日香不在乎双腿间的湿润，尽管她的内裤已经湿透。她在与真嗣的亲吻中迷失了自己，他们的手在彼此的背上摸索。明日香的心思已经完全关闭了。
+
+Pressing her hips against his, she created friction against his groin, pleased that the expression on Shinji's face showed his discomfort and pleasure. She wasn't done though. Firmly securing her arms around his neck, Asuka took one quick glance at Shinji, before she jumped slightly, her legs wrapping around his hips, while her own hips pressed against his. Shinji had just enough time to register what she was about to do, and was able to support her with his arms around her waist, though his hands were incredibly close to her butt.. He wasn't sure how long he could maintain this position, even though Asuka was pretty light.  
+将臀部紧贴着他，她在他胯部制造摩擦，满意地看到真嗣脸上显露出不适与愉悦交织的表情。然而，她并未就此罢休。她坚定地将双臂环抱在他的脖颈上，阿斯卡迅速瞥了真嗣一眼，随即轻盈一跃，双腿环绕住他的腰际，同时自己的臀部紧压着他的。真嗣刚来得及意识到她即将的动作，便用双臂环住她的腰间予以支撑，尽管他的手离她的臀部仅咫尺之遥。他不确定自己能维持这个姿势多久，即便阿斯卡相当轻盈。
+
+They continued kissing, with their bodies entwined with one other, still standing beside the bed. Shinji's groin was painfully pressing against his pants, and he wasn't sure how much longer he could deal with this pain. Having Asuka's hips pressed against his own, along with the spot between her legs wasn't making it any easier. He was surprised to find that Asuka was wet herself, and he could feel the moisture from her underwear seeping into his own pants. Shinji hadn't realized Asuka was this aroused, though judging by the way she was kissing him, she wasn't worried about that. This only served to turn him on further though, and he had a sudden desire to touch that spot between her legs.  
+他们继续拥吻，身体紧紧相缠，依然站在床边。真嗣的胯部痛苦地紧贴着裤子，他不确定自己还能忍受这种疼痛多久。明日香的臀部紧贴着他的，以及她双腿间的那处地方，这一切都让情况变得更加艰难。他惊讶地发现明日香自己也湿了，他能感觉到她内裤的湿润渗透进他的裤子。真嗣没有意识到明日香如此兴奋，尽管从她吻他的方式来看，她似乎并不担心这一点。这反而让他更加兴奋，他突然有一种想要触碰她双腿间那处地方的冲动。
+
+Soon though, Shinji found that he couldn't keep clinging onto Asuka in such a way, and he turned towards the bed, laying her down on it, before collapsing beside her. He was panting heavily with his eyes closed. If it was now, he probably had enough time to change into something more comfortable like sweats or shorts since Asuka seemed to be fairly tired herself.  
+然而不久，真嗣发现自己无法继续这样紧抱着明日香，他转向床，将她放倒在床上，然后自己也瘫倒在旁边。他闭着眼睛，喘着粗气。如果现在是时候，他或许有时间换上更舒适的衣物，比如运动裤或短裤，因为明日香似乎也相当疲惫。
+
+This quickly changed though, and Asuka suddenly pressed her lips against his, before climbing on top of him, straddling his waist. She was practically sitting on his groin, and Shinji had to fight back the urge to push her off because it hurt so much. If he thought this was bad though, Asuka slowly began grinding against him, her hips moving backwards and forwards. She was grinning seductively, and Shinji knew she was thoroughly enjoying his discomfort. If this continued, Shinji knew he wouldn't be able to hold back any more, and would explode.  
+然而，这一情况很快发生了变化，明日香突然吻上了他的唇，随即跨坐在他身上，双腿夹住他的腰。她几乎坐在他的胯部，这让真嗣不得不强忍住推开她的冲动，因为实在太疼了。但如果说这已经很糟糕了，明日香开始慢慢在他身上磨蹭，臀部前后移动。她带着诱惑的笑容，真嗣知道她正充分享受着他的不适。如果这种情况继续下去，真嗣知道自己再也控制不住，即将爆发。
+
+Before this was allowed to happen, Shinji sat up, grabbing Asuka's shoulders and throwing her down on the bed. Asuka looked like she wasn't very happy about this, and was about to complain when Shinji stood up. Immediately, he unbuttoned his pants while facing away from her, and stripped them off himself. Pulling on a very loose pair of sweats, Asuka blushed immensely when he turned back to her. There was a significant bulge pressing against the fabric, not leaving anything to the imagination of what it was. But now that Shinji was done changing, and thoroughly more comfortable, he intended to repay Asuka for what she had done.  
+在这即将发生之前，真嗣坐起身来，抓住明日香的肩膀将她推倒在床上。明日香看起来对此颇为不满，正要抱怨时，真嗣站了起来。他立刻背对着她解开裤子，自己脱了下来。换上一条非常宽松的运动裤后，当他转回身面对明日香时，她脸红得厉害。布料下明显凸起的轮廓，让人无法忽视那是什么。但现在真嗣已经换好衣服，感觉舒服多了，他打算回报明日香刚才的所作所为。
+
+He slowly approached her, his eyes clinging to her well formed body, and Asuka felt her heart flutter at his gaze. She had sat up when he had gotten up, worried that he had reached his limit, but now she was slowly falling back to the bed as he approached her. Enveloping her entire body with his, Shinji brought his lips to hers, kissing her sweetly. Asuka enjoyed this kiss, but then she felt a strong shock coming near her waist. Shinji had placed a hand against her thigh, and was running a single finger against her skin, his finger nail creating faint lines against her smooth skin. Asuka started squirming, her body tingling, and small moans began leaking out of her mouth, all the while, the wetness between her legs continued flowing.  
+他缓缓向她靠近，目光紧锁在她匀称的身躯上，而明日香在他的注视下心跳加速。当他起身时，她便坐了起来，担心他已达到极限，但此刻随着他的接近，她又慢慢倒回床上。真嗣将全身覆盖在她之上，唇瓣轻柔地贴上她的，甜蜜地亲吻着。明日香享受着这个吻，但随即感到腰间传来一阵强烈的冲击。真嗣将手放在她的大腿上，用一根手指在她肌肤上轻轻划过，指甲在她光滑的皮肤上留下淡淡的痕迹。明日香开始扭动，身体阵阵酥麻，小声的呻吟从她口中逸出，与此同时，她双腿间的湿润感持续涌动。
+
+Shinji's finger slowly started moving its way upwards, passing over her underwear, and lingered at her stomach. Shinji watched her face squirm as he moved his finger in a circle along her belly, enjoying the different expressions she was making. For all the teasing that Asuka gave him, she was very weak against such means herself. As Asuka's opened her mouth to leak out her small voice filled with pleasure, Shinji silenced her, kissing her strongly, inserting his tongue into her mouth. Asuka wrapped her arms around him clinging to him, returning the kiss desperately.  
+真嗣的手指缓缓向上移动，掠过她的内裤，停留在她的腹部。真嗣注视着她的脸因他的手指在肚皮上画圈而扭曲，享受着她不断变化的表情。尽管明日香总是逗弄他，但她自己对这种手段却异常脆弱。当明日香张开嘴，发出充满愉悦的细小声音时，真嗣用一个强吻堵住了她的嘴，舌头探入她的口中。明日香双臂环抱住他，紧紧依附，急切地回应着这个吻。
+
+Breaking off the kiss, Shinji redirected his gaze to Asuka's belly, his finger now moving further up. Asuka saw this, shivering as he touched her. He was reaching her breasts slowly, but he was taking his leisurely time, something which Asuka had noticed. He really was teasing her as much as possible, and Asuka was reaching her limit of anticipation, when Shinji's hand reached her bra. Asuka didn't know what she expected, and she didn't think Shinji knew what he was doing either, but she just let things happen as they would.  
+结束这个吻后，真嗣将目光转向明日香的腹部，手指继续向上移动。明日香看到这一幕，因他的触碰而颤抖。他正慢慢接近她的胸部，但动作却异常悠闲，这一点明日香注意到了。他确实在尽可能地逗弄她，而明日香也即将达到期待的极限，这时真嗣的手触到了她的胸罩。明日香不知道自己期待什么，也不认为真嗣知道自己正在做什么，但她只是任由事情自然发展。
+
+Shinji stopped though, his eyes fixated on her breasts, but he wanted to be sure this is what Asuka wanted before he did anything else. Even though she had been teasing him immensely earlier, this went farther than that.  
+真嗣停了下来，他的目光紧盯着她的胸部，但他想确保这是否是明日香想要的，然后才采取进一步行动。尽管她之前一直在极大地挑逗他，但这已经超出了那个范畴。
+
+"Asuka, just to be absolutely sure, this is something you want?"  
+“明日香，只是为了完全确定，这是你想要的吗？”
+
+**(A/N: Following pages, (Yes pages) contains sexual acts, but no actual intercourse. Brief summary at end. As usual, look for next bold faced lettering)  
+（作者注：接下来的几页（是的，几页）包含性行为，但没有实际的性交。简要总结在最后。一如既往，寻找下一个粗体字标记）**
+
+Asuka would have grabbed Shinji's hand herself and placed it against her breast if she wanted to, but she'd rather him do it under his own power. Having Shinji do all these things himself was something that Asuka what. So, she simply nodded once to give her reply. Shinji looked at her for a few seconds longer, before he stared back at her breasts again, concealed by her bra, and then slowly placed his hand over her right breast, cupping it softly.  
+如果她愿意，明日香本可以自己抓住真嗣的手放在她的胸前，但她更希望他能凭借自己的力量去做。让真嗣自己完成这些事情，是明日香所期望的。所以，她只是简单地点了点头作为回应。真嗣又看了她几秒钟，然后再次盯着她被胸罩遮住的胸部，慢慢地将手放在她的右胸上，轻轻地捧着。
+
+Truthfully, Shinji had long gone passed the point of knowing what to do, and was just fumbling things along the way, though this didn't seem to matter much to Asuka. Her panting grew ragged as he began to slowly fondle her breast, and even though he was clumsy, it was endearing in a way that relaxed Asuka. She bit her lips, enjoying the feel of his hand against her soft breast, but there was still a problem; Shinji was only cupping it from outside the bra, and while this was pleasant, Asuka wanted to experience things further.  
+说实话，真嗣早已过了知道该做什么的阶段，只是在摸索中前进，但这似乎对明日香来说并不重要。随着他开始慢慢抚弄她的胸部，她的呼吸变得急促起来，尽管他笨手笨脚，但在某种程度上却让明日香感到放松。她咬着嘴唇，享受着他的手在她柔软的胸部上的感觉，但还有一个问题；真嗣只是隔着胸罩捧着她的胸部，虽然这很愉快，但明日香想要更进一步的体验。
+
+Wrapping her legs around him, she pulled him closer, kissing him briefly, and then arched her back, pressing her hips against his. Shinji ignored the sudden friction against his groin, continuing to focus on Asuka's breast. Slipping a hand inside her bra, he grasped her breast with his hand, and quickly became lost massaging Asuka's soft flesh. The texture was unbelievable, and Shinji couldn't help but wish he had done this sooner.  
+她用双腿环住他，将他拉近，短暂地吻了他一下，然后拱起背部，将臀部紧贴着他。真嗣忽略了胯部突如其来的摩擦，继续专注于明日香的双乳。他一只手滑入她的胸罩内，握住她的乳房，很快便沉醉于按摩明日香柔软的肌肤之中。那触感难以置信，真嗣不禁希望自己能早点这么做。
+
+Asuka was throughly enjoying this on a whole different level than Shinji. This was nothing like when she did it herself. Having somebody else's hands pressed against her breast, and rubbing against her erect nipple was far different than when she pleasured herself. Shinji's clumsiness was almost more arousing than if he knew what he was doing. Asuka held back her voice as much as possible, but everything below her waist was tingling wildly.  
+明日香在这件事上的享受程度与真嗣截然不同。这与她自己动手时完全不同。别人的手按在她的乳房上，摩擦着她挺立的乳头，远比她自慰时来得刺激。真嗣的笨拙几乎比他熟练时更令人兴奋。明日香尽可能地压抑自己的声音，但腰部以下的感觉却异常强烈。
+
+As Shinji continued fondling her, he started to become more daring. His hand was cupping her breast, and even though he couldn't see what he was doing, since his hand had slipped inside her bra, he was relying on his sense of touch instead of sight to pleasure her. His fingers rolled around her erect nipple, pinching her slowly. Shinji couldn't help but smile slightly as he glanced at Asuka's face, indescribable pleasure plastered across it. He was no longer content with just feeling her breast though, and suddenly flipped her bra up, and over both of her breasts revealing them to him.  
+随着真嗣继续抚摸她，他的胆子也越来越大。他的手托着她的乳房，尽管他看不见自己的动作，因为他的手已经滑进了她的胸罩里，但他依靠触觉而非视觉来取悦她。他的手指绕着她挺立的乳头转动，慢慢地捏着。真嗣忍不住微微一笑，瞥了一眼明日香的脸，她脸上洋溢着难以言喻的愉悦。不过，他不再满足于仅仅感受她的乳房，突然间将她的胸罩向上翻起，露出她的双乳。
+
+Shinji stared for a long while at her, ignoring the sudden stuttering from Asuka who seemed to have quickly grown embarrassed. It had been months since he had seen them in the hot springs, though he honestly wasn't sure how much he they had grown since then. The one thing he did notice immediately, was how erect her pink nipples were. It was one thing to feel them against his fingers, but actually seeing them, and knowing that she was aroused was entirely different. Shinji felt himself growing even harder as he stared at her breasts, and cupped both of them, slowly starting to massaging them.  
+真嗣盯着她看了许久，忽略了明日香突然的结巴，她似乎很快就感到害羞了。自从几个月前在温泉见过她的胸部后，他就不太确定它们是否有所增长。他立刻注意到的一件事是，她的粉红色乳头是多么挺立。用手指感受是一回事，但亲眼看到，并知道她被激起了欲望，则是完全不同的体验。真嗣感到自己变得更加坚硬，他盯着她的胸部，双手托起它们，开始慢慢地按摩。
+
+He carefully explored every inch of her soft flesh. There was no blemish on her smooth skin, no sign of imperfection, or lumps of any kind. They were well rounded, and soft, fitting almost perfectly in his hands. He marveled at them, unable to tear his eyes away from this sight. Shinji was so focused on her breasts, that he hardly noticed the expressions that were rapidly appearing on Asuka's face.  
+他小心翼翼地探索着她柔软肌肤的每一寸。她光滑的皮肤上没有瑕疵，没有任何不完美或肿块的迹象。它们圆润而柔软，几乎完美地贴合在他的手中。他惊叹于它们，无法将目光从这景象上移开。真嗣如此专注于她的胸部，以至于几乎没有注意到明日香脸上迅速出现的表情。
+
+This still wasn't enough for Shinji however. He had restrained himself for so long, and had nearly thought about Asuka's breasts every day since that winter day at the hot springs, so he was releasing all his pent up desires without realizing it. Leaning down to her chest, Shinji took one quick glance up at Asuka, but saw that she was in her own world, her hands covering her forehead as waves of ecstasy exuded off of her. Only imagining what sort of reaction he would get from her, Shinji drew incredibly close to Asuka's left breast so that his lips were mere inches away from it, and breathed softly on her nipple.  
+然而，这对真嗣来说仍然不够。他自我克制了太久，自从那个冬日在温泉的日子以来，几乎每天都在想着明日香的胸部，所以他不知不觉中释放了所有积压的欲望。他俯身向她的胸口，迅速瞥了一眼明日香，但看到她沉浸在自己的世界中，双手捂着额头，一波波的快感从她身上散发出来。只是想象着她会有什么样的反应，真嗣极其靠近明日香的左胸，以至于他的嘴唇离她的乳头只有几英寸，轻轻地向她的乳头吹气。
+
+Asuka's entire body jerked with such force, her hips crashing against Shinji's, as her legs wrapped themselves tighter around Shinji, pulling him closer to her. Shinji was propelled forward, his face firmly pressed against her breasts. Asuka let out a low shriek, the spot between her legs tingling pleasantly.  
+明日香全身猛地一震，臀部重重地撞在真嗣的身上，双腿更紧地缠绕着他，将他拉向自己。真嗣被推向前，脸紧紧贴在她的胸前。明日香发出一声低沉的尖叫，双腿间传来一阵愉悦的酥麻感。
+
+Shinji refocused his advances though, and with his face buried in Asuka's breasts, he started fondling them again, but quickly changed his method of attack. Turning to face her left breast, his hand continued focusing on her right, while he brushed his lips against the smooth skin of her left breast. He started kissing her softly, his kisses trailing up until he found Asuka's nipple. Her body was still squirming uncontrollably, and when he placed his lips around her pink nipple, he thought Asuka might snap his back in half with the amount of force she was mustering from her legs.  
+然而，真嗣重新调整了攻势，脸埋在明日香的胸前，再次开始爱抚她的乳房，但很快改变了策略。转向她的左乳，手继续专注于右乳，同时用嘴唇轻拂她左乳光滑的皮肤。他开始温柔地亲吻她，吻痕一路向上，直到找到明日香的乳头。她的身体仍在不由自主地扭动，当他将嘴唇环绕在她粉嫩的乳头上时，他觉得明日香可能会用双腿的力量将他的脊背折断。
+
+He started sucking on her nipple, his tongue rolling around it, covering every inch of the protrusion. He heard his own name start to be called by Asuka as the pleasure washed over her, but his mind was only focusing on her erect nipple. The inside of his mouth grew hot as his saliva continued to mix with her skin. Redoubling his focus on her right breast, his thumb rolled around her nipple, and pinched it between his thumb and forefinger. As he did this, he completed his last means of attack. Carefully, he placed Asuka's erect nipple between his teeth, and bit gently into it.  
+他开始吮吸她的乳头，舌头在其周围滚动，覆盖了凸起的每一寸。他听到自己的名字被明日香呼唤，随着快感席卷她，但他的心思只集中在她挺立的乳头上。他的口腔内部因唾液与她肌肤的混合而变得温热。他更加专注于她的右乳，拇指在她乳头上滚动，并用拇指和食指夹住它。当他这样做时，他完成了最后的攻击手段。小心翼翼地，他将明日香挺立的乳头置于齿间，轻轻咬了下去。
+
+Asuka's wholeheartedly screamed as he did this, her voice echoing around the room. She had been trying to keep her voice down throughout all this, but she couldn't contain herself any more. The stimulus of having both her nipples toyed with was so strong, that Asuka felt something suddenly release between her legs. She had reached her climax.  
+明日香全心全意地尖叫起来，声音在房间里回荡。她一直试图压低声音，但此刻再也控制不住自己。乳头同时被玩弄的刺激如此强烈，明日香感到双腿间突然释放了什么。她达到了高潮。
+
+Removing his lips from Asuka's nipple, Shinji glanced up at her face, beads of sweat streaming down her cheeks. Moving his face closer to her, he kissed her tenderly, their tongues immediately finding each other. Asuka was significantly tired however, and could only kiss him for several seconds before she broke it off, panting wildly. She never knew she could feel this existed, and was surprised at how focused Shinji had been. A special feeling that she had difficulty describing slowly began enveloping her.  
+从明日香的乳头上移开嘴唇，真嗣抬头看向她的脸，汗水顺着她的脸颊流淌。他将脸贴近她，温柔地吻了她，两人的舌头立刻交缠在一起。然而，明日香明显疲惫不堪，只能与他亲吻几秒钟便气喘吁吁地分开。她从未想过自己会有这样的感受，对真嗣的专注感到惊讶。一种难以言喻的特殊感觉缓缓包围了她。
+
+"Asuka...are you okay?" asked Shinji, speaking for the first time in several minutes.  
+“明日香……你还好吗？”真嗣问道，这是几分钟以来他第一次开口。
+
+"Yeah," she replied, still panting slightly. Her whole body was sweating, and she thoroughly needed to wipe herself off...but she wasn't done yet. Shinji had toyed with her enough, and had given pleasure which she had never felt before. There was still something she could do.  
+“嗯，”她回答，仍然微微喘息。她的全身都在出汗，急需擦拭干净……但她还没结束。真嗣已经让她体验到了前所未有的愉悦，还有一件事她可以做。
+
+While still panting wildly, Asuka grabbed Shinji shoulders, and then flipped him onto his back, crawling on top of him. Shinji had sorta assumed that they were done, since Asuka seemed exhausted, and he himself was feeling spent in a certain way, so he was surprised by this change.  
+尽管还在剧烈喘息，明日香抓住了真嗣的肩膀，然后将他翻了个身，爬到了他身上。真嗣本以为他们已经结束了，因为明日香看起来筋疲力尽，他自己也感到某种程度的疲惫，所以他对这一变化感到惊讶。
+
+"Asuka, what are you doing?" he asked slowly.  
+“明日香，你在做什么？”他缓缓问道。
+
+Grinning slightly, Asuka said, "Returning the favor."  
+明日香微微一笑，说道：“回报你。”
+
+With her half naked body pressed against him, and her face near his watching the confused expression on his face, she enjoyed watching the sudden change as her right hand began trailing down towards his waist. Realizing what she was doing, Shinji tried to utter his rejection at this, but Asuka silenced him with a kiss. She wouldn't let him snake his way out of this, not after what he did to her. She was returning the favor afterall.  
+她半裸的身体紧贴着他，脸庞靠近，观察着他脸上的困惑表情，她享受着这一刻的变化，当她的右手开始向他的腰间滑去。意识到她在做什么，真嗣试图表达他的拒绝，但明日香用一个吻让他闭嘴。她不会让他就这样溜走，尤其是在他对她做了那些事之后。毕竟，她只是在回报他。
+
+Her hand continued moving towards his waist, passing over his stomach, before pausing at his hips. Asuka felt a bit nervous about what she was doing, but she was also prepared. She continued kissing Shinji, effectively silencing any reply from him, but she thought that he might be beyond carrying at this point. Stealing herself for the finally push, she slowly moved her hand to his groin.  
+她的手继续向他的腰间移动，掠过他的腹部，然后在臀部停顿。明日香对自己正在做的事情感到有些紧张，但她已经做好了准备。她继续亲吻着真嗣，有效地阻止了他任何回应，但她认为他此刻可能已经无法自持。鼓起勇气，她慢慢地将手移向他的下体。
+
+She wasn't surprised to find that he was still erect, though she was surprised at how hot it was, even through the sweats and boxers he was wearing. Just as Shinji was, Asuka didn't know what she was doing, and starting fumbling through things, but Shinji didn't seem to mind this in the least. She slowly ran her finger along his bulge, going up one end, and briefly lingering on the tip, before trailing down the other side. Shinji shivered uncontrollably at this movement, and Asuka thought she noticed a stain starting to spread, seeping through his sweats.  
+她并不惊讶地发现他依旧坚挺，尽管她对他的热度感到意外，即便隔着他穿的休闲裤和内裤。就像真嗣一样，明日香也不知道自己在做什么，开始笨拙地摸索，但真嗣似乎一点也不介意。她缓缓地用手指沿着他的隆起滑动，从一端向上，短暂地停留在顶端，然后沿着另一侧滑下。真嗣因这一动作不由自主地颤抖，明日香觉得她注意到一处污渍开始扩散，渗过他的休闲裤。
+
+Grasping the whole thing in her hand, Asuka slowly started stroking it. She couldn't help but smile inwardly as she saw Shinji's eyes glaze over as she continued stimulating him. Soon, all of Shinji's thoughts were cut off, and he even forgot about kissing her, at which point Asuka stopped as well. He was beyond protesting at this point, so Asuka focused on what she had clasped between her hand.  
+明日香握住整个部位，开始慢慢抚弄。她忍不住在心里微笑，因为她看到真嗣的眼睛因她的刺激而变得迷离。很快，真嗣的所有思绪都被切断，他甚至忘记了亲吻她，这时明日香也停了下来。他此时已无力抗议，于是明日香专注于她手中握着的东西。
+
+Asuka didn't have anything to compare it to, but Asuka couldn't help but think Shinji slightly big. She wondered how different it would be to feel it without the clothes between it, but she wasn't sure she was ready for that quite yet. Shinji had only touched her breasts, and her she was stroking his manhood. She could feel it twitching in her hand, and wondered how close he was to his climax.  
+明日香没有比较的对象，但她不禁觉得真嗣有些过于大了。她好奇如果隔着衣服感受会是什么感觉，但她不确定自己是否已经准备好面对那一切。真嗣只摸过她的胸部，而她却在抚摸他的男性象征。她能感觉到它在手中跳动，不知道他离高潮还有多远。
+
+She began moving her hand faster, pleasuring Shinji. This should feel dirty to her, but it oddly didn't. She found herself slowly growing wet again, and tried ignoring that. She had already had her turn afterall.  
+她开始加快手上的动作，取悦真嗣。这本应让她感到肮脏，但奇怪的是并没有。她发现自己又慢慢湿润起来，试图忽视这一点。毕竟，她已经享受过自己的时刻了。
+
+She began alternating her motions, going faster and then slower, occasionally tracing her finger along his tip. Shinji began panting wildly, his body jerking slightly. Asuka smiled at him, and redoubled her efforts, going even faster. She couldn't help but feel that she should do more somehow, and suddenly decided to do to Shinji what he had done to her. Moving her face away from his, she drew close to his chest, and started kissing him there, all the while her hand working at his erection. Her lips traveling along his skin, kissing him everywhere, before finding his nipple. Her tongue lolled out, as she began to lick him, something which Shinji hadn't done himself. She was glad to see his expression had change again, and that he seemed to be slightly embarrassed.  
+她开始交替变换动作，时而加快时而放缓，偶尔用手指沿着他的顶端划过。真嗣开始急促地喘息，身体微微颤抖。明日香对他微笑，并加倍努力，动作更加迅速。她不禁觉得应该以某种方式做得更多，突然决定对真嗣做他曾对她做过的事。她将脸从他身上移开，靠近他的胸膛，开始在那里亲吻他，同时手继续在他勃起的部位上动作。她的唇沿着他的肌肤游走，亲吻每一个角落，最终找到了他的乳头。她的舌头伸出，开始舔舐，这是真嗣自己未曾尝试过的。她很高兴看到他的表情再次变化，似乎有些害羞。
+
+Asuka's hand began working faster. The friction of her hand rubbing against his erection, and the sweats and boxers rubbing against him was too much for Shinji, and his body suddenly starting jerking. It had been many days since he had masturbated, but having this done for him was completely different, especially when it was a half naked Asuka.  
+明日香的手开始更快地动作。她手上的摩擦与汗水和内裤对他的摩擦让真嗣难以承受，他的身体突然开始抽搐。他已经多日未曾自慰，但被人这样服务的感觉完全不同，尤其是当这个人是半裸的明日香时。
+
+Shinji reached his climax, as his body gave three sudden jerks as he thrust forward slightly. He was panting wildly, and now feeling extremely tired, even though Asuka had done all the work just now. Glancing over at Asuka, he saw that she was looking at her hand slightly however, and seemed to have a slight frown on her face. Her hand was significantly moist, and Shinji felt like he should apologize for that, but Asuka didn't seem to necessarily have a problem with it either.  
+真嗣达到了高潮，他的身体突然猛地抽搐了三次，同时微微向前一挺。他气喘吁吁，现在感到极度疲惫，尽管刚刚是明日香在主导一切。他瞥向明日香，发现她正略带忧虑地看着自己的手，眉头微皱。她的手明显湿润了，真嗣觉得应该为此道歉，但明日香似乎对此并不介意。
+
+**(A/N: Ends here. Basically, Shinji plays with Asuka's breasts, eventually bringing her to her climax, and then she gives him a handjob , bringing him to climax as well.)  
+（作者注：至此结束。基本上，真嗣玩弄明日香的胸部，最终让她达到高潮，然后她给他手淫，也让他达到高潮。）**
+
+Letting out a low sigh, Asuka glanced back at Shinji. She wasn't entirely sure what to say right now, but she did know she needed to clean herself off.  
+明日香轻轻叹了口气，回头看向真嗣。她不太确定现在该说什么，但她知道自己需要清理一下。
+
+Swinging her legs out of the bed, she didn't bother putting on her bra, but went into the bathroom. Shinji waited for his turn, and when she came back, Asuka was in a new pair of underwear, but she hadn't bothered to put on a bra. Shinji didn't even have enough energy to feel anything from this, even though he still thought her beautiful.  
+她从床上晃着腿下来，懒得穿胸衣，径直走进了浴室。真嗣等着轮到自己，当她回来时，明日香已经换上了一套新的内衣，但依旧没费心穿胸衣。真嗣连感到什么的力气都没有了，尽管他仍然觉得她很美。
+
+Entering the bathroom himself, he changed out of his soiled boxers and sweats, and thoroughly cleaned off his privates, before dawning a new pair of boxers. Wiping the sweat off his body, he wished that he could take a shower. Well, tomorrow they'd probably have to go to the hot spring to properly clean themselves. He had a nagging suspicion that if they started doing this everyday, they'd be spending a lot more time there.  
+他走进浴室，换掉了脏兮兮的内裤和运动裤，仔细清洗了私处，然后穿上了一条新内裤。擦去身上的汗水，他真希望能洗个澡。嗯，明天他们可能得去温泉好好洗洗。他有种不祥的预感，如果他们每天都这样，恐怕会在那里花上更多时间。
+
+Reentering the bedroom, he saw Asuka sitting upright on the bed. She still hadn't bothered to put a bra on, and for a second, Shinji's eyes became transfixed on her breasts once again, before he tore his eyes away to look at her face. Asuka was patting the spot next to her, signifying that she wanted them to sit beside each other for a minute. Shinji did so, climbing on the bed to sit beside her, his legs crossed in front of him.  
+回到卧室，他看到明日香笔直地坐在床上。她还是没费心穿胸衣，有那么一瞬间，真嗣的目光再次被她的胸部吸引，但他很快移开视线，看向她的脸。明日香拍了拍她旁边的位置，示意他想让他们坐在一起一会儿。真嗣照做了，爬上床坐在她旁边，双腿交叉在前。
+
+"So...um-," started Shinji.  
+"所以...呃-," 真嗣开口道。
+
+"Shinji...I'm happy," said Asuka, cutting him off before he could make a stupid comment. "I haven't felt like this in a while. Truthfully, thank you. I feel like a idiot for trying to seduce you while drunk now. I should have known better."  
+"真嗣...我很开心，" 明日香打断了他，不让他说出什么蠢话。"我已经很久没有这种感觉了。说实话，谢谢你。我现在觉得自己喝醉了还想勾引你真是傻。我早该知道不该这样的。
+
+"...Well, I was holding back myself anyway," said Shinji as she scratched the back of his head. "And like you said, I shouldn't have just left everything to you. On another note...do you plan on sleeping like that?" he asked, gesturing towards her near nakedness.  
+"...嗯，反正我也在克制自己，" 真嗣说着挠了挠后脑勺。"就像你说的，我不该把一切都推给你。另外...你打算就这样睡吗？" 他问道，指了指她近乎赤裸的样子。
+
+Glancing down at her own bare chest, Asuka smirked slightly before asking, "Why? Does it before you?"  
+瞥了一眼自己赤裸的胸膛，明日香微微一笑，然后问道：“为什么？难道它让你困扰吗？”
+
+'Yes and no,' thought Shinji. 'No for obvious reasons, and yes because I think I'll be hard all night.'  
+“是也不是，”真嗣心想，“不是因为显而易见的原因，而是因为我感觉今晚可能会一直硬着。”
+
+In the end, Shinji just shrugged, and kissed Asuka briefly, before crawling back to the pillows, and laying down on his. Asuka did so as well, tucking herself under the blankets, before rolling over to Shinji's side. Thankfully, she didn't press her breasts against his bare chest, and had her back to him instead, so at least she was considerate for his wellbeing in some manner.  
+最终，真嗣只是耸了耸肩，轻轻吻了明日香一下，然后爬回枕头边，躺在了自己的枕头上。明日香也跟着躺下，钻进被子，然后转身面向真嗣的一侧。幸运的是，她没有将自己的胸部压在他赤裸的胸膛上，而是背对着他，至少在某种程度上考虑到了他的感受。
+
+Slowly though, Shinji wrapped his arms around her middle, and pressed his face against her silky hair, inhaling her sent deeply. He hadn't told her yet, that he loved her, but there was still plenty of time left for that.  
+然而渐渐地，真嗣用双臂环抱住她的腰间，将脸颊贴在她柔滑的秀发上，深深地吸了一口她的香气。他还没有告诉她，他爱她，但还有足够的时间去说。
+
+Sighing deeply into her hair, Shinji, and Asuka as well, fell asleep together, wrapped in each others warmth.  
+在她的发间深深叹息，真嗣和明日香一起，在彼此的温暖中沉沉睡去。
+
+---
+
+**So first off, this chapter is more than 13k words, and the longest chapter in Two of Us so far. Considering I ended up cutting some stuff out of the previous chapter, I ended up going all out with this chapter, which is why there are about six pages of paragraphs straight, dedicated to Shinji and Asuka fooling around. With that said, there was one large piece that I omitted since this was getting too long, plus I still gotta save a couple things for the next two chapters.  
+首先，这一章超过 13,000 字，是迄今为止《我们俩》中最长的一章。考虑到我删减了前一章的一些内容，这次我全力以赴，因此有大约六页的段落专门描述真嗣和明日香嬉戏打闹。尽管如此，我还是省略了一大段，因为篇幅已经太长，而且我还得为接下来的两章留些料。**
+
+**Onto the sudden update. For anybody that works, I'm sure you'll have the feeling of days just blending together. Same thing happened to me, and about four days ago I think it was, I realized that Valentines was less than 2 weeks away or so. And with that, I plan on releasing the next two chapters of the rest of the first half on Valentines Day. Gonna by a long two weeks, but this chapter was finished in less than a week, so no problems hopefully.  
+关于这次突然的更新。对于任何工作的人来说，我确信你们会有那种日子混在一起的感觉。同样的事情发生在我身上，大约四天前，我意识到情人节不到两周了。因此，我计划在情人节当天发布接下来的两章，即第一部分的后半部分。接下来的两周可能会很长，但这一章不到一周就完成了，所以希望没有问题。**
+
+**Lastly, and I'm a bit unsure about it, but the A/N warnings for anybody that skipped them, were they in a suitable place? It felt odd trying to determine where the proper cutoff point was for content which may be too explicit for some readers, but I think I got it at a suitable spot. If not, feel free to let me know, and I'll adjust the warning.  
+最后，我对此有点不确定，但那些跳过 A/N 警告的人，它们的位置合适吗？试图确定对某些读者来说可能过于露骨的内容的适当截止点感觉很奇怪，但我认为我找到了一个合适的位置。如果没有，请随时告诉我，我会调整警告。**
+
+**Other than that, look forward to the double update in around two weeks.  
+除此之外，期待大约两周后的双更。**
