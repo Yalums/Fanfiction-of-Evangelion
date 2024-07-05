@@ -8781,7 +8781,7 @@ Feel like I'm on a role lately. Got a lot in this chapter so just enjoy it I gue
 
 感觉最近状态不错。chapter里收获颇丰，尽情享受吧，我想。
 
-
+---
 
 It was around noon that same day, when Asuka had gotten tired of reading that she decided to wake Shinji who was still sleeping on the hill overlooking the park. The sun was shining brightly in the sky right now, and Asuka was getting sick of sitting around. Walking over to Shinji, who's eyes were still closed, she stared down at him for several seconds, before she rolled him over using her foot. Almost immediately he sat upright.
 
@@ -9856,11 +9856,13 @@ And a bit of a cliffhanger at the end here. I wasn't sure if I was gonna include
 
 ---
 
-### Chapter 11: Revival  Chapter 11: 复苏
+### Chapter 11: Revival
 
 Took me longer than I had initially intended to get this chapter finished. I've been working on something else that isn't Evangelion related, or even fanfiction related for that matter, so thats been taking up most of my writing time. Getting excited for the upcoming winter season though, so expect more chapter in the coming months.
 
 完成这篇 chapter 比我最初计划的耗时更长。我一直在忙于其他非《新世纪福音战士》相关，甚至非同人小说相关的事情，这占用了我大部分的写作时间。不过，我对即将到来的冬季季感到兴奋，所以预计未来几个月会有更多 chapter。
+
+---
 
 How long had it been? How many minutes...hours had gone by?
 
@@ -11055,11 +11057,13 @@ Though it was still early, Shinji fell asleep shortly after this conversation, l
 
 ---
 
-### Chapter 12: Warmth  Chapter 12: 温暖
+### Chapter 12: Warmth  Chapter
 
 Surprise Update! I've no idea why, but after finishing that last chapter, I just really wanted to keep writing, so this one took me about four days to finish I think. Plus, I was reading some other things recently, so that probably got me in the mood to write a chapter like this. But I'll talk more after this.
 
 惊喜更新！我不知道为什么，但在完成上一篇 chapter 后，我真的很想继续写，所以这篇大概花了四天时间完成。另外，最近我也在读其他东西，这可能让我有了写一篇 chapter 的心情。不过，我会在后面多说一些。
+
+---
 
 Shinji slept rather fitfully that night. He awoke many times owing to the pain racking his body, and once or twice had to prevent himself from screaming. During these times he suddenly awoke though, he always turned on his side and saw Asuka sleep near him. She was so close in fact, that if Shinji wanted, he could reach and and caress her hair. Seeing Asuka in such close proximity to him, he was glad that she was near, since the thought comforted him slightly. He supposed that incase anything serious were to happen to him, Asuka would be there in a heartbeat to help him. It was really amazing how far they had come in terms of their relationship.
 
@@ -12266,11 +12270,13 @@ As a side note, there is going to be a brief time skip at the start of the next 
 
 ---
 
-### Chapter 13: Prelude  Chapter 13: 前奏
+### Chapter 13: Prelude
 
 Another chapter here, but I'll talk more about things to come at the end of this.
 
 这里是另一个 chapter，不过我会在结尾处多谈谈即将到来的事情。
+
+---
 
 It had been two weeks since Shinji and Asuka had vacated to their new home. Or was it proper to call it their new home? Either way, two weeks had passed since they had started living there. The rain continued pouring down from the heavens at an unbelievable pace, only letting up on occasion. Two days after they had begun living there, Shinji's leg had fully healed, much to the relief of Asuka. Other than that, nothing eventful had happened, not since their first night together at least.
 
@@ -13513,11 +13519,13 @@ On a completely unrelated side note, White Album 2 is simply amazing. Ah that la
 
 ---
 
-### Chapter 14: Self  Chapter 14: 自我
+### Chapter 14: Self
 
 Alright, heres the first chapter in this month of updates for the holiday season. I'll talk at the end of this.
 
 好了，这是本月更新中的第一个 chapter，为假期季准备。我会在最后说几句。
+
+---
 
 Very rarely did Shinji ever dream, and even if he did, he never remembered them. This one, was different however. Dreams never made any sense, and typically started in the middle without the dreamer having any knowledge as to how they had gotten there. Some people were able to control their dreams, but this wasn't what Shinji experienced. His dream could have very easily been reality, simply because of how real everything seemed.
 
@@ -14480,7 +14488,7 @@ Until then! 在那之前！
 
 ---
 
-### Chapter 15: Distance  Chapter 15: 距离
+### Chapter 15: Distance
 
 As promised, here's the second chapter in this month of updates. Just this passed week, I felt like going back and watching some Evangelion, since it's been a while, and I sometimes forget how completely f-ed up that show is. Fantastic story and character relationships, but still heavily screwed up. Alright, just thought I'd say that. Till next week then!
 
