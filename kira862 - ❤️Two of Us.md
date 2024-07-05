@@ -27886,4 +27886,13 @@ From where she existed, Lilith peered down through the clouds of Kyoto and into 
 
 ---
 
-### 
+### Chapter 30: Rebirth
+
+**Here we go! Sit down, strap in, and prepare for a long chapter!  
+开始了！坐稳，系好安全带，准备迎接长篇大章！**
+
+---
+
+She woke up. Had she been dreaming? She felt like she had been, and that it had been wonderful, but she couldn't recall what it had been about. Then, was she still dreaming now? If so, then this was incredibly real. The sand squishing between her toes and hands as she lay there, the salty smell of the ocean breeze tickling her nose. Was this truly a dream?  
+她醒了。她是否做了梦？她感觉自己做了梦，而且是个美梦，但她记不清梦的内容了。那么，她现在还在梦中吗？如果是的话，那这梦也太真实了。沙子在她脚趾和手掌间挤压的感觉，海风中咸咸的气息轻拂着她的鼻子。这真的是梦吗？
+
