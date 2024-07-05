@@ -25,13 +25,14 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Panther2G - A Crown of Stars.md",
+                "file": "Panther2G - Advice and Trust Backstage.md",
                 "mode": "source",
                 "source": false
               }
             }
           }
-        ]
+        ],
+        "currentTab": 1
       },
       {
         "id": "bd09807c54bdee3e",
@@ -115,7 +116,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "kira862 - Spawn of Adam.md",
+                "file": "Panther2G - Advice and Trust Backstage.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -132,7 +133,7 @@
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "kira862 - Spawn of Adam.md",
+                "file": "Panther2G - Advice and Trust Backstage.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               }
@@ -155,7 +156,7 @@
             "state": {
               "type": "outline",
               "state": {
-                "file": "kira862 - Spawn of Adam.md"
+                "file": "Panther2G - Advice and Trust Backstage.md"
               }
             }
           }
@@ -176,9 +177,10 @@
       "workspaces:管理工作区布局": false
     }
   },
-  "active": "d3b8f650bf594b32",
+  "active": "0a2fceb2f86f7046",
   "lastOpenFiles": [
     "Panther2G - A Crown of Stars.md",
+    "kira862 - Spawn of Adam.md",
     "jcmoorehead - Braver Than We Are.md",
     "Panther2G - Advice and Trust Backstage.md",
     "Panther2G - Birthday Candles.md",
@@ -187,7 +189,6 @@
     "Panther2G - In Vino Cogitatio Bona.md",
     "Panther2G - Time Cannot Erase.md",
     "未命名.md",
-    "kira862 - Spawn of Adam.md",
     "FutaSenpai69 - Let The Rain Fall.md",
     "Bardic Jester - ❤️This Way.md",
     "TailoftheDevil - Angel.md",
