@@ -8,24 +8,42 @@
         "type": "tabs",
         "children": [
           {
-            "id": "854625221470a1b3",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "TailoftheDevil - Angel.md",
-                "mode": "source",
-                "source": false
-              }
-            }
-          },
-          {
             "id": "d3b8f650bf594b32",
             "type": "leaf",
             "state": {
               "type": "markdown",
               "state": {
                 "file": "kira862 - Spawn of Adam.md",
+                "mode": "source",
+                "source": false
+              }
+            },
+            "group": "2df79d2f8e641bf4"
+          }
+        ]
+      },
+      {
+        "id": "456eae36962270f1",
+        "type": "tabs",
+        "children": [
+          {
+            "id": "20a7bdfbc2cb3cf3",
+            "type": "leaf",
+            "state": {
+              "type": "outline",
+              "state": {
+                "file": "kira862 - Spawn of Adam.md"
+              }
+            },
+            "group": "2df79d2f8e641bf4"
+          },
+          {
+            "id": "854625221470a1b3",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "TailoftheDevil - Angel.md",
                 "mode": "source",
                 "source": false
               }
@@ -82,7 +100,8 @@
       }
     ],
     "direction": "horizontal",
-    "width": 300
+    "width": 300,
+    "collapsed": true
   },
   "right": {
     "id": "782b2139fefb92cb",

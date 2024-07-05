@@ -174,3 +174,91 @@ _You can find everything on the Facebook links posted there.
 _Have an awesome day! 祝你拥有美好的一天！_
 
 ---
+### Chapter 2: Gods of Creation  
+第二章：创世之神  
+
+"Honey, I'm serious!" “亲爱的，我是认真的！”
+
+"Gendo, I think you're finally starting to crack..."  
+“源堂，我觉得你终于开始崩溃了……”
+
+"Yui, I'm not losing it. I have a daughter, her name is Hitagi Senjougahara!"  
+"结衣，我没有疯。我有个女儿，她叫战场原黑仪！"
+
+"No dear, you have a son. His name is Shinji Ikari. Unless you've been hiding something from me for all these years. But thankfully I have the past experience to know that you're dreams go out of control at the touch of a hat."  
+"不，亲爱的，你有个儿子。他叫碇真嗣。除非这些年你一直对我有所隐瞒。但幸好我有过去的经验，知道你的梦境一触即发就会失控。"
+
+"...and she has a boyfriend called Koyomi Araragi, who saved her from her disease of weightlessness caught from the crabs."  
+"……而且她有个男朋友叫阿良良木历，他救她摆脱了从螃蟹那里感染的失重病。"
+
+"For the love of god..."  
+"看在上帝的份上..."
+
+The two scientists sat over the diagram readouts, mumbling to each other over cups of strong coffee. Both looked completely exhausted, and Gendo's eyes danced around the room, his lack of sleep for over seventy-two hours beginning to spark insanity in his mind, whilst his wife looked on disgruntled. She was used to her husband being a little crazy sometimes, but the lack of sleep to her was testing her patience. Plus, the potential miracle of an experiment they were waiting to test was driving her mad. Having to wait to see the unbelievable that you knew was coming was testing her normally gentle and patient personality.  
+两位科学家坐在图表读数前，一边喝着浓咖啡一边喃喃自语。两人看起来都筋疲力尽，碇源堂的眼睛在房间里四处游移，连续七十多小时未眠开始在他的脑海中点燃疯狂的火花，而他的妻子则不满地看着他。她已经习惯了丈夫偶尔的疯狂，但缺乏睡眠对她来说正在考验她的耐心。此外，他们等待测试的实验潜在的奇迹也在逼疯她。不得不等待见证你明知即将到来的不可思议之事，正在考验她原本温柔耐心的性格。
+
+"...and she had beautiful, long purple hair."  
+"...而她有着美丽的长长的紫色头发。"
+
+"Gendo! We've got only a few hours before we have to let the kids know the experiments that will change their lives forever. And we sure as hell can't trust Kyoko to do it! Get your head out of your ass and focus!"  
+"源堂！我们只剩下几个小时就要告诉孩子们那些将永远改变他们生活的实验了。而且我们绝对不能指望绫波零来做这件事！别再逃避现实，集中精神！"
+
+"...she was a bit of a bitch though. All tsundere, killed all the cute." With her blood vessels reaching a critical breaking point, Yui Ikari cracked her husband around the head with a heavy folder.  
+"...她虽然有点泼辣。典型的傲娇，把可爱都扼杀了。" 随着血管濒临破裂的临界点，碇唯用一个厚重的文件夹猛击了丈夫的头。
+
+"You're going to be the death of me one of these days..." Yui mumbled as she massaged her aching head.  
+""你总有一天会把我气死的..."" 碇唯一边嘟囔着，一边揉着疼痛的头部。
+
+---
+
+With the shock of their new homeroom teacher finally beginning to recede, Asuka hung her head behind her chair, staring at the ceiling. She didn't think she could handle more surprises today. She wanted Shinji's delicious home-cooked bento in her stomach, but lunch was still hours away. Stomach grumbling, she turned to face Shinji, who happened to sit next to her, flashing him a look of practiced annoyance. His response was a confused expression and a shrug, which wasn't the kind of attention she had been looking for.  
+随着新班主任带来的震惊逐渐消退，明日香低着头躲在椅子后面，盯着天花板。她觉得今天已经无法再承受更多的惊喜了。她渴望吃到真嗣亲手做的美味便当，但午餐时间还遥遥无期。肚子咕咕叫着，她转向坐在旁边的真嗣，露出了一副惯常的恼怒表情。他的回应却是一脸困惑和耸肩，这并不是她所期待的反应。
+
+Tearing out a scrap of paper from her notepad, she quickly began writing a message.  
+她从笔记本上撕下一张纸条，迅速开始写起信息来。
+
+_"I'm bored!" “我好无聊！”_
+
+Having received it, Shinji quickly read the note and glanced at her, flashing a smile that agreed with her.  
+收到纸条后，真嗣迅速阅读了一遍，然后瞥了她一眼，露出了一个与她心意相通的微笑。
+
+_"Me too. I'm not paying attention at all. You got any ideas to kill the time?"_ Asuka thought about the response for a little while, until a small grin crept into her expression.  
+“我也是，根本没在听。你有什么打发时间的主意吗？”明日香思考了一会儿，直到她的脸上慢慢浮现出一丝微笑。
+
+_"Let's play a game!" “我们来玩游戏吧！”_
+
+_"What kind of game?" “什么类型的游戏？”_
+
+_"20 questions, gone wild!"_ Shinji's eyes widened to impossible sizes as he read the response. It was all she could do to not laugh out loud. After she'd received the affirmative from Shinji, she began their little game.  
+“20 个问题，疯狂版！” 真嗣的眼睛瞪得大到不可思议，他读着回复。她尽力忍住不笑出声。在得到真嗣的肯定后，她开始了他们的小游戏。
+
+_"Out of all the girls in the class, who's the cutest?"  
+“在班上所有女生中，谁最可爱？”_
+
+_"That's not a fair question..."  
+"那问题不公平……"_
+
+_"Answer the damn question, stupid Shinji!"  
+"回答那个该死的问题，愚蠢的真嗣！"_
+
+_"A certain fiery fräulein I know..."_ He had the audacity to look sheepish, but his comment made her happy. At least he had noticed she was an attractive organism of the female species. Pencil in his mouth, Shinji finally came up with a question that surprised her.  
+""我认识的一位热情的女士……"" 他居然厚颜无耻地露出了尴尬的表情，但他的话让她感到高兴。至少他注意到了她是个有魅力的女性生物。嘴里叼着铅笔，真嗣终于想出了一个让她惊讶的问题。
+
+_"Is there anyone that you like?"_ Her heartbeat flared as she struggled to find an immediate answer. She wasn't mentally ready to tell him that she liked him, but one wrong move and she could hint to Shinji that it wasn't him she liked, dashing her hopes of a future relationship entirely.  
+"你有喜欢的人吗？" 她的心跳加速，努力寻找一个即时的答案。她还没准备好告诉他她喜欢他，但一旦说错话，就可能暗示给真嗣她喜欢的不是他，彻底粉碎了她对未来关系的希望。
+
+_"If you mean like as in people I can bear with most on a daily basis, I'd have to choose you I guess."_ After sneaking him the note, she hid her face away from him, afraid she'd let slip her innermost thoughts. She heard a surprised gasp of air coming from his direction, before hearing the pencil scratching on the paper again.  
+"如果你是指日常生活中我能忍受最多的人，我想我得选你吧。" 递给他纸条后，她把脸藏了起来，生怕泄露内心的真实想法。她听到他那边传来惊讶的吸气声，然后又听到铅笔在纸上划过的声音。
+
+_"You write incredibly frustrating answers, I have no idea what that means in the female language."  
+"你写的答案真是让人抓狂，我完全不懂这在女性语言里是什么意思。"_
+
+She came close to whacking him across the head with her textbook, but settled with glaring at him as though looks could cause people to spontaneously combust.  
+她差点用教科书敲他的头，但最终只是狠狠地瞪着他，仿佛眼神能让人自燃。
+
+_"Read too much into it and I'll have you for lunch instead of the damn bento!"  
+“别想太多，不然我可要把你当午餐吃了，而不是那该死的便当！”_
+
+As soon as she handed it over, she regretted writing the response. She meant it as something angry, but replaying the words in her head and it began to sound... flirty? Her fears were confirmed when Shinji covered his mouth, trying not to laugh. Whimpering in exasperation, she buried her head in her arms on her desk. The rest of the day passed by in a slow, painful, agonizing fashion.  
+她一递过去就后悔写了那个回复。本意是表达愤怒，但回想起来，那些话听起来...有点挑逗？当真嗣捂住嘴，努力不笑出声时，她的担忧得到了证实。她懊恼地呜咽一声，把头埋在桌上的手臂里。剩下的时间里，日子过得缓慢、痛苦且煎熬。
+
