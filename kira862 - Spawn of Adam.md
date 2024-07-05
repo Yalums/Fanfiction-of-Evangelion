@@ -14953,6 +14953,9 @@ Meanwhile, Zeruel touched down in Tokyo-3 and started the destruction that await
 这与我之前所做的截然不同，你大概能看出来...**
 
 ---
+### Chapter
+
+---
 ### Chapter 35: Finality
 **Two years to the day I posted Spawn of Adam here on Fanfic. Its been an amazing run everybody, but here we go. This is the last chapter! Sorta. Epilogue after this but that doesn't count.** **Thank you to all the support I've received from everyone through these long two years. Its hard for me to believe that this is finally ending. This has been a huge part of my life over these past two years, and I'd like to thank everyone that has read this. Arigato Gozaimasu Minna-san!**  
 两年前，我在 Fanfic 上发布了《亚当的后代》。大家的表现都很棒，但我们开始了。这是最后一章了！有点。在此之后有结语，但这不算数。感谢这漫长的两年里大家对我的支持。我很难相信这一切终于结束了。在过去的两年里，这是我生活中很重要的一部分，我要感谢所有读过这篇文章的人。 Arigato Gozaimasu Minna桑！
