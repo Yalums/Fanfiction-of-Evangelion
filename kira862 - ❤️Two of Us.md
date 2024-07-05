@@ -17494,11 +17494,13 @@ Meanwhile, the moment Asuka's bedroom door had closed, she had opened her eyes, 
 
 ---
 
-### Chapter 18: Attraction  Chapter 18: 吸引力
+### Chapter 18: Attraction
 
 Well Merry Christmas everyone, is the first thing I should say. I initially tried to post this in the morning, but error 503 was giving myself, as well as a lot of people troubles. Oh well, its the internet. Shit breaks. Anyways, I got a bit of rambling to do at the end of this, so I'll wait till then to talk.
 
 好吧，祝大家圣诞快乐，这是我首先应该说的。我原本尝试在早上发布这篇文章，但 503 错误给我和其他许多人带来了麻烦。哎，这就是互联网。东西总会出问题。不管怎样，我在这篇文章末尾有些话要唠叨，所以我会等到那时再谈。
+
+---
 
 The 25th, Christmas morning dawned bright an early, without a cloud in the sky. Shinji had expected Asuka to wake him up immediately as soon as the sun rose, but that didn't seem to be the case. As Shinji sat awake in his bed, he had to admit that Asuka may not want to see him right now. She had been so excited when she had first discovered her present under the tree, but now, it seemed her enthusiasm had disappeared. Whether or no this was true, either way, Shinji had to get up and make breakfast.
 
@@ -19603,11 +19605,13 @@ Either way, they had an entire lifetime ahead of them, and were still young afte
 
 ---
 
-### Chapter 20: Sensations  Chapter 20: 感官体验
+### Chapter 20: Sensations
 
 Alright, here we go! Second chapter as promised. These two chapters are actually kinda weird, in that the first one was mostly written back in April, and this one was just written over the past two weeks. Anyways, as it will be apparent after reading this, there is going to be a change beginning to happen between Asuka and Shinji, but I'll talk more at the end of this chapter. Enjoy!
 
 好了，我们开始吧！如约而至的第二篇 chapter。这两章其实有点奇怪，第一章大部分是四月份写的，而这篇则是过去两周内完成的。无论如何，读完这篇后会明显感觉到，碇真嗣和明日香之间即将发生一些变化，不过我会在 chapter 的结尾再详细讨论。尽情享受吧！
+
+---
 
 When Shinji first awoke that next morning, he realized that he was in a bit of a predicament. Whenever he slept next to Asuka, when they had been living in their house together in Tokyo-2, he was always considerate about not waking her as he got out of bed. This was never a problem normally, since they usually slept on opposite sides of the bed for the most part, so he never worried that much about accidentally waking her. This was different of course.
 
@@ -20550,11 +20554,11 @@ I gotta say though, if not for everybody that has reviewed my work, followed it,
 
 ---
 
-### Chapter 21: Desire  Chapter 21: 欲望
+### Chapter 21: Desire
 
 Blame Destiny for this being late.
 
-怪命运使这章迟到。
+---
 
 When Asuka woke up the next morning, it took her several seconds to recognize what the warm pressure was resting against her back, and the distinct smell that was filling her nostrils. It seemed that she had remained beside Shinji the whole night, and more importantly, within his arms, or arm, as it happened to be.
 
@@ -22213,11 +22217,13 @@ Whether that was true or not, they had finally found a new house, with an entire
 
 ---
 
-### Chapter 23: Intensity  Chapter 23: 强度
+### Chapter 23: Intensity
 
 Feel like I'm on a bit of a roll lately, so continuing with that, here's another chapter. Likely gonna be another chapter this month, if possible sometime around Christmas, but I've got some stuff to say at the end of anyway.
 
 感觉最近状态不错，所以继续保持，这是另一篇 chapter。如果可能的话，这个月可能还会有另一篇 chapter，大概在圣诞节前后，不过无论如何，我最后有些话要说。
+
+---
 
 The next day started bright and early, though when Shinji first got up, he had briefly forgotten where he was. Memories of the previous day surged back into his mind, and that was when he saw the small lump sleeping beside him. During the night, Asuka had apparently turned away from him, and pulled most of the covers over to her side. Well, this wasn't the first time this had happened, so Shinji wasn't put off by it.
 
@@ -23204,11 +23210,13 @@ With that said, look forward to the next chapter.
 
 ---
 
-### Chapter 24: Passion  Chapter 24: 激情
+### Chapter 24: Passion
 
 Merry Christmas, or Christmas eve as it turns out to be. Figured I'd post this on the 24th instead of tomorrow, considering that fanfiction was down Christmas day last year. Hard to believe its been a year since them as well. I'm gonna be talking about stuff at the end of this, but in the mean time, enjoy this rather suitable chapter.
 
 圣诞快乐，或者说是圣诞前夜。我决定在 24 号发布这个，而不是明天，考虑到去年圣诞节那天粉丝小说网站宕机了。很难相信已经过去一年了。我会在最后谈论一些事情，但在此之前，请享受这个相当合适的 chapter。
+
+---
 
 It didn't require Asuka seeing the mark on Shinji's neck to make her blush furiously when she woke up. At some point during the night, Shinji must have managed to wrap both his arms around her, and Asuka didn't think it possible that she could be any closer to him. His chin was resting on top of her head, and their hips were crushed against one another. It didn't take long for the sleepiness to disappear from Asuka, when she felt something poking against her hips. Quick as a flash, she darted away from him upon realizing what it was. Shinji didn't wake up, but only breathed heavily, and then turned onto his side away from her.
 
