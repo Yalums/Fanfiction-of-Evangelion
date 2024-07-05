@@ -3371,6 +3371,1646 @@ Shinji then turned and walked down the hall leaving Asuka alone in the living ro
 真嗣随后转身沿着走廊走去，留下明日香一人在客厅。她轻轻咬着嘴唇，又瘫坐在沙发垫上，心想：‘对不起，你本可能死掉的。笨蛋！’
 
 ---
+### Chapter 5: Understanding  
+第五章：理解  
+
+**Well as I said I'd get this done a lot earlier then the last four month wait time...and here it is. I think this is the shortest chapter I've done so far for Spawn of Adam, though they wont get shorter than this. Anyway I'm going to yellowstone for ten days and they've got internet there. So hopefully I'll get some typing done while there. Also something I forgot to mention in the last chapter, I made a ShinjiXAsuka amv and put it on youtube. I originally made it back in January but only got around to posting it last month. So if you like Breaking Benjamin (song is Diary of Jane) then you'll probably like this. Ja Ne  
+正如我所说，我会比上次四个月的等待时间提前完成这个章节……现在它来了。我认为这是迄今为止《亚当之子》中最短的一章，尽管不会再比这更短了。无论如何，我将去黄石公园十天，那里有互联网。所以希望在那里我能完成一些打字工作。另外，我在上一章忘记提到，我制作了一个真嗣 X 明日香的视频并上传到了 YouTube。我原本在一月份就制作好了，但直到上个月才发布。所以如果你喜欢 Breaking Benjamin（歌曲是《简的日记》），那么你可能会喜欢这个。再见**
+
+---
+
+"Get up, and make our lunches," said an angry voice from his door.  
+“起床，给我们准备午餐，”一个愤怒的声音从他的门口传来。
+
+Shinji rolled over and grumbled about it being to early before Asuka planted her bare foot directly on his face.  
+真嗣翻了个身，咕哝着说时间还太早，结果明日香直接把她的赤脚踩在了他的脸上。
+
+"Move it! You better not expect me to eat that shit they call food at school."  
+快点！你最好别指望我吃学校里那些他们称之为食物的垃圾。
+
+Pushing Asuka's foot off his face he glared at her briefly before resigning to her demands. Looked like she was still angry.  
+他推开明日香的脚，短暂地瞪了她一眼，然后无奈地接受了她的要求。看来她还在生气。
+
+Standing up quickly he pushed passed her and walked into the kitchen to start making their bento's. Shinji was somewhat surprised though that she didn't wake him up earlier to make breakfast. Though judging from the bowl of half eaten cereal on the kitchen table she wasn't particularly hungry.  
+他迅速站起身，推开她走进厨房开始准备便当。这让真嗣有些惊讶，她竟然没有早点叫醒他做早餐。不过从厨房桌上那碗只吃了一半的麦片来看，她似乎并不怎么饿。
+
+Sighing slightly, he turned towards the fridge and started assembling all the ingredients for the bento's.  
+他轻轻叹了口气，转向冰箱，开始组装便当所需的所有食材。
+
+Half an hour later, the two of them walked out the door with Asuka maintaing several yards in front Shinji. He didn't seem to mind it really though, if anything he was avoiding her as much as possible.  
+半小时后，两人一前一后走出门，明日香保持着几码的距离走在真嗣前面。他似乎并不介意，甚至可以说，他尽可能地避免与她接触。
+
+The day before, when Misato returned from Nerv, Shinji was told that if he continued to fight the angels then he would have to run tests while in the Eva. He wasn't thrilled by this but expected it nonetheless. Asuka seemed furious though and this seemed to just build on top of her new hate for Shinji. So after a hectic yelling match between the two she had hit him...hard, and stormed back to her room. So Shinji would only be more than happy to be able to ignore her for the rest of the day. Though that didn't seem to be the case as a sudden bout of nausea hit him and he felt his vision grow blurry until he passed out.  
+前一天，当美里从 NERV 回来时，真嗣被告知如果他继续与使徒战斗，那么他必须在 EVA 中进行测试。他对此并不兴奋，但仍然有所预料。然而，明日香似乎非常愤怒，这似乎加剧了她对真嗣的新恨意。于是在两人之间爆发了一场激烈的争吵后，她狠狠地打了真嗣一拳，然后怒气冲冲地回到自己的房间。因此，真嗣非常乐意能在当天剩下的时间里无视她。然而，这似乎并不可能，因为他突然感到一阵恶心，视线变得模糊，直到他昏倒。
+
+---
+
+'Really this is starting to get annoying,' he thought to himself as he watched himself walking out the door of Misato's apartment with Asuka slightly in the lead. It was a replay of what had just happened to him. He watch from above as two of them walked, with her always slightly in the lead.  
+“真的，这开始变得烦人了，”他一边看着自己走出美里公寓的门，明日香稍稍领先，一边心想。这是刚刚发生在他身上的事情的重演。他从上方看着两人行走，她总是稍稍领先。
+
+After several minutes of this he was starting to get bored when everything changed. It looked like he was watching an extremely sped up tape on a VCR. He watched as he entered school and spent most of the time slouching in his chair with his eyes half open, glancing out the window occasionally.  
+经过几分钟这样的情景，他开始感到无聊，直到一切都发生了变化。仿佛在观看一台 VCR 上极度加速的录像带。他看到自己走进学校，大部分时间都懒散地坐在椅子上，眼睛半睁，偶尔瞥向窗外。
+
+Next they were walking out of the doors to school and seemed to be on their way to the Nerv testing facilities. Except that somebody else was with them. Shinji couldn't tell who it was though and this puzzled him. It was like a gray human like shape was walking in between him and Asuka. Why bother showing the gray shape if he couldn't even see the person. At least he thought it was a person.  
+接着，他们走出学校大门，似乎正前往 NERV 的测试设施。只是，有另一个人和他们在一起。真嗣看不清是谁，这让他感到困惑。一个灰色的类人形身影走在他和明日香之间。既然他连那个人都看不清，为什么还要展示这个灰色身影呢？至少他认为那是个人的形状。
+
+When they arrived at Nerv a security personal paused from a moment to check their idea and then let them through. After that Shinji got brief flashes of things that happened in the facilities. He saw as he changed in what Misato had called a plug suit. It seemed to be black, blue and white. He saw himself taking a deep breath before walking into the entry plug of Eva Unit 01. He saw all three of the Evas lined up, including the blue and orange one.  
+到达 NERV 时，一名安保人员停顿片刻检查他们的身份，然后放行。之后，真嗣短暂地看到了设施内发生的一些事情。他看到自己换上了美里所说的插入栓服，似乎是黑、蓝、白三色。他看到自己深吸一口气，走进了 EVA 初号机的插入栓。他看到三台 EVA 并排站立，包括那台蓝橙相间的机体。
+
+After that almost nothing. He saw a few brief flashes of things that happened afterwards. It looked like him and Asuka had another fight and he was left standing in the road with a red mark on his cheek. After this everything went blurry and he suddenly felt himself falling, and falling into nothingness.  
+自那之后，几乎一片空白。他瞥见了几幕后续的片段。似乎是他和明日香又吵了一架，他独自站在路上，脸颊上留着一道红印。此后一切变得模糊，他突然感到自己在坠落，坠入无尽的虚空。
+
+---
+
+"Wake up, damn it!" “快醒醒，该死的！”
+
+Shinji felt somebody hitting him hard at the side of his head and opened his eyes slowly, just as Asuka was about the backhand him again.  
+真嗣感到有人重重地击打他的头部一侧，他缓缓睁开眼睛，正好看到明日香准备再次反手打他。
+
+It was curious how he reacted. Before her hand was about to strike him he caught it with surprising speed that he didn't even know he possessed. With a glazed look over his eyes as though he was stilling falling through the blackness he looked up at Asuka. It was hard to tell what her expression was, most of it seemed to be angry but Shinji thought he sensed a tiny bit of worry, though he didn't expect her to say it in words.  
+他的反应颇为耐人寻味。在她即将打中他之前，他以惊人的速度抓住了她的手，连他自己都没想到能有这样的反应。他的眼神迷离，仿佛仍在那片黑暗中坠落，他抬头看向明日香。很难判断她的表情，大部分似乎是愤怒，但真嗣觉得他察觉到了一丝担忧，尽管他不指望她会用言语表达出来。
+
+"Let go of me ass-hole."  
+“放开我，混蛋。”
+
+Wrenching her hand out of his grip she glared at him slightly before snarling. "What the fuck was that about?"  
+她用力挣脱他的手，稍稍瞪了他一眼，随即咆哮道：“你他妈刚才那是什么意思？”
+
+Shinji would have dearly liked to retort back something similar but kept his cool and said. "Nothing, just anticipation for today's tests."  
+真嗣本想狠狠回敬一句，但还是保持了冷静，说道：“没什么，只是对今天的测试有些期待。”
+
+"No amount of tests will improve you, baka."  
+“再多的测试也改变不了你，笨蛋。”
+
+Shinji ignored her comment, stood up calmly, and grabbed his bag which lay discarded on the sidewalk. Turning around briefly he glanced at Asuka briefly who seemed somewhere torn between loathing and spite, which didn't make a difference in Shinji's opinion.  
+真嗣无视了她的评论，平静地站起身，拿起被丢在人行道上的书包。他转头短暂地瞥了一眼明日香，她似乎在厌恶和怨恨之间挣扎，但在真嗣看来，这并没有什么区别。
+
+Turning back around he started walking forward at a slow pace when he felt something hard hit his shoulder and a flash of red moved past him. Rubbing his shoulder where she had punched him he looked ahead and was unsurprised that she had widened the distance between them.  
+他转过身，开始以缓慢的步伐前行，忽然感到有什么硬物击中了他的肩膀，一道红影从他身边掠过。他揉着被她打中的肩膀，抬头望向前方，对于她拉大了彼此间的距离并不感到意外。
+
+"Does she always have to act so superior to everyone?" He mumbled before walking at the same pace that he had been moving at moments before.  
+“她总是要表现得比所有人都高人一等吗？”他低声嘀咕着，继续保持着之前那段时间的步伐。
+
+---
+
+School was still a nightmare but one thing seemed to have changed. Kensuke seemed to respect Shinji a little because of what he said at the shelters. Even Touji didn't seem like a jerk as much, but he kept up with it mainly because everyone else did.  
+学校依旧如噩梦般，但似乎有一件事发生了变化。因为他在避难所说的话，健介似乎对真嗣多了几分尊重。就连东治也不再那么像个混蛋了，不过他主要还是因为大家都这么做而继续保持。
+
+When Shinji walked into class that day he was unsurprised to see Asuka already sitting in front of his desk looking determinedly out the window. Ignoring this he walked over to his desk and was about to sit down when he stopped in the middle of sitting. Next to Asuka was a girl with blue hair, the same from the day before.  
+那天，当真嗣走进教室时，看到明日香已经坐在他的桌前，坚定地望着窗外，他并不感到意外。他无视这一点，走到自己的桌前，正要坐下时，却在半空中停住了。在明日香旁边，有一个蓝头发的女孩，正是前一天见过的那位。
+
+She gave no inclination that she recognized Shinji, in fact, from his view, she seemed to not even know where she was. A vague, blank expression was on her face as she continued staring at the chalk bored. Shinji noticed, without perverted intentions, that she seemed to be holding herself different, as though she was in discomfort. Then he remembered the large wound that she had suffered and was about to open his mouth when a slight snarl came from across the room.  
+她没有表现出任何认出真嗣的迹象，实际上，从他的角度看，她似乎连自己在哪里都不知道。她的脸上带着一种模糊而空洞的表情，继续盯着黑板。真嗣注意到，没有不正当的意图，她似乎在以不同的方式支撑着自己，仿佛感到不适。然后他想起了她所受的重伤，正要开口时，教室另一边传来了一声轻微的咆哮。
+
+"Shinji, are you going to stand there forever or can you sit so I can get on with teaching."  
+“真嗣，你是打算一直站在那里，还是能坐下来让我继续上课？”
+
+Several of the kids snickered as Shinji threw his teacher a scowl and sat behind Asuka who at that moment didn't know who she hated more: Shinji or the First Child.  
+有几个孩子窃笑起来，真嗣瞪了老师一眼，坐在了明日香后面，那一刻她不知道自己更恨谁：真嗣还是第一适任者。
+
+While school was still something he loathed he found it easier to get through the day. He even started to attracted less unpleasant remarks from the other students, which he thought might have a lot to do with living with Asuka. Seemed many of the boys had finally found out what she was really like and lost interest in her, which seemed to annoy her. After all her complaining about every guy wanting to get in bed with her she was getting annoyed by the lack of attention. Shinji then snorted at the thought of this as he sat down up on the school roof. Classes had just been dismissed for lunch and Shinji didn't have an appetite right now. Last thing he needed was to hurl during his first test.  
+尽管学校依然是他所厌恶的地方，但他发现日子变得容易熬过去了。他甚至开始少受其他学生的恶言恶语，他认为这可能与和明日香同住有很大关系。似乎许多男生终于发现了她的真面目，对她失去了兴趣，这似乎让她很恼火。毕竟，她一直在抱怨每个男人都想和她上床，而现在她却因为缺乏关注而感到恼火。真嗣想到这里，嗤之以鼻，他坐在学校屋顶上。刚放学去吃午饭，真嗣现在没有胃口。他最不需要的就是在第一次考试中呕吐。
+
+After several minutes of laying there Shinji thought that he could hear two distinct voices coming up the stairwell. Sitting up just in time he saw the door flung open and bounce off against the wall only to be kicked again. Touji walked disgruntled out into the open with a slight tense Kensuke behind him.  
+躺了几分钟后，真嗣觉得他能听到楼梯间传来两个不同的声音。他及时坐起来，看到门被猛地推开，撞到墙上又被踢了一脚。东治一脸不悦地走了出来，紧随其后的是略显紧张的健介。
+
+'So much for peace and quiet,' thought Shinji.  
+“看来平静的日子是没戏了，”真嗣心想。
+
+Surprisingly though they didn't seem to want to pick on him as Kensuke walked up to Shinji and said rather hurriedly.  
+然而出乎意料的是，他们似乎并不想找他麻烦，健介快步走向真嗣，急匆匆地说道。
+
+"Hey...umm, I'm sorry for everything that I...we've ever done to you." Touji acted as though he wasn't listening. Kensuke continued.  
+“嘿...呃，对于我们对你做过的所有事情，我...我们感到很抱歉。” 透治表现得好像没在听一样。健介继续说道。
+
+"And I was just hoping that we could put our past differences aside and well..." Kensuke then put out his hand in front of Shinji and gave something close to a bow.  
+"我刚才只是希望我们能放下过去的分歧，嗯……" 随后， Kensuke 伸出手，向真嗣微微鞠了一躬。
+
+Shinji wasn't sure whether to laugh, rebuke him, or shake his hand. Never being good any stuff like this he scratched the back of his head and said, "Oh...yeah." Grabbing his hand rather uncertain of himself he shook Kensuke's hand who responded by sitting down next to Shinji and opening his lunch box.  
+真嗣不确定是该笑，还是该责备他，或是握手。对于这种事情他一向不擅长，于是挠了挠后脑勺，说："哦……嗯。" 他有些犹豫地握住了 Kensuke 的手，而 Kensuke 则顺势坐在真嗣旁边，打开了便当盒。
+
+"Want some?" "要来点吗？"
+
+Shinji shook his head, "Best not to."  
+真嗣摇了摇头，"最好别这样。"
+
+Kensuke shrugged and went back to eating. It appeared that even Touji's still apparent annoyance of Shinji could not even deter him from eating as he sat down next to Kensuke and plowed into his own lunch. Even though Shinji didn't want to admit it he was glad that he had finally made a friend, well there was Asuka, but that varied.  
+健介耸了耸肩，继续吃他的饭。看来，即使是对真嗣依然明显的恼怒，也无法阻止他吃饭。他坐在健介旁边，大口吃着自己的午餐。虽然真嗣不想承认，但他很高兴自己终于交到了一个朋友，嗯，还有明日香，但那关系时好时坏。
+
+"Hey Shinji I was wondering," said Kensuke between bites.  
+"嘿，真嗣，我在想，"健介边吃边说。
+
+"Hmm?" “嗯？”
+
+"What happened to you after we left you at that shelter."  
+"我们把你留在那个收容所后，你发生了什么事？"
+
+Its a good thing that Shinji wasn't eating anything or he would have just gone into a choking fit. This was the least thing that he expected Kensuke to ask. Stuttering slightly he said, "Oh I wandered around before I found a shelter."  
+幸好真嗣没在吃东西，否则他可能会呛到。这是他最没想到健介会问的问题。他稍微结巴了一下，说道：“哦，我四处流浪了一阵子，然后找到了一个避难所。”
+
+"Did you here about the rumor that have been going around town lately?"  
+"你听说了最近城里流传的那些谣言吗？"
+
+"Err what rumors?" Shinji had an idea but wasn't about to say it.  
+"什么谣言？" 真嗣心里有数，但并不打算说出来。
+
+"That underneath Tokyo-3 is a secret military organization and that it conducted a test yesterday. Thats why the city had to be under isolation."  
+"说东京-3 地下有一个秘密军事组织，昨天进行了测试。这就是为什么城市必须处于隔离状态。"
+
+Shinji let out a sigh of relief.  
+真嗣松了一口气。
+
+"And that they supposedly tested some giant robot."  
+"据说他们测试了某种巨型机器人。"
+
+Shinji sigh seemed to be sucked back in as Kensuke's words hit his ears. "Err, know. I didn't hear that," he said sheepishly.  
+听到 Kensuke 的话，Shinji 的叹息仿佛被吸了回去。“呃，不知道。我没听说过，”他有些尴尬地说。
+
+"It seems to be a big story, I just wonder how much is true. Oh what I would give to get a picture of one."  
+"这听起来像是个大新闻，我只是好奇有多少是真的。哦，要是我能拍到一张照片就好了。"
+
+Shinji thought it was time to steer the conversation away from dangerous waters and said quiet bluntly without meaning to. "Who is that blue haired girl that just showed up today?"  
+真嗣觉得是时候把话题从危险的水域引开了，于是不经意间直截了当地问道：“今天刚来的那个蓝发女孩是谁？”
+
+Kensuke looked puzzled for a minute before snickering slightly and smiling at Shinji. "I thought I caught you looking at her, what outgrew Asuka already?"  
+剑介困惑了一会儿，随即轻笑起来，对着真嗣微笑道：“我就知道你注意到她了，这么快就对明日香没兴趣了？”
+
+Shinji was slightly annoyed, more for the fact of suggesting him and Asuka having sex then him interested in the blue haired girl.  
+真嗣有些不悦，更多的是因为剑介暗示他和明日香有性关系，而不是他对蓝发女孩感兴趣。
+
+Passing it off he said, "I'd never live through it. No I was just curious is all. I've been here for almost a month now and I just noticed her today. Has she been here always?"  
+他推脱道：“我可受不了那种事。不，我只是好奇罢了。我在这里已经快一个月了，今天才注意到她。她一直都在这儿吗？”
+
+Kensuke shrugged, "Yeah but she seems to disappear for a while and then just comes back one day. Sometimes she's injured, other times she's fine. No idea what's up with her. She keeps to herself and hardly talks to anyone."  
+健助耸了耸肩，“是啊，但她似乎会消失一段时间，然后某天又突然回来。有时她受伤了，有时又安然无恙。不知道她怎么回事。她总是独来独往，几乎不和任何人说话。”
+
+"So what's her name then?"  
+“那她叫什么名字？”
+
+"Err...Ayanami Rei, I think."  
+"呃...我想是绫波零。"
+
+"Ayanami Rei?" "绫波零？"
+
+"Yeah, its the first time I can remember seeing her in a few months."  
+"是啊，这是我这几个月来第一次记得见到她。"
+
+Shinji couldn't think of anything to say at this point and lapsed into silence. So her name was Ayanami Rei and she was also an Eva pilot. Chances are then that he'd see her later again.  
+此时，真嗣想不出该说什么，便陷入了沉默。原来她的名字是绫波零，也是一位 EVA 驾驶员。那么，他很可能会再次见到她。
+
+Kensuke appeared to be done with his lunch and Touji had finished his in record time. Standing up Kensuke said, "I guess I'll see you in class then, Shinji."  
+健司似乎已经吃完了午餐，而阿薰更是以创纪录的速度解决了他的那份。站起来后，健司说道：“那我们课堂上见，真嗣。”
+
+"Yeah cya," said Shinji who was absorbed in his own thoughts.  
+“嗯，再见。”真嗣沉浸在自己的思绪中，随口应道。
+
+After the two stooges left Shinji flung himself on his back as he looked up at the clouds. Reflecting back on what had happened the past week his life had definitely taken a turn, but in which direction. Compared to what it used to be he supposed that it was better. He had a decent home with a nice roommate...and a not so nice roommate, well usually. And he had started to get used to peoples company.  
+在两个笨蛋离开后，真嗣仰面躺下，望着天上的云朵。回想起过去一周发生的事情，他的生活无疑发生了转变，但转向何方呢？与过去相比，他觉得现在好多了。他有了一个不错的家，和一个好室友……以及一个不那么好的室友，嗯，通常情况下。而且，他开始习惯了与人相处。
+
+Though everything bad that he had seen, the Eva, angels, the visions, the damn visions. What in the hell we're they really? Premonitions about the future, or events that may or might not happen, and why him? What did he do to make this happen to himself? A book certainly couldn't tell Shinji what he wanted to know.  
+尽管他看到了所有糟糕的事情，EVA、使徒、那些该死的幻象。它们到底是什么鬼东西？关于未来的预感，还是可能发生或不发生的事件，为什么是他？他做了什么让自己遭遇这些？一本书当然无法告诉真嗣他想知道的。
+
+Then there was Eva Unit 01, his Eva he supposed, as it wouldn't let anyone else pilot it but him. It was obviously different then the other Eva's but in what way. Did the others hear a voice every time they got in that entry plug? Did they connect physically and mentally with the Eva every time they piloted it? Shinji rather doubted it.  
+还有 EVA 初号机，他觉得那是他的 EVA，因为它只允许他一个人驾驶。它显然与其他 EVA 不同，但具体是哪里不同呢？其他人每次进入驾驶舱时也会听到声音吗？他们每次驾驶时都能与 EVA 在身体和精神上建立联系吗？真嗣对此相当怀疑。
+
+"To many questions," he mumbled out loud to nobody but himself. Or at least he thought.  
+“太多问题了，”他喃喃自语，除了自己别无他人。或者至少他是这么认为的。
+
+"Does it hurt," asked a calm voice?  
+“疼吗？”一个平静的声音问道。
+
+Shinji almost had a heart attack as he bolted upright. Standing several feet in front of him was Ayanami Rei and once again she had a passive look on her face.  
+真嗣差点吓得心脏停跳，猛地坐直了身子。站在他几英尺外的是绫波零，她的脸上再次露出了那种淡漠的表情。
+
+Shinji gaped openly for a second or to and then closed his mouth. He had an urge to say something funny but couldn't quite get his tongue to wrap around them.  
+真嗣张口结舌了一会儿，然后才闭上了嘴。他有种想说些俏皮话的冲动，但舌头就是不听使唤。
+
+"Hey what's up?" He asked in a feeble attempted at a conversation.  
+“嘿，怎么了？”他试图展开对话，语气却显得无力。
+
+She continued to look passively back at him without any sign of emotion. Shinji was starting to get annoyed.  
+她继续面无表情地看着他，没有任何情绪的迹象。真嗣开始感到烦躁。
+
+Sitting up he said, "Look, if you don't have anything to say then I'm heading back to class."  
+他坐起身来说道：“听着，如果你没什么要说的，那我就回教室了。”
+
+Shinji then pushed himself up and walked past her. At first he thought that she was going to stop him and he hesitated for a fraction of a second, but then continued walking past her. However when he was about to reach for the door nob to take him to the stairwell she finally opened up.  
+随后，真嗣站起身来，从她身边走过。起初他以为她会拦住他，犹豫了那么一瞬间，但随即继续向前走去。然而，当他伸手准备开门去楼梯间时，她终于开口了。
+
+"Are you going to continued piloting Eva?"  
+“你还会继续驾驶 EVA 吗？”
+
+Shinji wheeled around and was unsurprised to see that she still hadn't moved but was still standing in the same place, as though he had never moved. He was starting to get used to her weirdness.  
+真嗣转过身来，并不意外地发现她依旧站在原地，仿佛他从未移动过。他开始习惯了她的古怪。
+
+Wrenching open the door he paused in front of it and said, "Yeah."  
+他用力拉开那扇门，在门前停顿了一下，说道：“嗯。”
+
+Glancing briefly at her he didn't see any sign of change and let out a sigh. Had he been expecting something? Ignoring the thought he started walking back towards class.  
+他匆匆瞥了她一眼，没发现任何变化，便叹了口气。他是否期待着什么？他没去多想，开始往教室走去。
+
+The minute that Shinji walked into class Asuka threw him a dirty scowl, which he saw but ignored it. She could be so childish sometimes. However several seconds later her scowl intensified, as Shinji was walking back towards his desk, when Rei walked into the classroom. Asuka's imagination started to buzz rapidly as she thought of reasons why they were mere moments apart from walking into the class room. None of the conclusions she came up with satisfied her.  
+真嗣一走进教室，明日香就朝他投去一个厌恶的眼神，他看到了却置之不理。她有时真是幼稚得可以。然而几秒钟后，她的怒容愈发加深，因为真嗣正走向自己的座位时，丽走进了教室。明日香的思绪开始飞速旋转，她想找出他们前后脚进教室的原因。但她想到的任何结论都无法令自己满意。
+
+---
+
+Many hour later school ended and Shinji was almost grateful, or would have been if he didn't have to climb into an Eva.  
+许多小时后，学校终于放学了，真嗣几乎感到庆幸，如果不是还得爬进 Eva 的话，他本该如此。
+
+The walk to Nerv was uneventful to say the least. He was right in assuming that Rei was a regular Eva pilot as she seemed to be going the same way as he and Asuka. Though it seemed that Asuka was determined that she was the leader as she continued to speed up every once in a while.  
+前往 NERV 的步行至少可以说是不出所料的平静。他猜对了，丽确实是一名常规 Eva 驾驶员，因为她似乎和真嗣及明日香走的是同一条路。尽管明日香似乎决心要当领头人，时不时地加快步伐。
+
+Shinji was nervous and it showed. His eyebrows were sweating and he was starting to bite his lip. He had a sudden urge then to ask Asuka some things about the tests that he would be going through soon. Speeding up, he was still determined though to stand far enough back so that he would be able to avoid a punch from her if she got angry. Still unsure if this was even smart he opened his mouth and said, "Hey Asuka can I ask you something?"  
+真嗣显得很紧张，这一点显而易见。他的眉头冒着汗，开始咬起了嘴唇。他突然有种冲动，想向明日香询问一些关于即将进行的测试的事情。他加快了脚步，但仍决心保持足够的距离，以防她生气时能避开她的拳头。尽管不确定这样做是否明智，他还是张开嘴说道：“嘿，明日香，我能问你点事吗？”
+
+She ignored him like he thought. It was worth a shot, but he still had an idea.  
+她像他预想的那样无视了他。虽然值得一试，但他还有个主意。
+
+Laying the respect on a bit thick he said, "Asuka please, you've been doing this a lot longer than I have. I want to know what to expect from these tests since you've had much more experience than I have."  
+他略显夸张地表达着敬意，说道：“明日香，请告诉我，你比我有更长的经验。我想知道这些测试会有什么，毕竟你比我经验丰富得多。”
+
+Shinji was counting on Asuka's pride as an Eva pilot that she would answer his questions. It seemed to work.  
+真嗣寄希望于明日香作为 EVA 驾驶员的骄傲，相信她会回答他的问题。看来这招奏效了。
+
+She glanced behind at him quickly with a frown on her face as though still unsure if she was angry at him or not. 'Oh what the hell. I do have the best combat record,' she thought.  
+她迅速回头瞥了他一眼，眉头紧皱，似乎还在犹豫自己是否还在生他的气。'管他呢，我的战斗记录可是最好的，'她心想。
+
+"The tests are simple enough, at least most of them. Today will be nothing more than a synchronization test."  
+“这些测试很简单，至少大部分是。今天不过是同步率测试而已。”
+
+"And what does that mean?" Shinji didn't want to ask to much and anger her so he thought to ask the basics only.  
+"那是什么意思？" 真嗣不想问得太多而激怒她，所以他只问了最基本的问题。
+
+"For an idiot like you it means nothing more than becoming used to being in the entry plug."  
+"对你这样的傻瓜来说，这不过意味着习惯了进入插入栓而已。"
+
+Shinji wanted to throw back a retort but thought better and bit his tongue, at least they were talking now.  
+真嗣本想反驳，但转念一想还是咬住了舌头，至少现在他们开始交谈了。
+
+"So we won't be doing any simulations?"  
+"所以我们不进行任何模拟训练吗？"
+
+"No! You won't be for a while. You're barely able to synchronize with your Eva. It'll take you months to get to the level that I'm at."  
+"不！你暂时不会进行。你与 Eva 的同步率还很低。要达到我现在的水平，你需要几个月的时间。"
+
+"And what about Rei?" "那丽怎么样？"
+
+Asuka's mood turned sour at her name and spun around and Shinji was glad that he had maintained a good distance between them as she looked like she was ready to hit him.  
+听到自己的名字，明日香的心情顿时变糟，她转过身来，真嗣庆幸自己和她保持了足够的距离，因为她看起来像是要揍他。
+
+"What about her!" “她怎么了！”
+
+"Nothing, I just wondered how long she had been a pilot is all."  
+“没什么，我只是好奇她当驾驶员多久了。”
+
+Asuka glared at him before turning around and stomping off, "Ask her yourself you dumb ass!"  
+明日香瞪了他一眼，然后转身跺脚离去，“你自己问她啊，你这个笨蛋！”
+
+Shinji was left standing still on the sidewalk with a frown on his face. 'So much for the brief minutes of talking,' he thought before catching up to her slightly.  
+真嗣站在人行道上，眉头紧锁。‘短暂的交谈就这样结束了，’他想着，然后稍微加快脚步追上了她。
+
+Shinji was thoroughly glad that he had Asuka and Rei with him, he would never be able to find his way in Nerv. All the crisscrossing hallways made him nauseous. Then he remembered that his father was somewhere in this mess and felt like puking even more.  
+真嗣非常庆幸有明日香和绫波在他身边，否则他绝对无法在 NERV 里找到路。那些纵横交错的走廊让他感到恶心。接着他想起父亲也在这片混乱之中，更觉得想吐了。
+
+---
+
+After what seemed like an hour they walked into a room similar to the one that Shinji had been in previously. Except this one had a window that showed the three Eva's lined up next to each other waiting for there pilots. Shinji guess that this is where they would be syncing. Next second it was confirmed when he heard a familiar voice.  
+仿佛过了一个小时，他们走进了一个与之前真嗣待过的类似的房间。只是这个房间有一扇窗户，窗外排列着三台 EVA，它们并排等待着各自的驾驶员。真嗣猜测这里就是他们进行同步的地方。下一秒，这个猜测就被一个熟悉的声音证实了。
+
+"Glad you could make it Shinji."  
+“很高兴你能来，真嗣。”
+
+Shinji turned around to see a smiling Misato standing in front of him.  
+真嗣转过身，看到米萨托站在他面前，面带微笑。
+
+Shinji grinned, but it was rather strained. Misato seemed to notice this and said, "Don't worry you'll be fine."  
+真嗣勉强笑了笑，但显得有些僵硬。美里似乎注意到了这一点，说道：“别担心，你会没事的。”
+
+"Yeah..." "是啊..."
+
+"Everything is ready so just go change into your plug suits and we can get this over with."  
+“一切都准备好了，快去换上插入栓服，我们尽快搞定这件事。”
+
+Asuka and Rei seemed to understand her words because they left through a door to the left leaving Shinji standing there confused.  
+明日香和绫波似乎理解了她的意思，因为他们穿过左边的一扇门离开了，留下真嗣站在那里一脸困惑。
+
+"Err Misato, what do you mean by plug suits?"  
+"Misato 小姐，你说的插入栓服是什么意思？"
+
+Misato let out a small oh as if she had forgotten something, which she did. "I completely forgot that you haven't even piloted in a plug suit before which is surprising. It shows your potential as a pilot."  
+Misato 轻声‘哦’了一下，仿佛忘记了什么，她的确忘了。“我完全忘了你之前连插入栓服都没穿过，这真是令人惊讶。这显示了你作为驾驶员的潜力。”
+
+Shinji wasn't sure that was a complement or not so just let her continue.  
+真嗣不确定这是不是在夸他，所以只是让她继续说下去。
+
+"Anyway take that door at your right in the far corner and find a locker that says Shinji on it. I think the number was 203, or something."  
+“总之，走到右边的角落，那扇门进去，找一个标有‘真嗣’的储物柜。我想号码是 203，或者是别的什么。”
+
+"But what is a plug suit?"  
+“但什么是插入栓服？”
+
+Misato frowned, "I knew that you and Asuka hadn't been getting along but I assumed that she'd explain some things to you."  
+美里皱眉道：“我知道你和明日香相处得不好，但我以为她会向你解释一些事情。”
+
+"I really hadn't tried, its better to let her cool off instead of forcing her to."  
+"我真的没试过，让她冷静一下比强迫她要好。"
+
+"Well, anyway, in simple terms the plug suit synchronizes you with your Eva. However the fact that you are able to sync with your Eva...by other methods means that maybe you wont have to use one. This is still all just tests. Oh and there be some blue clips in their also, put those on your head."  
+"总之，简单来说，插入栓服能让你与 EVA 同步。不过，既然你能通过其他方法与 EVA 同步，或许你就不必使用它了。这一切都还在测试阶段。哦，还有，里面会有一些蓝色夹子，把它们戴在头上。"
+
+Shinji tried to keep all this in his head, as he followed Misato's instructions.  
+真嗣努力记住这一切，同时按照美里小姐的指示行动。
+
+After several annoying minutes of getting used to the fabric which was unbearably tight after pressing a button he found that Misato had failed to mention Shinji walked out of the boys locker room, clipping the nerve receptors onto his head.  
+经过几分钟令人烦躁的适应，那布料紧得让人难以忍受，他按下了一个按钮，发现美里忘记告诉他的事情——真嗣走出了男更衣室，将神经感受器夹在头上。
+
+Shinji had admit-tingly thought that Asuka was cute when he had first seen her, and had realized that she was even more attractive now that he got to know her, this however blew him away. He hadn't even thought about the fact that she would be wearing a plug suit also and it hit him like a piano when he saw her in the bright red plug suit. It complemented her curves precisely and there was no lack of anything. He considered himself not overly perverted but this pushed the limits.  
+真嗣不得不承认，第一次见到明日香时，他就觉得她很可爱，而现在了解她之后，他发现她更加迷人了，但这完全让他震惊。他甚至没想过她也会穿插入栓服，当看到她穿着鲜红色的插入栓服时，这感觉就像一架钢琴砸中了他。那紧身衣完美地衬托出她的曲线，没有任何不足之处。他自认不算过于好色，但这确实超出了他的极限。
+
+Asuka must have caught him gaping openly because she tossed her hair behind her head and seemed to give a seducing smile towards him. This pulled Shinji out of his stupor and he had to curse himself slightly for his stupidity. It was obvious that she had been expecting this kind of reaction from him and was throughly enjoying it.  
+明日香肯定注意到了他目瞪口呆的样子，因为她把头发甩到脑后，似乎对他露出了一个诱人的微笑。这让真嗣从恍惚中回过神来，他不得不暗自咒骂自己的愚蠢。显然，她早就预料到他会这样反应，并且乐在其中。
+
+Determinedly wrenching his eyes away from her they instead settled on Rei. Her plug suit was more or less the same as his except more white while his was largely blue.  
+他坚决地移开视线，不再看她，转而注视着丽。她的插入栓服和他的大致相同，只是白色部分更多，而他的则主要是蓝色。
+
+Misato appeared to witness this whole ordeal and let it continue until things seemed to pass.  
+美里似乎目睹了整个过程，任其继续，直到一切似乎都过去了。
+
+"Now then you know what to do...Shinji just follow the girls and ask if you have any questions."  
+“那么，你知道该怎么做...真嗣，跟着女孩们走，有任何问题就问。”
+
+'Not like I'll get them answered if I ask,' he thought bitterly as he stared at Asuka's back.  
+“问了也不会得到回答的。”他苦涩地想着，目光凝视着明日香的背影。
+
+---
+
+'So far so good,' Shinji thought as he finished strapping himself in to Eva Unit 01. Looking at the monitor he saw that Asuka and Rei had done likewise. Suddenly Misato's voice came over on the loud speaker.  
+“目前为止一切顺利。”真嗣想着，完成了对 EVA 初号机的固定。他看向屏幕，发现明日香和绫波也已经准备就绪。突然，美里通过扩音器传来了声音。
+
+"OK everything is ready on our end. Go ahead and start concentrating you guys. I want to get this done as quickly as possible."  
+“好了，我们这边已经准备妥当。你们开始集中精神吧。我希望尽快完成这件事。”
+
+Shinji assumed that she was worried about him and rather thankful at that. Gathering everything that he could remember during his past fights in the Eva he closed his eyes and solely concentrated on something he never thought he would, syncing with the voice that had plagued his dreams.  
+真嗣猜测她是在担心他，并且对此颇为感激。他集中精力，回忆起过去在 EVA 战斗中的点点滴滴，闭上眼睛，全神贯注于一个他从未想过会去关注的事物——与那个困扰他梦境的声音同步。
+
+Almost immediately he heard a small whisper and soon it developed into a strong voice.  
+几乎立刻，他听到了一个微弱的低语，很快这声音变得强烈起来。
+
+"_Glad your finally getting the time to get to know me better."_  
+“很高兴你终于有时间更好地了解我了。”
+
+Shinji was quiet as he didn't want anything to interfere with his thought process.  
+真嗣保持沉默，不想让任何事情干扰他的思考过程。
+
+"_Thats rather rude, ignoring me like that. What, did your parents never teach you any manners?"_  
+“那样无视我真是太没礼貌了。怎么，你父母没教过你礼貌吗？”
+
+Something sparked in Shinji's mind, but he was quickly able to pass it off. However it was noticed in the command room.  
+真嗣脑海中闪过一丝念头，但他很快就能将其抛诸脑后。然而，这一细微变化在指挥室中被察觉到了。
+
+"Anomaly detected in Unit 01."  
+"发现 01 号单元异常。"
+
+Misato immediately spun in the direction of the voice and barked. "What is it?"  
+美里立刻转向声音的方向，厉声问道：“怎么回事？”
+
+"Wait...nothing, it disappeared."  
+"等等……没事了，它消失了。"
+
+Misato frowned worriedly and said, "Keep an eye on Unit 01 and let me know if anything changes."  
+美里皱着眉头担忧地说：“盯紧零号机，有任何变化立刻通知我。”
+
+"Yes ma'am!" “是的，女士！”
+
+Back in Unit 01 Shinji was starting to sweat from concentrating, that and the voice was really starting to get on his nerves.  
+回到零号机内，真嗣因为集中精神而开始出汗，再加上那个声音真的开始让他烦躁起来。
+
+"_So ready for the next angel attack? I know I am. Just let me know and I'll rip it to shreds. What I wouldn't give for a good blood bath right now."_  
+“准备好迎接下一个使徒了吗？我知道我准备好了。告诉我，我会把它撕成碎片。我现在多么渴望好好洗个血浴啊。”
+
+"Shut...it," whispered Shinji.  
+"闭...嘴，" 真嗣低声说道。
+
+"_Here I am trying to strike up a conversation with you and thats all you can say, phish, ass."_  
+"我在这里努力想和你聊聊天，你就只能说这些，真是的，笨蛋。"
+
+Shinji then started to talk to the voice deep in his subconscious. "Okay fine, we'll talk."  
+真嗣随后开始与深藏在他潜意识中的那个声音对话。"好吧，好吧，我们聊聊。"
+
+"_Good, because its boring if you don't."_  
+"很好，因为如果你不这样做，那就太无聊了。"
+
+"What or who are you?"  
+"你是什么，或者你是谁？"
+
+"_The thing that lives inside of the Eva."_  
+"住在 Eva 里面的那个东西。"
+
+Shinji was startled by this new streak of information and it showed with his sync ratio.  
+这条新信息让真嗣吓了一跳，这从他的同步率中显露无遗。
+
+Gaining control of his thoughts he said, "What do you mean the thing that lives inside the Eva?"  
+他控制住自己的思绪，说道：“你说的‘住在 Eva 里的东西’是什么意思？”
+
+"_Those humans don't tell you much do they."_  
+“那些人类没告诉你多少，是吧。”
+
+Shinji didn't want to admit it but the voice was right. "I never asked, but what are you."  
+真嗣不想承认，但那个声音是对的。“我从没问过，但你是什么？”
+
+"_An entity, thats good enough for now."_  
+“一个存在，目前这样就足够了。”
+
+"Fine, why me?" “好吧，为什么是我？”
+
+"_You intrigue me, simple enough. You're different then all the other humans that have ever piloted me. At first I thought about killing you but after looking inside of your soul I learned a few things about you that made me curious."_  
+"你引起了我的兴趣，就这么简单。你和其他所有曾经驾驶过我的人类都不同。起初我想过要杀掉你，但在窥视你的灵魂之后，我发现了关于你的几件事，让我感到好奇。"
+
+"And those things are?" "那些事是什么？"
+
+"_Stuff that you wouldn't want to know. Put it this way, your better of not knowing."_  
+"你不会想知道的那些事。这么说吧，不知道对你更好。"
+
+"And if I still want to know?"  
+"如果我仍然想知道呢？"
+
+"_Most likely you'll go insane from it and thats not happening anytime soon. I need you sane, so don't even ask."_  
+"最有可能的是，你会因此发疯，而且这不会很快发生。我需要你保持理智，所以别再问了。"
+
+"Fine then do you have anything to do with the visions that I am having. Ever since I pilot you the first time I've been having visions of people that I know or events that may or not happen. I damn sick of them."  
+"好吧，那你和我的那些幻觉有关系吗？自从我第一次驾驶你以来，我就一直在看到我认识的人或可能发生的事件。我他妈的受够了这些。"
+
+"_I can't control things that happen outside of this small space, so I have no idea what your babbling about."_  
+"我无法掌控这个小空间之外的事情，所以你说的那些我一无所知。"
+
+"Fine, thanks for nothing."  
+"好吧，谢了，啥也没帮上。"
+
+"_Anytime."_ "随时乐意。"
+
+Shinji lapsed into silence as he felt his conscious slide back to where he currently was. Opening one of his eyes he glanced at a screen to his right and saw Asuka with her eyes closed doing the same thing that he was doing. Unable to hold back the smirk after getting another look at her red plug suit he turned away quickly so as to not interrupt his concentration.  
+真嗣陷入了沉默，他的意识逐渐回到了当前所在之处。他睁开一只眼睛，瞥向右侧的屏幕，看到明日香闭着眼睛，做着和他一样的事情。再次看到她那红色插入栓服后，他忍不住露出了微笑，但很快又转过头去，以免打断自己的专注。
+
+Then, the pain hit him. Shinji felt like his mind was going to split down the middle as reality was torn from him. Flashes passed him as he saw a dark room with the walls lit up in red, a sea the color of blood, his mother who he could barely remember smiling back at him before she turned into a creature with no face. Nothing was real and everyone was gone. It was just Shinji inside the entry plug of Eva Unit 01 screaming like he was wounded.  
+随后，疼痛袭来。真嗣感觉自己的意识仿佛要被撕裂，现实从他身边被剥离。闪回的画面掠过眼前：一个黑暗的房间，墙壁被红色照亮，一片血色的海洋，他几乎记不清的母亲微笑着回头看他，随即变成了一只没有面孔的生物。一切都不真实，所有人都消失了。只剩下真嗣在 EVA 初号机的插入栓内，像受伤一样尖叫。
+
+Misato reacted quickly at the first sound of Shinji's screams. "Disengage the umbilical cords for all three Eva's, and get Rei and Asuka out of there as quickly as possible. Status of Eva Unit 01?"  
+听到真嗣的尖叫声，美里迅速做出反应。“立即断开三台 EVA 的脐带电缆，尽快将绫波和明日香带出来。初号机的状态如何？”
+
+"Pilot live signs are fluctuating abnormally. The LCL fluid inside the entry plug is heating up, passing normal temperatures...critical reached."  
+"驾驶员生命迹象异常波动。插入栓内的 LCL 液体温度升高，超过正常值...已达到临界点。"
+
+"Entry plug removal for Unit 00 and Unit 02 have been confirmed, pilots safe."  
+"零号机与二号机的插入栓已确认移除，驾驶员安全。"
+
+"Get them the hell out of there! Try removing the entry plug for Unit 01."  
+"立刻把他们带出来！尝试移除初号机的插入栓。"
+
+"Negative it will not recognize the signature."  
+"负面的，它无法识别签名。"
+
+Misato bit her nail in fear. When someone alerted her of something important.  
+美里紧张地咬着指甲。当有人向她报告重要事情时。
+
+"Commander Misato you might want to look at this."  
+"美里指挥官，您可能需要看看这个。"
+
+"What," she snapped. "什么，"她厉声道。
+
+"Its Unit 01's sync rate."  
+"这是 01 号机的同步率。"
+
+Misato was over there in a flash and froze when she saw the synchronization between the pilot and the Eva. It was fluctuating from plus one hundred to negative one hundred something that had never been seen before.  
+Misato 瞬间冲了过去，当她看到驾驶员与 Eva 之间的同步率时，整个人都僵住了。同步率从正一百波动到负一百多，这种从未见过的现象让她震惊不已。
+
+In a shaky voice Misato managed to get the words out, "Record this...for future reference."  
+美里用颤抖的声音勉强说出：“记录下来……以备将来参考。”
+
+"Yes ma'am." “是，长官。”
+
+Getting a hold of her feelings for Shinji who's screams had subsided she looked back at the screen where his life signs were unknown.  
+她努力控制住对真嗣的情感，他的尖叫声已经平息，她回头看向屏幕，那里显示着他的生命迹象未知。
+
+"Does Unit 01 appear to be going berserk."  
+"初号机似乎要暴走了。"
+
+"It does not appear to be so."  
+"看起来并非如此。"
+
+Misato bit her nail again and said, "Get a team down there to restrain the Eva, and if you see any signs of movement get the hell back here. I don't want anyones life in danger."  
+美里再次咬了咬指甲，说道：“派一支队伍下去制服 Eva，一旦发现任何动静，立刻撤回来。我不想任何人冒生命危险。”
+
+At this moment Asuka came bursting into the command room with Rei behind her with a somewhat passive look.  
+就在这时，明日香猛地冲进了指挥室，身后跟着表情略显被动的绫波。
+
+"What the hell is going on, why did you call of the tests!"  
+“到底怎么回事，为什么取消了测试！”
+
+Misato did not want to deal with this right now and ignored Asuka who was not happy about it.  
+美里现在不想处理这些，她无视了不满的明日香。
+
+"Misato what is going on!"  
+"美里，这是怎么回事！"
+
+"Shinji's life is currently in danger and we are trying to recover him, that is the current situation!"  
+"真嗣的生命现在处于危险之中，我们正在设法救他，这就是目前的状况！"
+
+Asuka was slightly taken back as Misato had never snapped at her like that before. Her mood changed from one to anger to one of slight worry. "Is he okay?"  
+明日香有些惊讶，因为美里以前从未这样对她发过脾气。她的情绪从愤怒转变为一丝担忧。"他没事吧？"
+
+"I don't know but the last reading we got the temperature in Unit 01 was well over one hundred twenty degrees Fahrenheit. Since then its most likely climbed. Then...then there's his syncro rate. At times it was in the negatives which is supposed to be impossible and then it would jump up to a hundred which is equally impossible. Its like the Eva wants to kill him but is having second thoughts."  
+"我不知道，但上次我们测得 01 号机内的温度已经超过了一百二十华氏度。从那以后很可能还在上升。然后...然后是他的同步率。有时会降到负值，这本应是不可能的，然后又会突然飙升到百分百，同样是不可能的。就好像 Eva 想要杀了他，却又犹豫不决。"
+
+All Asuka could mange was a slight, "Oh." Finding a nearby chair she let herself sink into it and look up at the monitor which was fuzzy.  
+明日香只能勉强发出一声轻微的“哦”。她找到附近的一把椅子，让自己沉入其中，抬头看着那模糊的显示屏。
+
+Turning back towards the problem Misato said on the loud speaker, "How does it look down there?"  
+米莎托转回面对问题，通过扩音器说道：“下面情况怎么样？”
+
+"Nothing's wrong, Unit 01 is showing no signs of moving, proceeding with containment and the rescuing of the pilot."  
+“一切正常，初号机没有任何动静，继续进行收容并营救驾驶员。”
+
+Misato let out a strangled sigh and sank into a seat near her. Soon it would be all over and they'd be able to brush it off as a minor incident. But she knew it wasn't the case this time. If the Eva continued to do this to Shinji then she wouldn't be able to sit by and watch it.  
+美里发出一声窒息般的叹息，瘫坐在她旁边的座位上。很快这一切就会结束，他们可以将其视为一个小插曲抛诸脑后。但她知道这次情况不同。如果 Eva 继续这样对待真嗣，她无法袖手旁观。
+
+After several tense minutes of praying that nothing would go wrong the team on the floor managed to manually extract the entry plug from the Eva. LCL fluid poured from the open entry plug and Misato stood up and almost rushed down to the floor.  
+在紧张地祈祷了几分钟后，地面上的团队终于手动从 Eva 中取出了插入栓。LCL 液体从打开的插入栓中涌出，美里站起身来，几乎要冲下楼去。
+
+"We've got him, he's unconscious but miraculously alive."  
+"我们抓到他了，他昏迷不醒但奇迹般地还活着。"
+
+Misato let out a strangled sigh and suddenly felt like having several beers. It had been to close.  
+美里发出一声哽咽的叹息，突然很想喝几杯啤酒。刚才真是太险了。
+
+"There's something though, while the LCL was close to two hundred degrees in there his body is oddly cold. The only thing the LCL fluid seemed to destroy was his plug suit."  
+"不过有件事很奇怪，尽管 LCL 温度接近两百度，他的身体却异常冰冷。LCL 液体似乎只破坏了他的插入栓服。"
+
+"So what he's naked?" "他光着身子又怎么了？"
+
+"...Well, yeah." "...嗯，是啊。"
+
+Misato could have almost laughed. "Take him to the emergency room. I'll have doctor Akagi be ready for you when you get there."  
+美里几乎要笑出声来。“带他去急诊室。我会让赤城医生准备好，等你们到了那里。”
+
+Slouching deeper in her chair she spun around in her chair to see Asuka sitting there with her legs drawn up to her chest.  
+她懒洋洋地陷进椅子里，转过身来看到明日香坐在那里，双腿蜷缩到胸前。
+
+"Well he's okay," smiled Misato.  
+“他没事，”美里微笑着说。
+
+Asuka nodded in a forlorn sort of way. Misato had an idea though that might perk her up a little.  
+明日香有些沮丧地点了点头。不过美里有个主意，或许能让她振作一点。
+
+"Though I have no idea why, but he was for some reason naked in the entry plug when they found him. The LCL fluid burned off just the plug suit but his body was quite cold."  
+虽然不知道为什么，但他们在插入栓里发现他时，他不知为何一丝不挂。LCL 液体只烧掉了插入栓服，但他的身体却异常冰冷。
+
+Asuka's face turned a small shade of pink before she stood up and said, "Why the hell are you telling me something as disgusting as that. As if I'd want to know...how he was."  
+明日香的脸微微泛红，然后站起来说：“你干嘛告诉我这么恶心的事。好像我想知道他怎么样似的……”
+
+Misato let out the first smile since since the whole ordeal and stood up. "Well, lets at least be sure that he is completely okay before we start celebrating."  
+美里在这场风波后第一次露出微笑，站起身来。“好吧，至少在我们开始庆祝之前，先确保他完全没事。”
+
+Asuka snorted but followed her all the same.  
+明日香哼了一声，但还是跟了上去。
+
+---
+
+"This is...familiar." “这地方……似曾相识。”
+
+Shinji sat up in his hospital bed and felt his temples sear with pain. Whatever had happened it he couldn't remember anything. He remembered he had just taken a peek at Asuka before he blacked out. Now he was in a hospital room, naked, with a few chairs around his bed and his sheets bearing signs that someone had been sitting on them.  
+真嗣在医院的病床上坐起身，感到太阳穴一阵剧痛。无论发生了什么，他都记不起来了。他只记得自己刚刚瞥了一眼明日香，然后就失去了意识。现在他躺在医院的病房里，一丝不挂，床边散落着几把椅子，床单上还留有被人坐过的痕迹。
+
+"Looks like you finally woke up Shinji."  
+"看来你终于醒了，真嗣。"
+
+Shinji shifted so that he was facing the door and saw Ritsuko leaning against the wall with a cigarette in her hand.  
+真嗣挪动身体，让自己面对着门，看到律子靠在墙上，手里夹着一支烟。
+
+Shinji's first intentions where to ask what happened but Ritsuko beat him to it.  
+真嗣本想问发生了什么，但律子抢先了一步。
+
+"Don't worry about what happened, your safe and everybody's fine. You've been through a lot and are lucky to be alive. I'm keeping you here for two days at least to be sure. But I suppose I shouldn't badger you anymore, someone's been bothering me every few minutes to see if your awak-"  
+"别担心发生了什么，你很安全，大家都没事。你经历了很多，能活下来真是幸运。我至少要留你在这里两天确保一切无恙。不过我想我不该再打扰你了，每隔几分钟就有人来问我你是否醒了……"
+
+With that Ritsuko was pushed to the side as Misato darted into the room with a rather reluctant looking Asuka and a passive Rei in tow.  
+说完这话，律子被推到一旁，美里冲进房间，身后跟着一脸不情愿的明日香和表情平静的丽。
+
+"Shinji! Oh thank God you're okay. I knew it was a bad idea to have you do the tests."  
+"真嗣！哦，感谢上帝你没事。我就知道让你去做那些测试是个坏主意。"
+
+"Misato calm down, I'm fine."  
+"美里，冷静点，我没事。"
+
+"But you almost weren't, everyone was worried."  
+"但你差点就出事了，大家都担心得要命。"
+
+Shinji raised an eyebrow and looked over at Asuka who glared at him as though daring him to ask if she had been worried.  
+真嗣挑了挑眉，看向明日香，她瞪着他，仿佛在挑衅他敢不敢问她是否也担心了。
+
+"Glad that everyone was worried."  
+"很高兴大家都这么担心。"
+
+"Yes, well, I'm going to go ahead and have the commander pull you off of Unit 01. Its apparent that no one is able to handle it."  
+"是的，好吧，我打算让指挥官把你从 01 号单位撤下来。显然没人能驾驭它。"
+
+"No, I'm going to continue piloting it."  
+"不，我要继续驾驶它。"
+
+A long silence filled the room at Shinji's words. Misato was dumbfounded, even Asuka seemed to be surprised. Only Rei showed signs of knowing about his decision all along.  
+在真嗣的话语落下后，房间里弥漫着长久的沉默。美里目瞪口呆，就连明日香也似乎感到惊讶。只有丽表现出早已知晓他决定的样子。
+
+"But Shinji after what almost happened to you...I can't possibly put you inside that thing. What if something similar happens while in a battle."  
+“但是，真嗣，经历了几乎丧命的危险后……我怎么可能再让你进入那东西里。万一战斗中发生类似的事情怎么办？”
+
+Shaking his head Shinji said, "And what happens if you need help. I'm the only person who's ever been able to pilot it, besides I'm supposed to be dead now so for the fact that I survived I should be the pilot."  
+真嗣摇摇头说：“如果你们需要帮助怎么办？我是唯一能驾驶它的人，而且我本该已经死了，既然我活了下来，我就应该成为驾驶员。”
+
+Misato opened her mouth to argue again but Shinji cut her off. "I'm sorry Misato but I don't want it any other way. I want to help all I can and if piloting an Eva is what I can do I'll do it.  
+美里张嘴还想争辩，但真嗣打断了她。“对不起，美里，但我不想有别的选择。我想尽我所能帮助大家，如果驾驶 Eva 是我能做到的，那我就去做。”
+
+"Enough with the sympathy already," said an irritated Asuka. "He's healed and stubborn once again, can we leave now?"  
+“别再同情了，”明日香不耐烦地说，“他已经痊愈又固执起来了，我们现在可以走了吗？”
+
+"Don't act like you weren't worried Asuka," smirked Misato.  
+“别装得你没担心过似的，明日香，”美里得意地笑道。
+
+Asuka blinked, "Not a chance. Why would I worry about him?"  
+明日香眨了眨眼，“没门儿。我干嘛要担心他？”
+
+Shinji frowned at Asuka but ignored it. She'd always be the same, well he'd open up if she ever did.  
+真嗣对明日香皱了皱眉，但没理会。她总是这样，如果她愿意敞开心扉，他也会的。
+
+Misato sighed and said, "Fine we'll head home for now, but be back later with some fresh cooking. Hospital food can get sickening quickly."  
+美里叹了口气说：“好吧，我们先回家，但晚点会带着新鲜烹饪的食物回来。医院的食物很快就会让人反胃。”
+
+Asuka suddenly realized that she'd have to survive two days without Shinji to cook for her. Glaring at him in an annoyed sort of way as though it was his fault he was injured she mouthed, "Get well soon, or I'll be dead of food poisoning before you get back."  
+明日香突然意识到，她得在没有真嗣做饭的情况下熬过两天。她恼怒地瞪着他，仿佛是他受伤的错，然后无声地说：“快点好起来，不然你回来之前我就要死于食物中毒了。”
+
+Shinji smiled and mouthed, "Will do," back.  
+真嗣微笑着，无声地回应：“会的。”
+
+Asuka's face seemed to twitch slightly as she appeared to be working up the power for a smile. Though halfway through it turned into more of a grimace at which point she turned around quickly and stormed out of the room.  
+明日香的脸似乎微微抽搐了一下，她似乎在努力挤出一个微笑。但笑到一半变成了苦笑，于是她迅速转身，气冲冲地走出了房间。
+
+Misato and Shinji frowned at her but both started laughing silently. Regaining control of herself Misato said, "Don't pay to much attention to what Asuka says Shinji, she was worried, just didn't want to show it."  
+美里和真嗣对她皱了皱眉，但两人都默默地笑了起来。美里恢复了镇定，说道：“别太在意明日香说的话，真嗣，她只是担心，只是不想表现出来。”
+
+"I've long since realized that."  
+“我早就意识到了。”
+
+"Well, you seem fine so no point in taking anymore time. I'm sure Ritsuko will want to run some more tests on you so I won't get in her way anymore."  
+“嗯，你看起来没事了，再花时间也没意义。我相信律子会想再给你做些检查，我就不再妨碍她了。”
+
+"Thanks, Misato." "谢谢你，美里。"
+
+"Don't worry about it. I am your guardian after all."  
+"别担心。我毕竟是你的守护者。"
+
+That ment a lot to Shinji but he wasn't about to say that. He still had trouble expressing his feelings sometimes.  
+这对真嗣意义重大，但他并不打算说出口。他有时仍难以表达自己的情感。
+
+"I'll see you later today then, with dinner."  
+"那我们今天晚些时候见，一起吃晚饭。"
+
+Shinji tried to not look sick, "Okay I'll be waiting."  
+真嗣努力不让自己看起来想吐，“好的，我会等着。”
+
+When Misato left the room Shinji was about to roll onto his side and fall back asleep when he realized that not everyone had left the room.  
+当美里离开房间后，真嗣正要翻身继续睡，却意识到并非所有人都离开了房间。
+
+"Why did you decide to continue piloting it," asked Rei?  
+“你为什么决定继续驾驶它？”绫波问道。
+
+Shinji sat up slowly and looked at her curiously. Since he had met Ayanami Rei he had only ever seen her talk to himself. Shrugging Shinji said, "I don't know. I feel like I'll regret it if I don't do something I guess."  
+真嗣缓缓坐起身，好奇地看着她。自从遇见绫波零以来，他只见过她对自己说话。真嗣耸耸肩说：“我不知道。我觉得如果我不做点什么，我会后悔的。”
+
+"So you're doing because you want to, not because other people have told you to."  
+“所以你这么做是因为你想做，而不是因为别人叫你做。”
+
+Shinji replied slowly, "Yes other people have asked me to but its still my decision to pilot it."  
+真嗣缓缓回答：“是的，虽然别人请求过我，但驾驶它仍然是我的决定。”
+
+"Are you sure about that?"  
+"你确定吗？"
+
+"I'm me. How can I not be sure about the things that I decide?"  
+"我就是我。我怎么可能不确定自己决定的事情呢？"
+
+Rei then lapsed into silence as though not sure how to continue.  
+丽随后陷入了沉默，仿佛不确定如何继续。
+
+"If your done with questioning me I'd be thankful if you left so I can get some sleep."  
+"如果你问完了，我感激你离开，让我能睡一会儿。"
+
+Rei looked at him curiously for a second and then quietly excused herself from his room.  
+丽好奇地看了他一眼，然后悄悄地离开了他的房间。
+
+Shinji then rolled over onto his side and closed his eyes. However whenever he would he saw the horrible things that were shown to him in the entry plug. He ended up not sleeping that night.  
+真嗣随后侧身躺下，闭上了眼睛。然而，每当他试图入睡时，驾驶舱里看到的可怕景象就会浮现在他眼前。那一晚，他彻夜未眠。
+
+---
+### Chapter 6: Past and Present  
+第六章：过去与现在  
+
+Shinji was released from the hospital earlier then expected as he had recovered surprisingly quickly and he didn't show any signs of mental contamination. So Misato quickly ran home and dropped him off before rushing back to Nerv saying that she'd be working late again and to worry about making enough food for her.  
+真嗣比预期更早出院，因为他恢复得惊人地快，并且没有表现出任何精神污染的迹象。于是，美里急忙跑回家把他放下，然后又匆匆赶回 NERV，说她又要工作到很晚，并叮嘱他为她准备足够的食物。
+
+Shinji was rather hesitant as he stood outside of Misato's apartment. He hadn't talked to Asuka since he had been admitted to the hospital and was worried if she'd blow up in his face. Though he was saved the need to as the door came flying open and almost hit him in the face.  
+真嗣站在美里小姐的公寓外，显得颇为犹豫。自从他住院以来，还没和明日香说过话，担心她会突然发火。然而，他还没来得及敲门，门就猛地被撞开，差点撞到他的脸。
+
+"About time your back, I though I was going to die."  
+“你总算回来了，我还以为我要死了呢。”
+
+Shinji looked up and turned his head quickly as he got a glimpse of Asuka who was in nothing but a red towel. Shinji tried desperately not to think about her in her plug suit then. Asuka however noticed him turn away quickly and looked down at herself apparently just realizing what she was wearing.  
+真嗣抬头迅速瞥了一眼，只见明日香只裹着一条红色毛巾。他拼命不去想她穿着插入栓服的样子。然而，明日香注意到他迅速转过头去，低头看了看自己，显然是刚刚意识到自己穿了什么。
+
+"Ah never seen a girl this close to being naked? Turns you on a little doesn't it?"  
+"啊，没见过女孩穿得这么少吗？是不是有点让你心动了？"
+
+Shinji didn't want to admit that what she said was true so he just pushed past her. "Just get dressed already, I don't know what you're thinking opening the door while wearing nothing but a towel."  
+真嗣不想承认她的话是真的，所以他只是推开她。“快点穿好衣服，我不知道你在想什么，只裹着一条毛巾就开门。”
+
+"If it wasn't you or Misato I would have simply kicked them in the balls, course I might do the same to you anyway."  
+“如果不是你或美里，我早就一脚踢过去了，当然，对你我可能也会这么做。”
+
+Shinji whipped around and faced her. Asuka was rather startled but stood her ground. "What!"  
+真嗣猛地转过身面对她。明日香颇为吃惊，但还是站稳了脚跟。“什么！”
+
+Shinji glared at her for a moment but sighed and said, "Sorry, I'm just a little agitated is all."  
+真嗣瞪了她一会儿，然后叹了口气说：“对不起，我只是有点烦躁而已。”
+
+"I suppose I'd be annoyed too if I had to stay two days stuck in that damn hospital room. Anyway I'm sick of take out food and microwaved meals, I want some real food."  
+“我想如果我得在那个该死的医院房间里呆上两天，我也会很烦的。不管怎样，我吃腻了外卖和微波炉食品，我想吃点真正的食物。”
+
+"Hai, I'll get started." "嗨，我这就开始。"
+
+"Good, and don't-" "好，还有别——"
+
+"No way in hell would I peek, just move it!"  
+"地狱里都没门我会偷看，快挪开！"
+
+Asuka was startled by his outburst and slightly rebuked herself for egging him on. Shrugging she let it drop and walked into her room.  
+明日香被他的爆发吓了一跳，暗自责备自己不该激他。她耸耸肩，不再追究，走进了自己的房间。
+
+"Well, I suppose its adequate to say the least," said Asuka as soon as she finished Shinji's cooking which consisted of her favorite: Sauerkraut.  
+“好吧，至少可以说还算过得去。”明日香一吃完真嗣做的饭就说道，那里面有她最喜欢的酸菜。
+
+Shinji almost snorted. He knew that it was more then adequate and that she had almost been starving herself for two days.  
+真嗣差点笑出声来。他知道那不仅仅是过得去，她几乎已经饿了两天。
+
+"When is Misato supposed to be home anyway," asked Asuka?  
+"Misato 到底什么时候该回家来着？" 明日香问道。
+
+"No idea. Late tonight I think."  
+"不知道。我想应该是今晚很晚吧。"
+
+"Great, well no way am I going to stay here with you."  
+"太好了，那我可不打算和你一起待在这儿。"
+
+"Fine, leave for all I care."  
+“好啊，你走吧，我才不在乎。”
+
+Asuka hadn't really been serious when she had said that she was leaving, she just wanted to see what Shinji's reaction would have been. Though from his reaction she guessed that he really didn't care and was slightly hurt by that.  
+明日香当时说离开并不是认真的，她只是想看看真嗣会有什么反应。但从他的反应来看，她猜他真的不在乎，这让她有点受伤。
+
+"Fine! If you don't care then I will leave!"  
+“好！既然你不在乎，那我就走！”
+
+Standing up abruptly she let her plate fall to the floor and storm off to her room where she tossed on a red sweatshirt with a hood.  
+她猛地站起来，任由盘子掉落在地，气冲冲地跑回房间，套上一件带帽子的红色运动衫。
+
+Shinji had half a mind to stop her and was just about to say he was sorry when she stormed out of her room before pausing and throwing a dirty scowl in his direction. As she turned around Shinji lunged forward and grabbed her wrist and waited for her reaction as she turned slowly around.  
+真嗣本想拦住她，正要开口道歉，她却已经冲出房间，临走前还狠狠地瞪了他一眼。当她转身时，真嗣向前一扑，抓住了她的手腕，等待着她的反应，她缓缓转过身来。
+
+"Let go damn it!" “放开我，该死的！”
+
+Shinji hesitated but let his grip slack, and she was able to wrench her wrist free of his hand. Rubbing her wrist in a confused sort of way she looked back at Shinji who had his eyes angled towards the ground.  
+真嗣犹豫了一下，但松开了手，她得以挣脱他的掌握。她困惑地揉着手腕，回头看向真嗣，他正目光低垂，盯着地面。
+
+'What was that,' she thought? 'He actually seemed strong.'  
+'刚才那是怎么回事？'她心想，'他看起来真的很有力量。'
+
+Ignoring her thought she said. "What, do you want to say something?"  
+她没理会自己的想法，问道："怎么，你想说什么吗？"
+
+Shinji opened his mouth and closed it, unsure of how he should proceed.  
+真嗣张开了嘴又合上，不确定该如何继续。
+
+"If your not going to say anything then I'm leaving!"  
+“如果你什么都不打算说，那我就走了！”
+
+"Wait...Asuka." “等等……明日香。”
+
+Asuka had her hand on the door nob as he said this and paused trying to decide whether she should listen or ignore him. She didn't really want to leave if she was honest with herself. Turning around slowly she said, "I'm listening."  
+明日香手握在门把手上，听到这话时停了下来，试图决定是该听还是无视他。老实说，她并不真的想离开。她缓缓转过身，说道：“我在听。”
+
+Shinji fidgeted slightly before looking up at her hesitantly. "I'm sorry for snapping at you..."  
+真嗣稍微扭动了一下，然后犹豫地抬头看向她。“我为刚才对你发火道歉……”
+
+"What was that?" "那是什么？"
+
+"I'm sorry okay! I didn't mean what I said about not caring. Truth is I do."  
+“对不起，好吗！我刚才说的不是真心话，关于不在乎的那部分。事实上，我确实在乎。”
+
+Asuka frowned at him for a second before walking past him. Shinji winced slightly as he thought that he was going to get hit as she walked by but opened his eyes when he realized that she had already walked past. Sighing in a reassuring way he almost jumped several feet in the air as he heard her whisper behind him, "Good, because I didn't want to in the first place."  
+明日香皱着眉头看了他一秒，然后从他身边走过。真嗣在她经过时微微缩了一下，以为会被打，但睁开眼时发现她已经走过去了。他松了一口气，几乎跳了起来，因为她在他身后低声说：“好，因为我一开始就不想这么做。”
+
+Shinji let out a reluctant smile that he hoped that she wouldn't see. Giving her a few seconds he just had time to see her walking into the living room throwing off the sweatshirt as she walked giving him a brief view of her bareback. Tossing these thoughts to the side he started walking towards the kitchen to clean up when he saw her poke her head into the hallway.  
+真嗣露出了一个不情愿的微笑，希望她没看到。他给了她几秒钟时间，正好看到她走进客厅，边走边脱掉运动衫，让他瞥见了她的裸背。他把这些念头抛到一边，开始走向厨房准备清理，这时看到她探头进了走廊。
+
+"Are you coming or what?"  
+“你来不来？”
+
+Shinji's face showed total confusion as he looked back at her. Asuka sighed in an annoyed sort of way and jerked her finger towards the living room.  
+真嗣的脸上满是困惑，他回头看着她。明日香带着一种恼怒的语气叹了口气，用手指向客厅。
+
+"I'm telling you to get over here. I don't care whether you watch what I'm watching or read a book, but I'm giving you the day off so forget about the dishes. Misato can clean then for once."  
+“我叫你过来。我不在乎你是看我看的节目还是看书，但今天我给你放假，别管洗碗了。让美里自己打扫一次吧。”
+
+Did Shinji hear that right? Did Asuka want to spend time with him actually?  
+真嗣听对了吗？明日香真的想和他一起度过时间吗？
+
+"Uh sure..." “呃，当然...”
+
+As Shinji walked hesitantly into the living room he had to refrain from quickly peeking in. Most of the time when Shinji or Asuka were alone by themselves at home Asuka forbade Shinji from stepping into the living room. So he usually spent most of his time in his bedroom listening to his SDAT.  
+当真嗣犹豫地走进客厅时，他不得不克制自己迅速偷看的冲动。大多数时候，当真嗣或明日香独自在家时，明日香禁止真嗣进入客厅。所以他通常大部分时间都待在自己的卧室里听他的 SDAT。
+
+Asuka was sprawled on her back on the couch with her head tilted up looking at the T.V. She must have heard Shinji cause she sat up briefly and pointed to a spot on the floor. Shinji nodded and ran into his room to grab a book. While she was watching something that wasn't German it was still a Japanese soap opera.  
+明日香仰面躺在沙发上，头向后仰看着电视。她一定是听到了真嗣的声音，因为她短暂地坐了起来，指着地板上的一个位置。真嗣点点头，跑回房间拿了一本书。尽管她看的不是德语节目，但仍然是一部日本肥皂剧。
+
+Even though they were in the same room together, any forms of conversation was dropped dead when they were started. Neither were really sure what to say to the other as they were usually glaring at each other. Several times Shinji tried to ask her something but she either waved him off because it was an important part in her T.V. show or she frowned at him and ignored his question. Shinji was starting to wonder why he had even agreed to be in the living room with her.  
+尽管他们同处一室，任何形式的对话一旦开始便戛然而止。两人都不确定该对对方说些什么，因为他们通常只是互相瞪眼。有好几次，真嗣试图向她提问，但她要么因为电视节目中的重要部分挥手让他走开，要么就皱着眉头无视他的问题。真嗣开始怀疑自己为何要同意和她一起待在客厅里。
+
+Shinji was just starting to think of getting up when a question that he would never thought of normally hit his brain.  
+真嗣正想着起身离开，一个他平时绝不会想到的问题突然闪过脑海。
+
+"Um Asuka?" “呃，明日香？”
+
+"Hmmm?" She was to fixated on her program to reply.  
+"嗯？" 她过于专注于她的程序，以至于没有回应。
+
+"What are your parents like?"  
+"你的父母是什么样的人？"
+
+Shinji could tell that it wasn't something she didn't enjoyed talking about as her entire body seemed to seize up. Attempting to fix what he just uttered he said, "I-I'm sorry. If you don't want to talk about it, its fine."  
+真嗣可以看出这不是她喜欢谈论的话题，因为她的整个身体似乎都僵住了。试图弥补他刚才说的话，他说道："我……我很抱歉。如果你不想谈这个，没关系。"
+
+Asuka slowly turned her head towards him and frowned at him. It wasn't one of her usually frowns which showed annoyance, it was more curious.  
+明日香缓缓转头看向他，皱起了眉头。这不是她通常那种表示不悦的皱眉，而是带着更多的好奇。
+
+"Why do you want to know?" She asked slowly.  
+“你为什么想知道？”她缓缓问道。
+
+Shinji hesitated, "I don't know...I've never really known what a family is like. I told you that my father moved me around from place to place, right."  
+真嗣犹豫了一下，“我不知道……我从来没真正了解过家庭是什么样的。我告诉过你，我父亲总是把我从一个地方搬到另一个地方，对吧。”
+
+Asuka thought about it for a minute and remembered what Shinji had told her after he pilot Unit 01 for the first time. She nodded.  
+明日香想了一会儿，记起真嗣第一次驾驶初号机后告诉她的话。她点了点头。
+
+"I don't have any idea what a family is like because my mother died when I was young. I don't even know what she looked like. I've never been shown pictures of her and my father doesn't seem to care. I was just told that she died in a lab accident. Misato is more of a mother than anyone I've ever known, though I suppose she can double as a father also, with all the beer she drinks."  
+“我对家庭一无所知，因为我母亲在我很小的时候就去世了。我甚至不记得她的样子。从未有人给我看过她的照片，而父亲似乎也不在乎。我只被告知她死于实验室事故。美里比起我所认识的任何人更像一个母亲，尽管我想她也能兼任父亲的角色，毕竟她喝那么多啤酒。”
+
+Asuka had to repress a smile at Shinji's words, though he noticed it anyway.  
+听到真嗣的话，明日香不得不忍住笑意，尽管他还是注意到了。
+
+"So I guess what I'm saying is I just want to know what a real family is like."  
+“所以我猜我想说的是，我只是想知道一个真正的家庭是什么样的。”
+
+There, back to the subject of her family. It was a subject that Asuka hated to discuss and had long since buried painful memories. Turning off the T.V. that she no longer had an urge to watch she looked back at Shinji and said, "I'd rather not talk about it."  
+说到她的家庭，这是一个她讨厌讨论的话题，早已埋藏了痛苦的记忆。她关掉了不再想看的电视，回头看着真嗣说：“我不想谈这个。”
+
+Shinji had expected this when he saw that she seemed to seize up, but was curious anyway.  
+真嗣看到她似乎僵住了，就预料到了这一点，但仍然感到好奇。
+
+"Thats okay, if you don't want to talk about it I can understand that."  
+"没关系，如果你不想谈这件事，我能理解。"
+
+"So you're mother is dead, and you consider Misato to be your mother."  
+"所以你妈妈去世了，而你把美里当成妈妈。"
+
+Shrugging Shinji said, "Compared to all the other roommates that I've ever known she is the most caring out of all them. Though that doesn't mean much as almost all of my other roommates were either partying or drunk."  
+真嗣耸了耸肩说：“与其他我认识的室友相比，她是最关心人的一个。不过这也不算什么，因为我之前的室友几乎不是在聚会就是在醉酒。”
+
+"So then what do you consider me as..."  
+"那么你把我当成什么呢..."
+
+Shinji was caught of guard for a moment and was unsure what to say. He had said that he considered Asuka a friend, the first that he had ever had. But fights between them seemed to break out continuously and it was hard to get along with somebody who seemed ready to kick you in the balls at any second.  
+真嗣一时措手不及，不知该如何回答。他曾说过把明日香视为朋友，这是他人生中的第一位朋友。但两人之间似乎总是争吵不断，与一个随时可能踢你一脚的人相处实在不易。
+
+Shrugging Shinji said, "I honestly don't know anymore."  
+真嗣耸了耸肩，说道：“老实说，我现在真的不知道了。”
+
+Asuka frowned, "And what is that supposed to mean?"  
+明日香皱眉，“那是什么意思？”
+
+"I told you that I considered you a friend, the first one I ever made."  
+“我告诉过你，我把你视为朋友，是我第一个真正交到的朋友。”
+
+"Yeah..." "是啊..."
+
+"We fight so much that I don't know if we even are friends anymore."  
+“我们争吵不断，我都不知道我们是否还算朋友了。”
+
+Asuka looked at Shinji for a minute, confused at what he ment. "What do you mean?"  
+明日香看着真嗣，困惑于他的意思。“你是什么意思？”
+
+"Why are you always picking on me and calling me stupid!" Shinji blurted out. "Why do you always seem to put me down! Have you once cared about how I feel, no! Its all about you, its always been about you."  
+“为什么你总是针对我，叫我笨蛋！”真嗣脱口而出。“为什么你总是贬低我！你有没有一次关心过我的感受，没有！一切都是关于你，一直都是关于你。”
+
+Asuka was silent as Shinji let out all of his frustration about her attitude towards him. She didn't know what to say. It was just how she was. She had never worried about other people's feeling because nobody seemed to care about what she felt. Her own-  
+真嗣将他对明日香态度的所有不满发泄出来，明日香沉默不语。她不知道该说什么。她就是这样的人。她从未担心过别人的感受，因为似乎没有人关心她的感受。她自己的——
+
+"Shinji..." "真嗣..."
+
+"What!" He snapped back. "什么！" 他厉声回应道。
+
+"I'd rather not argue with you right now."  
+"我现在不想和你争论。"
+
+"Who's arguing!" "谁在争辩！"
+
+"Just shut it...please..."  
+"只是闭嘴...请..."
+
+It was the please more than anything that calmed Shinji down. He could never remember hearing her voice as soft as this, or the words please coming out of her mouth.  
+正是这个“请”字，比什么都更能安抚真嗣。他从未记得她的声音如此柔和，或是从她口中听到“请”这个字。
+
+Sitting up, he was about to return to his room as he knew that an outburst from the two of them was soon to follow but he was surprised when her words stopped him.  
+他坐起身来，正准备回到自己的房间，因为他知道那两人很快就会爆发争吵，但她的言语却让他意外地停下了脚步。
+
+"Wait, Shinji..." “等等，真嗣……”
+
+Shinji looked over his shoulder to see Asuka sitting up with a meek expression on her face. "What," he said, but it was much calmer.  
+真嗣回头一看，只见明日香坐起身来，脸上带着温顺的表情。“怎么了？”他问道，语气比平时平静许多。
+
+Asuka leaned back into the couch cushions and bit her lip. "I-I...I'm sorry damn it."  
+明日香向后靠在沙发垫上，咬了咬嘴唇。“我……我……该死，对不起。”
+
+Shinji raised an eyebrow. "You...sorry?"  
+真嗣挑了挑眉。“你……道歉？”
+
+"Yes, is that so weird?"  
+“是的，这很奇怪吗？”
+
+"Actually yes, I've never heard you say you were sorry for anything."  
+"实际上是的，我从没听你说过你为任何事感到抱歉。"
+
+"Well, now you have." "好吧，现在你听到了。"
+
+"And?" "然后呢？"
+
+"And what!" “那又怎样！”
+
+"What is that supposed to do? Your sorry, cool. Not like you can reverse everything that you've ever said or did to me."  
+“那能有什么用？你道歉了，很好。但不像你能收回你对我说的或做的一切。”
+
+Asuka had never received verbal abuse anywhere near close to what Shinji was dishing and felt like she was close to tears.  
+绫波从未遭受过如此接近真嗣所施加的言语伤害，她感到自己快要哭了。
+
+"Damn it Shinji, what do you want me to do!"  
+"该死的真嗣，你到底想让我做什么！"
+
+Shrugging he said, "I don't know. I really don't anymore."  
+他耸耸肩说：“我不知道。我真的不知道了。”
+
+"Tell me then ass-hole!" “那就告诉我，混蛋！”
+
+"This is exactly what I mean. You give no regard to what other peoples feelings are."  
+“这正是我的意思。你丝毫不顾及别人的感受。”
+
+Asuka was slightly abashed but retorted back. "How do you even know what other people's emotion are? You've never had a friend in your life!"  
+明日香略感尴尬，随即反驳道：“你怎么可能知道别人的情绪？你这辈子连个朋友都没有！”
+
+Asuka flinched then as Shinji took several quick steps over to her and was fearful that he was about to hit her, or worse. Instead Shinji glared down at her and said, "I may not have many friends but I understand people a lot better than you."  
+明日香一惊，只见真嗣快步走向她，她害怕他可能会打她，甚至更糟。然而，真嗣只是瞪着她，说道：“我或许朋友不多，但我比你更懂得人心。”
+
+Shinji realized that he had gone to far then as Asuka looked tearfully back up at him. All the anger seemed to drain out of Shinji as he took a few steps back and sank to the floor. Asuka meanwhile laid back down on the couch and turned her body so that she was facing the couch.  
+真嗣意识到自己做得太过分了，因为明日香泪眼汪汪地抬头看着他。所有的怒气似乎都从真嗣身上消失了，他后退了几步，瘫坐在地板上。与此同时，明日香又躺回了沙发上，转身背对着沙发。
+
+After several minutes Shinji broke the silence by saying, "Sorry what I just said, it was rude." She responded by hiccuping slightly.  
+几分钟后，真嗣打破了沉默，说道：“对不起，我刚才说的那些话，太粗鲁了。”她回应时微微打了个嗝。
+
+After several painful moments of deciding whether to continue the conversation, Shinji was about to stand up when he saw that Asuka had beat him to it. Whether she had cried silent tears or whether she had already used them all up he wasn't sure, as her face was dry and looking at him. Seconds later Asuka motioned for him to sit next to her. Shinji twitched at this gesture. He wanted to repair what had already transpired, but wasn't sure if it would even matter.  
+在经过几个痛苦的瞬间决定是否继续对话后，真嗣正要站起来，却发现明日香已经抢先一步。他不确定她是默默流泪还是已经流干了眼泪，因为她的脸是干的，正看着他。几秒钟后，明日香示意他坐在她旁边。真嗣对这个动作有些紧张。他想要修复已经发生的事情，但不确定这样做是否还有意义。
+
+"Are you sure." Shinji asked hesitantly.  
+“你确定吗？” 真嗣犹豫地问道。
+
+Asuka nodded but it was her eyes that Shinji was watching. They showed sincerity and Shinji excepted that.  
+明日香点了点头，但真嗣关注的是她的眼睛。它们流露出真诚，真嗣接受了这一点。
+
+Sitting down silently next to Asuka he glanced at her and saw that her eyes were staring at the ground. 'Give her as much time as she needs,' Shinji told himself.  
+默默地坐在明日香旁边，他瞥了她一眼，发现她的目光凝视着地面。‘给她足够的时间，’ 真嗣对自己说。
+
+After what seemed an eternity Asuka slowly opened her mouth. "I don't know why I always put you down, I really don't. But-" She paused unsure if she should go on. It was still painful. But he shared and now it was her turn.  
+仿佛过了一个世纪，明日香缓缓张开了嘴。“我不知道为什么我总是贬低你，我真的不知道。但是——”她停顿了一下，不确定是否应该继续。那仍然很痛苦。但他分享了，现在轮到她了。
+
+"You could compare our childhoods and see similarities."  
+“你可以比较我们的童年，看看相似之处。”
+
+Shinji was startled to no end and gaped confusedly back at her. "What!"  
+真嗣惊得目瞪口呆，困惑地回望着她。“什么！”
+
+"I said that from the sound of it we both had troubling childhood!"  
+"我说听起来我们俩的童年都不太愉快！"
+
+"You don't have to yell."  
+"你不用这么大声。"
+
+"...Sorry." "...抱歉。"
+
+"Its fine." “没事的。”
+
+Asuka nodded and continued. "My mother like yours died early, she worked at Nerv. I remember her though, slightly. I get my hair from her. My father though...he remarried and we were happy for a while. But then...he caught my stepmother sleeping with another man, and she left him for him."  
+明日香点点头，继续说道：“我母亲和你母亲一样，很早就去世了，她在 NERV 工作。我虽然对她有些模糊的记忆，但我知道我的头发是遗传自她。至于我父亲……他再婚了，我们曾一度过得很幸福。但后来……他发现继母和另一个男人有染，她就为了那个男人离开了他。”
+
+Shinji was silent but a creese was steadily started to form on his forehead.  
+真嗣沉默不语，但他的额头上逐渐皱起了一道纹。
+
+"My father sort of lost it after that...he started drinking heavily. I'd come home some nights and he'd be completely drunk, smelling of booze. Sometimes he'd confuse me for his first wife, my mother, and attack me in a drunken rage. By then I'd starting learning stuff on my own...I think I was six or seven at the time...he rarely remembered my birthdays."  
+那之后，我父亲有点崩溃了……他开始酗酒。有些晚上我回家，他会完全醉倒，满身酒气。有时他会把我错当成他的第一任妻子，也就是我的母亲，然后在酒醉中对我发狂。那时我开始自学一些东西……我想我当时六七岁……他很少记得我的生日。
+
+Shinji's frown was now very noticeable and his knuckles were starting to turn white. He also noticed that Asuka's voice was starting to get softer and softer."  
+真嗣的眉头现在非常明显，他的指节开始变白。他还注意到明日香的声音开始变得越来越轻。
+
+She continued. "My father slept with so many different women over those three years that I can't count the times that he kept me up at night, with his fucking around." It was the first time that her voice showed a hatred that Shinji had not yet seen. It was something that he had never experienced.  
+她继续说道：“那三年里，我父亲和那么多不同的女人睡过，我数不清有多少次他让我彻夜难眠，就因为他那些该死的勾当。”这是她第一次表现出真嗣未曾见过的恨意。这是他从未经历过的情感。
+
+"Several times he'd beat me when he got home, either after a long night of drinking, or after being dumped by another woman. I called 911 several times but each time they showed up he brushed it off as a minor attitude adjustment, saying that I had just had a temper tantrum and that it was all resolved. I don't think I've had a temper tantrum since I was five years old."  
+有好几次，他回家后都会打我，要么是酗酒一夜之后，要么是被另一个女人甩了之后。我多次拨打 911，但每次警察来时，他都轻描淡写地说这只是小打小闹，说我只是发了脾气，事情已经解决了。我不记得自己五岁以后还发过脾气。
+
+"I remember I took a test...on my own, my IQ was high enough for it. I had saved up enough money to pay for it. It was to get into a college in Germany. I studied like crazy and starting to distance myself from my so called father. He realized this but ignored it, saying that I'd turn into a slut like all the other woman that he'd ever met."  
+我记得我参加了一个测试……靠自己的能力，我的智商足够高。我攒够了钱来支付费用。这是为了进入德国的一所大学。我疯狂学习，开始疏远我所谓的父亲。他意识到了这一点，但置之不理，说我也会变成像他遇到过的所有女人那样的荡妇。
+
+Shinji's face was obviously showing rage but he tried to downplay it. Asuka paused here and took a deep and Shinji saw that she hesitated.  
+真嗣的脸上明显带着愤怒，但他试图掩饰。明日香在这里停顿了一下，深吸一口气，真嗣注意到她犹豫了。
+
+"Its okay if you don't want to continue."  
+"如果你不想继续也没关系。"
+
+Asuka shook her head, "I've buried this for so long. I'm rather glad to get it off my chest."  
+明日香摇了摇头，"我埋藏这件事太久了。我很高兴能把它说出来。"
+
+"You sure?" "你确定吗？"
+
+Asuka nodded, and continued. "I had just turned ten, and was excited to get into the college, and get away from my father. He came back one night though, heavily drunk." Asuka's voice broke here and she started to shake uncontrollably. Shinji had never been in a situation like this before and wasn't sure how he should react.  
+"明日香点点头，继续说道：“那时我刚满十岁，满心期待着进入大学，逃离父亲。但有一天晚上，他醉醺醺地回来了。”明日香的声音在这里哽咽了，她开始无法控制地颤抖。真嗣从未遇到过这种情况，不确定自己该如何反应。”
+
+"M-My father attacked me in a drunken rage...he...he mistook me for my mother. For awhile...he had stopped abusing me...because I had called the police so...much that they were suspicious. He didn't...gi..give me a chance to get to the phone." Asuka then put both hands up to her face and mumbled, "He tried...t-to...ra-rape me."  
+"“我父亲在酒醉中对我发起了攻击……他……他把我错当成了我母亲。有一段时间……他停止了对我的虐待……因为我多次报警……他们开始怀疑了。他没……给我机会去打电话。”明日香随后双手捂住脸，喃喃道，“他试图……对我……施暴。””
+
+If Shinji had been clenching something it would have shattered. Boiling hatred the likes of which he never new surfaced. His hatred of his own father couldn't even compare to what he felt like doing to this bastard.  
+"如果真嗣手里握着什么东西，那一定会被他捏碎。他从未感受过如此沸腾的仇恨。他对亲生父亲的恨意与之相比简直微不足道，他此刻只想对这个混蛋施以同样的报复。”
+
+Asuka meanwhile had her faced buried in her hands and was crying silently. She had always built up a strong front, that she was invulnerable to anything. This though was something that she had always buried deep. Nobody knew about this except for the psychiatrist that she met frequently after her father had tried to rape her. Now Shinji knew.  
+与此同时，明日香将脸埋在双手中，默默地哭泣。她总是筑起一道坚强的防线，仿佛无坚不摧。然而，这是她一直深藏心底的秘密。除了她父亲试图强奸她后频繁见面的心理医生，没有人知道这件事。现在，真嗣知道了。
+
+Shinji looked helplessly back at Asuka who was still crying silently. What should he do? Ignore what she said and act as though it was in the past and everything was okay. Maybe if he was the Shinji from several weeks ago he would have. Now was different.  
+真嗣无助地回头看向仍在默默哭泣的明日香。他该怎么办？无视她的话，假装一切都已过去，一切都没事了。或许如果是几周前的他，他会这么做。但现在不同了。
+
+Without even hesitating he leaned his arm behind Asuka's back, which was easy as she was leaning forward with her face buried in her hands. At first he thought about patting her on the back, reassuring her that everything was okay. Instead though he decided to bring her into a comforting hug. Though it appeared that he didn't have to take the initiative as Asuka leaned into it as though waiting for his touch.  
+他毫不犹豫地伸出胳膊，绕到明日香的背后，这很容易，因为她正向前倾，脸埋在双手中。起初，他想过轻拍她的背，安慰她一切都会好起来。然而，他决定给她一个安慰的拥抱。虽然看起来他不必主动，因为明日香似乎一直在等待他的触碰，自然而然地靠了过来。
+
+Soon Shinji had his hands wrapped around Asuka's middle as she cried silently into his shoulder. "Its okay," he mumbled. She seemed glad that somebody was just there for her.  
+"很快，真嗣的双手环绕在明日香腰间，她默默地靠在他的肩上哭泣。“没事的，”他喃喃道。她似乎很高兴有人在她身边。”
+
+After several odd minutes for Shinji, Asuka pulled back as though realizing what she was doing. "Sorry you had to see that."  
+"对真嗣来说，这几分钟显得格外漫长，明日香突然退开，仿佛意识到自己在做什么。“抱歉让你看到这一幕。””
+
+"Don't feel bad about it. Nobody should have to carry something like that. Makes my sufferings seem like a joke."  
+“别为此感到难过。没人应该背负这样的重担。相比之下，我的痛苦简直像个笑话。”
+
+Asuka let out a small hiccup and put a hand to her mouth as though embarrassed by showing this much emotion. "You wont tell anyone, will you."  
+明日香发出一声小小的呃逆，用手捂住嘴，似乎因流露出如此多的情感而感到尴尬。“你不会告诉任何人吧，会吗？”
+
+Shinji shook his head, "I don't even want to think about it. I'm so mad I'd kill him if I saw him right now."  
+真嗣摇了摇头，“我甚至不想去想这件事。我现在气得要是见到他，真想杀了他。”
+
+"You'd have to beat me to it."  
+“你得先过我这关。”
+
+It felt weird that they could talk about something this disturbing so calmly. But Shinji knew otherwise, he knew that Asuka was hurting.  
+他们能如此平静地讨论这样令人不安的事情，感觉很奇怪。但真嗣知道实情，他知道明日香正在受伤。
+
+"We should probably get to bed," Shinji finally said.  
+“我们或许该去睡觉了，”真嗣终于说道。
+
+Asuka nodded her consent and sat up quickly as though determined that she was first to get to her room first. Shinji however caught her wrist, worried about her.  
+明日香点头同意，迅速坐起身来，仿佛决心要第一个回到自己的房间。然而，真嗣抓住了她的手腕，担心着她。
+
+"You're okay right?" “你没事吧？”
+
+Asuka seemed to revert back to her normal self slightly as she said to Shinji, "What, thinking that I'll need somebody to sleep next to tonight?"  
+明日香似乎稍微恢复了平时的样子，对真嗣说：“怎么，以为我今晚需要人陪睡吗？”
+
+Shinji could have laughed, glad that she seemed to be back to her usual teasing self. Playing along he said, "Only if you want me to."  
+真嗣差点笑出声来，很高兴她似乎又回到了平时爱捉弄人的状态。他顺着她的话说：“只要你愿意。”
+
+"Get real. The day I let you sleep with me is the day Third Impact is initiated."  
+"别做梦了。我让你上我的床的那天，就是第三次冲击启动的日子。"
+
+"You better hope that never happens then."  
+"那你最好祈祷那一天永远不会到来。"
+
+Asuka's face turned pink slightly as she just realized the very real possibility of that happening. Marching back to her door she slid it open and slammed it closed with her foot.  
+明日香的脸微微泛红，她刚刚意识到这种可能性确实存在。她快步走回自己的门前，拉开滑门，用脚砰地一声关上。
+
+Shinji sighed at the obvious revert to her usual self. Though he hoped that things would have improved between them. Walking back to his room he opened the door and sat down on his futon, looking up at the ceiling. If only he knew that Asuka was doing the same thing.  
+真嗣对着她明显恢复常态的样子叹了口气。尽管他希望他们之间的关系会有所改善。他走回自己的房间，打开门，坐在被褥上，抬头望着天花板。如果他知道明日香也在做同样的事情就好了。
+
+Breakfast the next morning was subdued from the moment the two entered the kitchen. Misato realized that something must have happened last night between the two, because every time they looked at each other they quickly turned away.  
+第二天早上的早餐从两人进入厨房的那一刻起就显得沉闷。美里意识到昨晚他们之间一定发生了什么，因为他们每次对视后都迅速移开目光。
+
+"Well, I'm off to work, then. See you two later."  
+“那么，我去上班了。再见，你们俩。”
+
+Asuka and Shinji didn't even say anything, or nod for that matter. Shinji didn't want to bring up last night, or rather he wouldn't if Asuka didn't want him to. He really couldn't blame her.  
+明日香和真嗣连一句话都没说，甚至连点头示意都没有。真嗣不想提起昨晚的事，或者说，如果明日香不想让他提，他就不会提。他真的不能怪她。
+
+After a few minutes of silence Shinji said, "Lets get ready for school, I'll start making lunch."  
+沉默了几分钟后，真嗣说道：“我们准备上学吧，我来开始做午饭。”
+
+Asuka nodded and slid off her chair and slowly walked to her room to take a shower and change. Shinji sighed when she was no longer in view. Really he preferred the annoying, slightly bitchy Asuka to the one that he had to walk to school with.  
+明日香点点头，从椅子上滑下来，慢慢走向她的房间去洗澡和换衣服。真嗣在她看不见之后叹了口气。说实话，他更喜欢那个有点烦人、有点泼辣的明日香，而不是现在这个和他一起走到学校的她。
+
+After making their lunches Shinji waited for a while for Asuka to come out of her room fully dressed. However when he didn't even hear the sound of the shower running he walked over to her door and said quietly, "You ready?"  
+做完午餐后，真嗣等了一会儿，希望明日香能穿好衣服从房间里出来。然而，当他连淋浴的声音都没听到时，他走到她的门前，轻声问道：“准备好了吗？”
+
+What came back was her usual tone, "Leave me alone, baka."  
+回应他的是她一贯的语气，“别烦我，笨蛋。”
+
+Shinji sighed and leaned his back against the wall opposite her door. After a moments pause he said, "If you don't want to go to school just say so."  
+真嗣叹了口气，背靠在她门对面的墙上。片刻停顿后，他说道：“如果你不想去学校，直说就好。”
+
+Shinji thought he heard an intake of breath and then the release of the breath. "Fine..."  
+真嗣以为他听到了一声吸气，随后是呼气声。“好吧……”
+
+"I'll get the work that you'll miss."  
+“我会完成你错过的那些工作。”
+
+"Whatever." “随便。”
+
+Shinji thought about opening the door to her room but was afraid that she might throw something at him. So he grabbed his lunch off the counter, turned around and whispered a small, "See you later," before walking out the door.  
+真嗣考虑过打开她房间的门，但又害怕她会朝他扔东西。于是他拿起柜台上的午餐，转过身，轻声说了句“再见”，然后走出了门。
+
+Asuka meanwhile had her face buried in her pillow, trying to forget about her past.  
+与此同时，明日香把脸埋在枕头里，试图忘记她的过去。
+
+School seemed rougher for some reason without Asuka with him. Maybe it was the fact that half the school seemed to think that they were going out and Asuka would kill them if they said anything bad to Shinji. So Shinji was battered with questions repeatedly about where Asuka was. At one point somebody asked where his bitch was, referring to Asuka. Shinji had almost smashed the guy's head on the sink fountain, but Kensuke pulled him away before he had a chance to.  
+不知为何，没有明日香在身边，学校的生活似乎更加艰难。也许是因为学校里有一半人认为他们在交往，而明日香会杀了那些对真嗣说坏话的人。因此，真嗣不断被问及明日香在哪里。有一次，有人问他的婊子在哪里，指的是明日香。真嗣差点把那家伙的头撞到水池上，但健介及时把他拉开了。
+
+So Shinji stormed up the stairs to the top of the school were he usually went for seclusion and was very annoyed that Kensuke was following him with a rather reluctant Touji behind him.  
+于是真嗣气冲冲地跑上楼梯，来到学校顶楼，那是他常去寻求独处的地方，却非常恼火看到健介跟在他后面，而圭介则有些不情愿地跟在健介后面。
+
+"Shinji what the fuck was that all about?" Kensuke rarely swore unless something was really bothering him.  
+“真嗣，那他妈的到底是怎么回事？”健介很少骂人，除非真的有什么事让他很烦心。
+
+"Shut it Kensuke!" “闭嘴，健介！”
+
+"Ah did you two get in a fight," smirked Touji.  
+“啊，你们俩吵架了？” 东治带着一丝嘲笑问道。
+
+Shinji rounded on him, grabbed him by the front of his shirt and yelled, "SHUT THE FUCK UP!" These bastards couldn't understand the torment that Asuka was dealing with right now.  
+真嗣转身面对他，抓住他的衬衫前襟大喊：“闭嘴！”这些混蛋根本不懂明日香现在正在经历的痛苦。
+
+Touji seemed rather startled and took a few steps backwards as soon as Shinji let go of him. Shinji was a lot stronger then he had given him credit for.  
+东治显得相当惊讶，一被真嗣放开就后退了几步。真嗣比他之前认为的要强得多。
+
+"Damn, don't have to flip out over a stupid comment," said Touji.  
+"该死，没必要因为一句蠢话就发飙吧，" 东治说道。
+
+"You have no idea what your talking about so just shut the fuck up!"  
+"你根本不知道自己在说什么，所以就他妈的闭嘴吧！"
+
+"Ah, did you get her pregnant and now you've got to man-up because of it."  
+"啊，你是不是把她搞怀孕了，现在得像个男人一样承担责任了。"
+
+Shinji probably would have cracked Touji's skull open then if Rei didn't come walking onto the scene. To any normal person who saw what was going they would have ran to the nearest teacher and got the fight broken up. Rei however gave no noticed that Shinji was just about to kill someone and said calmly, "Shinji the principal wants to see us."  
+如果不是绫波零恰巧走进现场，真嗣可能当时就真的把冬二的头骨打裂了。换作任何一个普通人看到这一幕，都会立刻跑去找最近的老师来制止这场斗殴。然而，绫波却似乎没注意到真嗣差点杀了人，只是平静地说道：“真嗣，校长要见我们。”
+
+Shinji's face relaxed slightly as he looked back at her. "Both of us?"  
+真嗣回头看向她，脸上的表情稍微缓和了一些。“我们两个都要去吗？”
+
+Rei nodded silently, turned, and walked back down the flight of stairs.  
+绫波默默地点了点头，转身走下了楼梯。
+
+Shinji waited a few seconds, still deciding whether he should smash Touji's head in. After deciding the last thing he needed right now was expulsion, he gave both of them a disgusting look, and followed Rei at a brisk pace down the stairs.  
+真嗣等了几秒钟，仍在犹豫是否应该砸烂冬二的脑袋。在决定眼下最不需要的就是被开除后，他给了他们一个厌恶的眼神，然后快步跟上绫波，走下楼梯。
+
+After a hasty discussion with the principle, in which Shinji had learned that Misato had called the school when Asuka didn't answer hers, the two learned that an angel had appeared off the coast of China and had reduced the defense there to rubble.  
+在与校长匆忙讨论后，真嗣得知美里在明日香没有接电话时联系了学校，两人得知一个使徒出现在中国沿海，并将那里的防御设施化为废墟。
+
+Now the two of them were racing along in a Nerv jeep that had picked them up moments before. Shinji was tempted to run home really quick and grab Asuka, but decide that she didn't need a life or death battle right now.  
+此刻，他们正乘坐一辆 NERV 的吉普车疾驰，这辆车在片刻前接上了他们。真嗣本想迅速跑回家带上明日香，但转念一想，她现在并不需要经历一场生死之战。
+
+The entrance to the Geofront may have been ten miles away from school but the driver made in there in seven minutes. Shinji rolled out of the car and for once wishing that Misato had been driving. Rei jumped out of the jeep quite effortlessly and started trotting slightly towards the command center.  
+虽然前往地底都市的入口离学校有十英里远，但司机仅用七分钟就到达了。真嗣从车里滚了出来，这次他竟然希望是美里在开车。绫波轻松地跳下吉普车，开始小跑着向指挥中心前进。
+
+Misato greeted them and the gave them a few minor details. The angel seemed to be able detect when a hostile enemy approached and responded directly to that attack obliterating it in an instance. China apparently had discovered a weakness in its attack pattern though. A small window of three seconds appeared during which it wasn't able to use its positron particle beam. They were supposed to be aiming for that narrow window. Unit 00 would attack the target while Unit 01 would use a positron rifle to shoot it straight through the middle where the core was expected to be. Asuka was supposed to provide back up for Rei if anything happened but things had changed and Shinji was now pulled aside as Misato asked about Asuka.  
+美里迎接了他们，并提供了一些细节。天使似乎能探测到敌意接近并直接回应攻击，瞬间将其消灭。不过，中国显然发现了其攻击模式中的一个弱点。在三秒钟的短暂窗口期内，它无法使用阳电子粒子束。他们应该瞄准这个狭窄的窗口。零号机将攻击目标，而初号机则使用阳电子步枪直接射击预计的核心位置。原本应该是明日香为绫波提供支援，但情况有变，真嗣被拉到一旁，美里询问关于明日香的事情。
+
+"How come Asuka wasn't at school?"  
+“为什么明日香不在学校？”
+
+Shinji had just changed into his plug suit and was still trying to get used to the feeling of the fabric. Without averted his eyes from Misato he said, "She said she was sick, didn't feel well."  
+真嗣刚刚换上他的插入栓服，还在努力适应布料的感觉。他没有将视线从美里身上移开，说道：“她说她生病了，感觉不太好。”
+
+Misato frowned, "But why didn't you pick her up on the way here? Rei's job becomes much for dangerous without the backup from Asuka."  
+美里皱起眉头，“但你为什么不在来的路上接她呢？没有明日香的支援，丽的工作会危险得多。”
+
+Shrugging Shinji said, "I didn't think she'd be able to concentrate properly."  
+真嗣耸了耸肩说：“我觉得她可能无法集中注意力。”
+
+Misato frowned, "While I'm glad that you're worried about her, concentration isn't affected by temporary things like that."  
+美里皱了皱眉，“虽然我很高兴你担心她，但专注力不会被那种短暂的事情影响。”
+
+"I'll keep that in mind next time."  
+“下次我会记住的。”
+
+Shinji passed Misato without another word, while Misato was slightly surprised. Did she and Shinji just have there first argument?  
+真嗣没再多说一句话就从美里身边走过，美里有些惊讶。难道她和真嗣刚刚第一次吵架了？
+
+Soon Shinji was sent up elevator number five which would take him directly to the positron rifle. The angel, dubbed Ramiel, was hovering directly above Tokyo-3 as though waiting for something.  
+很快，真嗣被送上了五号电梯，这将直接带他到达阳电子步枪处。被命名为雷米尔的天使正悬浮在第三新东京市上空，仿佛在等待着什么。
+
+Shinji quickly adjusted the positron rifle and aimed his sights down at the target. "Misato I've got the angel in my sights."  
+真嗣迅速调整了阳电子步枪，将瞄准镜对准目标。“美里，我已经锁定天使了。”
+
+Misato didn't answer him at first but instead checked a monitor on the screen. It showed that Shinji's sync rate was currently holding steady at fifty-nine.  
+美里起初没有回答他，而是检查了屏幕上的一个监视器。显示真嗣的同步率目前稳定在五十九。
+
+'Well, he's improved so I suppose that I won't reprimand him for his attitude earlier,' thought Misato.  
+'嗯，他进步了不少，我想我不会因为他早先的态度而责备他了，'Misato 心想。
+
+Turning back towards the monitor she said, "Okay Shinji. We've got one shot at this before we have to recharge the rifle, so make it count."  
+她转回监控器前，说道：“好了，真嗣。我们只有一次机会，之后就得给枪充电，所以务必命中。”
+
+Shinji nodded and disengaged the radio from Misato. He needed to focus solely on hitting his target. Almost immediately thoughts of Asuka rushed through his head as he wondered how she was cooping back home. He was quick to push these thoughts aside though as he saw Rei take action.  
+真嗣点点头，断开了与 Misato 的无线电联系。他需要全神贯注地击中目标。几乎立刻，关于明日香的思绪涌入脑海，他好奇她在家里是如何应对的。但他很快把这些念头抛开，因为看到绫波采取了行动。
+
+Unit 00 dashed down the slope at break neck speed and charged head on at the angel. Sensing danger the angel quickly sent out a particle beam at Unit 00. Twisting around, Unit 00 jumped out of the way as the mass of energy flew past it, torching the earth behind it.  
+零号机以惊人的速度冲下斜坡，直面天使发起冲锋。感受到威胁的天使迅速发射出一束粒子光束。零号机一个扭身，跳跃避开，那团能量擦身而过，将后方的大地烧焦。
+
+Shinji knew that he would have only one chance and that he would have to choose it extremely carefully. He watched as Rei dodged another mass of energy.  
+真嗣明白他只有一次机会，必须极其谨慎地选择。他看着绫波再次躲过一团能量。
+
+Unit 00 started jumping from one spot to another, trying to get the angel to shoot at it. However the angel did not sense an immediate threat and paused once more.  
+零号机开始从一个地点跳到另一个地点，试图引诱天使射击。然而，天使并未察觉到即刻的威胁，又一次停顿下来。
+
+"I'm detecting high heat sources inside of the angel commander."  
+"我检测到天使指挥官内部有高温热源。"
+
+Misato spun around and quickly looked as the angel's heat parameters were put on screen.  
+美里迅速转身，目光紧随着天使的热参数被投射到屏幕上。
+
+Misato looked at it for a moment. It seemed as though the angel was building up a large amount energy at the very bottom of its body.  
+美里凝视片刻，似乎天使正在其身体底部积蓄大量能量。
+
+"Shit!" "该死！"
+
+Everyone looked around the control room as Misato swore. Biting her nail she glared back at the monitor and thought, 'With that much energy built up, that angel will be able to puncture a hole directly to the Geofront.'  
+当美里咒骂时，控制室里的每个人都环顾四周。她咬着指甲，怒视着监视器，心想：'能量积累到这种程度，那个使徒将能够直接穿透到地底都市。'
+
+Grabbing a nearby headset she quickly yelled into it alerting Shinji and Rei, "Rei, Shinji, back off, we've got a problem."  
+她抓起旁边的耳机，迅速向真嗣和丽喊道："丽，真嗣，撤退，我们有麻烦了。"
+
+Shinji let out a giant breath as he was just mentally preparing himself to fire. Rei and Unit 00 quickly backed away to where Shinji and Unit 01 were laying down in the grass with the positron rifle.  
+真嗣深吸了一口气，正准备开火。绫波和零号机迅速后退到真嗣和初号机所在的地方，他们正躺在草地上，手持阳电子步枪。
+
+"What's wrong Misato?" “怎么了，美里？”
+
+"I have no idea if its a problem or not but the angel is showing strong heat signatures at the lowest point of its body. If enough energy is built up the possibility of it tearing directly through the forty-five layers of steel to the Geofront."  
+“我不确定这是否是个问题，但使徒在其身体最低点显示出强烈的热信号。如果能量积累足够，它有可能直接撕裂四十五层钢板，直达地底都市。”
+
+Everyone was silent in the command center. Shinji didn't have enough knowledge of what was inside the Geofront to understand the severity of this.  
+指挥中心内一片寂静。真嗣对地下都市的了解不足，无法理解这一情况的严重性。
+
+"I want an estimate of how long we have until enough energy is built up to pierce the layers."  
+“我要一个估计，看看我们还有多少时间，直到能量积累到足以穿透地层。”
+
+"Umm judging by the power of an individual positron wave, the computer shows that we have ten minutes to stop the discharge."  
+“呃，根据单个阳电子波的威力，电脑显示我们还有十分钟来阻止放电。”
+
+"Shinji is the positron gun still ready."  
+"真嗣，阳电子炮准备好了吗？"
+
+"Hai." "嗨。"
+
+"Good, ten minutes is a long time. Get to it. Rei, cover him, if the angel shows any signs of attacking Shinji."  
+"很好，十分钟时间很充裕。开始吧。绫波，如果使徒有攻击真嗣的迹象，掩护他。"
+
+"Hai." "嗨。"
+
+Misato then sank down in her chair and let out a low sigh. 'I'm gonna need a long time at the bar to clear this one up.'  
+美里随后坐回椅子上，低声叹息道：'看来我得在酒吧里待上好一阵子才能理清这事儿了。'
+
+Shinji quickly readjusted his sights on the angel again and waited patiently for an opening.  
+真嗣迅速重新调整瞄准天使的视线，耐心等待着机会。
+
+Unit 00 charged again down the hill towards the angel. This time the angel, sensing danger, split itself into an exact replica. Two blue diamonds were now floating over Tokyo-3. The replica fire off a positron beam directly at Unit 00. Rei managed to roll out of the way as the positron beam flew over her.  
+零号机再次冲下山坡，向天使发起冲锋。这次，天使察觉到了危险，分裂成了一个完全相同的复制品。两个蓝色钻石现在悬浮在第三新东京市上空。复制品发射出一道正电子光束，直奔零号机。绫波设法翻滚避开，正电子光束从她上方掠过。
+
+Kicking up dirt as she skidded across the ground, Rei spun around and barely managed to dodge another wave as it almost tore off Unit 00's left arm. Running parallel on the side of a hill Unit 00 jumped in the air and went flying towards the replica of the angel. The replica fired off a positron wave which Rei was forced to roll over to avoid.  
+绫波滑行在地面上，扬起尘土，转身时险些躲过另一波攻击，差点撕裂零号机的左臂。沿着山坡侧面并行奔跑，零号机一跃而起，向天使的复制品飞去。复制品发射出一道正电子波，绫波被迫翻滚躲避。
+
+Unit 00 suddenly did a downward dive at the angel. The replica put forth an AT-field as Unit 00 neared it. Copying its enemy, Rei put forth the most power full AT-field that she could muster and ripped a small hole open in the replica's AT-field. Quick as a flash she drew the progressive knife in the shoulder holster of her Eva and threw it straight through the opening. The progressive knife made a deep puncture directly where the positron wave was fired.  
+零号机突然向使徒俯冲下去。复制体在零号机接近时展开了 AT 力场。模仿对手，绫波竭尽全力展开了她所能施展的最强 AT 力场，并在复制体的 AT 力场上撕开了一个小洞。她迅速从 Eva 肩部的枪套中抽出高频刀，径直穿过那个缺口投掷过去。高频刀深深刺入了正发射阳电子波的位置。
+
+Suddenly the angel let out an ear splitting shriek that sounded like finger nails on a chalk bored. A white light appeared from inside the replica and soon filled the entire of Tokyo-3 in a blinding white light. Then, it started to fall apart. The white turn to black instantly and the seemed to be falling apart, piece by piece, almost as if it was a puzzle. The replica imploded on itself and showered Tokyo-3 in small droplets of black blood.  
+突然，使徒发出了一声刺耳的尖叫，听起来像是用指甲刮擦黑板。一道白光从复制体内部发出，很快整个第三新东京市都被这耀眼的白光笼罩。随后，它开始崩解。白色瞬间转为黑色，仿佛一块块拼图般，一片片地崩落。复制体自我坍缩，将第三新东京市洒满了黑色的血滴。
+
+Shinji's concentration was halted for a second as he watched this all unfold but heard Misato yelling something.  
+这一切的发生让真嗣的注意力中断了一瞬，但他听到了美里在喊些什么。
+
+"Six minutes until penetration, and what the hell happened to the angel."  
+"还有六分钟就要穿透了，天使到底怎么了。"
+
+Shinji did a double take and looked down the barrel of the positron rifle. She was right! The angel had disappeared, most likely when the replica had imploded and blinded everyone.  
+真嗣定睛一看，顺着阳电子步枪的枪管望去。她说得没错！天使不见了，很可能是在复制体坍缩并让所有人失明的时候消失的。
+
+"Kuso! Where is it!" "该死！它去哪儿了！"
+
+Looking wildly around Shinji tried to get a fix on the angel's position.  
+真嗣疯狂地环顾四周，试图确定使徒的位置。
+
+"Large heat source directly behind Unit 01, commander," said an operative.  
+“指挥官，Unit 01 正后方有大型热源，”一名操作员报告道。
+
+Without even thinking Misato yelled, "Shinji get out of there!"  
+米莎毫不犹豫地大喊：“真嗣，快离开那里！”
+
+Shinji didn't even hesitated, and Unit 01 rolled to its left as a particle wave melted the rifle which was their only source of hope. Shinji rolled out of the way as another wave barely missed him. Kicking up off the ground he was greeted by a giant shadow that was hovering directly above him.  
+真嗣毫不犹豫，初号机向左翻滚，一道粒子波瞬间融化了他们唯一的希望——那把步枪。真嗣一个翻滚躲开另一道几乎擦身而过的波束。他一脚蹬地跃起，迎面而来的是一个巨大的阴影，正悬停在他正上方。
+
+Shinji had never really experienced true fear until now. Every other time that he had been inside an Eva he had reacted on his emotions, or let the voice fix it for him. This time though, time seemed to freeze itself as he saw the particle wave coming at him in slow motion. Moving didn't even seem to register in his mind until the last moment when it seemed pointless.  
+真嗣从未真正体验过此刻的恐惧。以往每次驾驶 EVA 时，他都是凭情绪行事，或是让内心的声音替他解决。但这一次，时间仿佛凝固，他眼看着粒子波以慢动作袭来，移动的念头直到最后一刻才在脑海中闪现，似乎已毫无意义。
+
+Rei appeared directly in front of the angel with a heat shield and blocked the full force of the attack. Deploying her AT-field to the limit she was able to defend Shinji for a certain amount of time.  
+绫波丽直接出现在使徒面前，展开热盾挡下了攻击的全部威力。她将 AT 力场发挥到极限，为真嗣争取了一定的时间。
+
+Shinji didn't even move, couldn't for some reason. This selfless act of throwing your life away in the way to protect somebody was chivalrous.  
+真嗣甚至没有动弹，不知为何无法动弹。这种无私地牺牲自己生命以保护他人的行为，是骑士精神的体现。
+
+"...Rei..." He didn't expect a response but he got one nonetheless.  
+"...绫波..." 他并未期待回应，但仍然得到了回应。
+
+"Ikari...kun." "碇...君。"
+
+Shinji froze, it was the first time that she had said his name. Realizing where he was and how stupid he was be he stood up next to Rei and deployed his own AT-field to the limit. The combination was enough to shatter the angels own AT-field and halt its attack for a moment.  
+真嗣愣住了，这是她第一次叫他的名字。意识到自己的处境以及有多愚蠢，他站到绫波身边，将自己的 AT 力场发挥到极限。两者的结合足以粉碎天使的 AT 力场，并暂时阻止了它的攻击。
+
+Turning around the two sprinted down the bank and quickly ducked down behind some buildings. Shinji took a quick look at Unit 00's arms. If he had stopped her in time the arm might be gone. The heat shield was melted to an indistinguishable wad of mental, and the hand that held it was slightly twisted. Shinji couldn't imagine what the temperature inside the entry plug had been.  
+两人转身沿着河岸疾跑，迅速躲到一些建筑物后面。真嗣快速看了一眼零号机的手臂。如果他及时阻止了她，那手臂可能已经消失了。热盾被熔成了一团难以辨认的金属块，握着它的手也有些扭曲。真嗣无法想象插入栓内的温度有多高。
+
+"You okay, Rei?" His voice held general concern.  
+“你还好吗，绫波？”他的声音中带着普遍的关切。
+
+Silence from her entry plug for a minute in which Shinji started to get worried, then he heard a small voice.  
+从她的插入栓里沉默了一分钟，这让真嗣开始感到担忧，随后他听到了一个微弱的声音。
+
+"Yes, I am." “是的，我在。”
+
+"Good. I'm glad." “太好了。我很高兴。”
+
+"You're glad." It wasn't a question, it was a statement.  
+"你很高兴。" 这不是一个问句，而是一个陈述。
+
+"Course I'm glad. You're a friend, if something happens to you I'd be worried."  
+"当然高兴。你是朋友，如果你出了什么事，我会担心的。"
+
+Rei was silent for a moment and the said, "Friend?"  
+丽沉默了一会儿，然后说："朋友？"
+
+"Yeah, you an Asuka are both my friends."  
+“是啊，你和明日香都是我的朋友。”
+
+Before either of them could say a word a positron wave tore straight through the building in between them. Rei and Shinji jumped backwards as they saw the angel slowly coming nearer, a faint glow now underneath it.  
+在他们能说出一个字之前，一股阳电子波直接穿透了他们之间的建筑物。真嗣和绫波跳向后方，看到天使缓缓靠近，其下方隐约发出微光。
+
+"Damn it, only three minutes left." Shinji looked wildly around for something that might be able to help them...with out much luck. So he did the only thing that he knew that had a chance of working. Concentrating deeply he reached into the very depths of his subconscious. He felt nothing but the LCL fluid around him and inhaled deeply, taking in the smell of blood which he would likely never get used to.  
+“该死，只剩三分钟了。”真嗣疯狂地四处寻找可能帮助他们的东西……但运气不佳。于是他做了唯一知道有可能奏效的事。他深吸一口气，集中精神，深入到潜意识的深处。他只感觉到周围的 LCL 液体，深吸一口气，闻到了血腥味，这味道他可能永远都无法习惯。
+
+"Unit 01's sync rate is climbing!"  
+"初号机的同步率正在上升！"
+
+Misato stopped biting her nail and looked wildly around. "What!"  
+美里停止咬指甲，慌乱地四处张望。“什么！”
+
+"The pilot of Unit 01 is syncing perfectly with Unit 01. Sync rate climbing, sixty-one...no sixty-two...sixty-three."  
+"初号机的驾驶员与机体同步率完美匹配。同步率上升，六十一……不，六十二……六十三。"
+
+Misato watched, surprised at Shinji's sudden improvement. 'Is this what happens when he actually tries,' she wondered?  
+美里惊讶地看着真嗣突然的进步。'这就是他真正努力时的样子吗？'她暗自思忖。
+
+As Shinji opened his eyes he felt the LCL fluid change. It was comfortable now for him, as though he had always belonged there. The temperature had changed also. It was warm not, like a giant quilt that was tossed over him, and he didn't even seem to taste the blood anymore.  
+当真嗣睁开眼睛时，他感觉到 LCL 液体的变化。现在对他来说很舒适，仿佛他一直属于那里。温度也变了，现在温暖如同一床巨大的被子盖在他身上，他甚至不再尝到血液的味道。
+
+"What happened?" “发生了什么？”
+
+"_You finally accepted the Eva and in doing so the Eva has accepted you."_  
+"你终于接受了 Eva，而 Eva 也因此接受了你。"
+
+"How come you weren't with me the entire time?"  
+"为什么你不是一直陪在我身边？"
+
+"_Sad that I wasn't giving you instruction?"_  
+"因为我没有一直在指导你而感到难过吗？"
+
+"Not really. Just that whenever I've had a problem you've taken over."  
+"并不是真的。只是每次我有问题时，你总是接手处理。"
+
+"_I wanted you to have to deal with it on your own. You did better than I expected actually."_  
+"我希望你能自己解决。实际上，你做得比我想象的还要好。"
+
+"Great, well I need help now!"  
+"太好了，现在我需要帮助！"
+
+"_You sure you want to go through with this?"_  
+"你确定要这么做吗？"
+
+"Of course, even if I end up in the infirmary again."  
+"当然，即使我再次进医务室。"
+
+"_Thats what I like to hear."_  
+"我就喜欢你这种精神。"
+
+Shinji was prepared for it this time but it still freaked him out. Nerves from the Eva snaked its way along his skin, piercing into him and connecting with his own nerves. Next he felt like a white, hot poker, pierced into the side of his temples. Droplets of blood leaked from the small holes in his skin and soon blended with the LCL fluid. Strangely the smell of the LCL fluid and his own blood seemed to relax him. Almost as if the two blending together harmonized with him.  
+这次真嗣有所准备，但仍感到惊慌。Eva 的神经沿着他的皮肤蜿蜒，刺入他的体内，与他的神经相连。接着，他感觉像是被一根白热的拨火棍刺入太阳穴。血滴从皮肤上的小孔中渗出，很快与 LCL 液体混合。奇怪的是，LCL 液体的气味和他自己的血混合在一起，似乎让他放松了。仿佛这两者融合在一起，与他产生了和谐共鸣。
+
+"_Blood pressure normal. LCL fluid density has been changed. How does it feel?"_  
+“血压正常。LCL 液体密度已调整。感觉如何？”
+
+"Right...somehow." “还行……算是吧。”
+
+"_Good, you're getting used to it."_  
+"很好，你已经习惯了。"
+
+"I still feel disgusted by it."  
+"我还是觉得恶心。"
+
+"_You really should be used to it by now."_  
+"你现在真的应该习惯了。"
+
+"Forget it!" "算了吧！"
+
+"..._Fine_." "……好吧。"
+
+Unit 01 shuddered violently as it let out a violent roar, ripping apart the bracers that secured the mouth shut. Arching its back, it got down on all fours and kicked off against the ground, ripping apart the ground as it charged. Shinji felt as though had something had grabbed him behind the collar and jerked him backwards at the sudden change of movement. He wasn't even in control anymore.  
+初号机剧烈颤抖着，发出一声狂暴的咆哮，撕裂了固定嘴巴的支架。它弓起背，四肢着地，猛地蹬地向前冲去，地面被撕裂开来。随着突如其来的动作变化，真嗣感觉像是有人抓住了他的后领猛地向后一拽。他甚至已经无法控制自己了。
+
+Jumping through the air, Unit 01 raised both its fists and brought them down on the angels AT-field. Letting out an earsplitting roar it repeated bashed its fists against the AT-field.  
+跃入空中，01 号机双拳高举，猛地砸向天使的 AT 力场。伴随着震耳欲聋的咆哮，它不断用拳头猛击 AT 力场。
+
+"_Help me out here. I need you to concentrate."_  
+“帮我一把，集中精神。”
+
+"I'm trying, damn it!" “我在努力，该死！”
+
+"_Well try harder."_ “那就再努力些。”
+
+Shinji concentrated harder and felt the LCL fluid change drastically. The controls inside the entry plug disintegrated and changed into LCL fluid. Then Shinji felt a burning sensation start at his feat and creep up to his head. His plug suit was slowly dissolving. Soon Shinji was completely naked and floating inside the entry plug with nothing holding him except the nerves of the Eva.  
+真嗣更加集中精神，感觉到 LCL 液体发生了剧烈变化。插入栓内的控制装置分解并转化为 LCL 液体。随后，真嗣感到一种灼热感从脚底开始蔓延至头部。他的驾驶服正在慢慢溶解。不久，真嗣便完全赤裸，仅靠 EVA 的神经悬浮在插入栓内。
+
+Unable to move his body he thought in his mind.  
+身体无法动弹，他在心中思索着。
+
+'What is this?' “这是什么？”
+
+'_True synchronization.'_ “真正的同步。”
+
+Unit 01 then stopped attacking sporadically and jumped backwards, glaring at the angel, almost like it had a mind now. Shinji then projected his thoughts in his own mind which were received by the Eva, via the connected nerves. Unit 01 then took off again, charging at the angel. This time though, instead of attacking randomly, it smashed its fists into the AT-field of the angel. Unit 01 quickly generated its own AT-field and attempted to rip apart the angels own AT-field.  
+初号机随即停止了零星的攻击，向后一跃，瞪着使徒，仿佛此刻它也有了意识。真嗣在心中投射出自己的想法，通过连接的神经被 EVA 接收。初号机再次启动，向使徒冲去。这一次，它没有盲目攻击，而是用拳头猛击使徒的 AT 力场。初号机迅速生成自己的 AT 力场，试图撕裂使徒的 AT 力场。
+
+Digging its nails into the angels AT-field it was able to open up a small hole. Quickly thrusting its head into the hole it let out a roar that shattered the remains of the angels AT-field. Quick as a flash, Unit 01 smashed both its fists into the side of the angel. The angel seemed to crumble slightly as Unit 01 repeatedly smashed its fists directly into the side of the angel.  
+它用指甲刺入天使的 AT 力场，成功撕开了一个小洞。迅速将头探入洞中，发出一声咆哮，震碎了天使剩余的 AT 力场。零一机敏如闪电，双拳猛击天使的侧面。天使似乎微微崩塌，零一不断用拳头直接击打天使的侧面。
+
+As Unit 01 was about to smash its fists into the side of the angel again, the angel quickly shifted so that it was able to fire its positron wave. A quick red flash appeared as the angel fired. Shinji reacted quicker though. Putting all his thoughts into the Eva's AT-field he projected a cone like AT-field which deflected the attack and sent it back towards the angel. The angel was able to deflect it though by firing another positron wave, make the first veer of course. That was all Shinji needed.  
+正当零一准备再次用拳头击打天使的侧面时，天使迅速移动，发射出正电子波。一道快速的红光闪现，天使开火了。但真嗣反应更快。他将所有思绪集中在 EVA 的 AT 力场上，投射出一个锥形 AT 力场，将攻击偏转并反弹回天使。天使虽然通过发射另一道正电子波改变了第一道波的轨迹，但这正是真嗣所需要的。
+
+Reacting to the three second window, Unit 01 quickly appeared in front of the angel, grabbing both sides of it. Gripping the sides of the angel, Unit 01 dug its fingers into the angel and by projecting a large AT-field between the two hands, tour off a large chunk of the angel. Black blood poured from the open wound and several large organs, caked with a substance like bone marrow, fell to the ground.  
+在三秒窗口期内，初号机迅速出现在使徒面前，双手紧抓其两侧。初号机用手指深深嵌入使徒体内，通过在双手间投射出巨大的 AT 力场，撕下了一大块使徒的肉体。黑色的血液从撕裂的伤口中涌出，几块沾满类似骨髓物质的巨大器官也随之坠地。
+
+Unit 01 let out a ferocious roar as it thrust its head directly into the open wound. Flesh and blood poured forth as Unit 01 dug inside the body of the angel. Shinji was slightly repulsed as he could feel the slimy taste of the flesh and the iron like blood pouring through his mouth, but he had to find it.  
+初号机发出一声凶猛的咆哮，将头部直接插入那敞开的伤口中。血肉横飞，初号机深入使徒体内挖掘。真嗣感到一丝恶心，他能感受到那滑腻的肉质和铁锈般的血液涌入口中，但他必须找到那个东西。
+
+After a few seconds of digging Unit 01 paused and ripped its head out the wound of the angel. The head was dripping in blood and some was pouring from the mouth. Something was in its mouth though, a red object that looked similar to a marble. With a quick clench of the teeth the red marble shattered and fell from the Eva's teeth.  
+挖掘了几秒钟后，初号机停顿了一下，猛地将头从使徒的伤口中抽出。头部滴着血，有些血从口中流出。但它的嘴里确实含着什么，一个红色的物体，看起来像颗玛瑙。随着牙齿的迅速一咬，红色玛瑙碎裂，从 EVA 的齿间掉落。
+
+With the core of the angel removed and destroyed the angel seemed to twist and writhe. Large chunks of flesh started to fall off and sink to the ground. Shinji watched this all in slow motion from the eyes of the Eva.  
+随着天使的核心被移除并摧毁，天使似乎开始扭曲和蠕动。大块的肉体开始脱落并沉向地面。真嗣通过 Eva 的眼睛，以慢动作目睹了这一切。
+
+"Pattern blue has disappeared, the angel has been defeated."  
+「蓝色模式已消失，天使已被击败。」
+
+Misato let out a shaky laugh and sank in her chair. She didn't even want to know how much time was left. Shinji's performance was incredible though. His sync rate read at seventy-two when he had disengaged combat. Even so the way he initiated combat was both reckless, and slightly scary. He didn't seem to show any emotion.  
+美里发出颤抖的笑声，瘫坐在椅子上。她甚至不想知道还剩下多少时间。尽管如此，真嗣的表现还是令人难以置信。他在脱离战斗时的同步率达到了七十二。尽管如此，他发起战斗的方式既鲁莽又略显可怕。他似乎没有表现出任何情感。
+
+Letting out a low sigh Misato said, "Bring in Unit 00 and 01, and get the has-mat team down there to start clean up." 'And get me a cold beer while your at it,' she thought.  
+美里低声叹了口气，说道：“把零号机和初号机带进来，让防化小组下去开始清理。”她心里想着：‘顺便给我拿瓶冰啤酒。’
+
+Shinji was rather hesitant as he stood outside of Misato's apartment, and rather mad at the conversation that had followed after he returned from fighting. Misato had scolded him about his way of fighting, saying that he was way to reckless and should have waited for back up from Rei. Shinji had retorted that he had defeated the angel so why should she be angry at him. He was honestly annoyed with Misato right now, but he was more worried about Asuka. She had to assume that something had happened judging by that fact that Shinji hadn't come home from school.  
+真嗣站在美里的公寓外，相当犹豫，对战斗结束后发生的那场对话感到愤怒。美里责备他的战斗方式，说他太过鲁莽，应该等丽来支援。真嗣反驳说他已经打败了使徒，为什么她还要对他生气。他现在确实对美里感到恼火，但他更担心明日香。考虑到真嗣放学后还没回家，她不得不认为发生了什么事。
+
+He was hoping that she might have gone to bed early and opened the door slowly hoping that he wouldn't wake her if she was asleep. However, when he opened the door he heard the blaring of the T.V. and assumed that she was still up. Tiptoeing his way into the living room he saw that Asuka was sprawled on the ground, with her head resting on a pillow, and entangled in a pile of blankets. At first he thought that she was sleeping but then he noticed that she had her head propped up in her hands.  
+他希望她可能已经早早上床，于是慢慢地打开门，希望如果她在睡觉的话不会吵醒她。然而，当他打开门时，他听到了电视的轰鸣声，猜想她应该还没睡。他蹑手蹑脚地走进客厅，看到明日香四肢摊开躺在地上，头枕着一个枕头，被一堆毯子缠绕着。起初他以为她在睡觉，但随后注意到她用手撑着头。
+
+She must have heard the door open because she sat up slowly, letting the blankets slide off her body, and turned towards the hallway where Shinji was standing. Shinji tried not to stare to much but it was rather difficult. She was wearing a white, loose, tank-top, with white and blue striped underwear, and appeared to have been laying there for a while. Rubbing her eyes slowly she squinted in Shinji's general direction.  
+她一定是听到了开门声，因为她慢慢地坐了起来，让毯子从身上滑落，转向信二站立的走廊。信二尽量不盯着她看，但这相当困难。她穿着一件宽松的白色背心，搭配蓝白条纹的内裤，看起来已经在那里躺了一段时间。她慢慢地揉着眼睛，眯着眼睛朝信二的大致方向看去。
+
+"Baka Shinji?" “笨蛋信二？”
+
+"Yeah, and could you drop the baka?"  
+"是啊，你能别再叫我笨蛋了吗？"
+
+Asuka shrugged and went back to watching television. Shinji wasn't sure if he should go straight to sleep or risk an argument with her. Deciding that they were on friendly level and that he didn't want to break it he inched his way towards his room when he heard her accusing voice.  
+明日香耸了耸肩，继续看电视。真嗣不确定自己是该直接睡觉，还是冒险和她争论。考虑到他们目前关系还算友好，他不想破坏这种状态，于是小心翼翼地朝自己的房间挪去，这时他听到了她责问的声音。
+
+"Where are you going?" "你要去哪儿？"
+
+Shinji paused for a second and said, "To bed. I'm sorta tired."  
+真嗣顿了一下，说道：“去睡觉。我有点累了。”
+
+Stealing a quick glance at the living room he saw that Asuka still hadn't moved.  
+他迅速瞥了一眼客厅，看到明日香仍然没有动。
+
+"You can go to bed later. I want to know why you fought the angel without me."  
+“你可以晚点再睡。我想知道你为什么在没有我的情况下与使徒战斗。”
+
+Shinji flinched. Of course she would have known about the angel attack. The JSDF would have announced something completely false was happening and that everyone had to evacuate to the shelters. Asuka would of course known that it was really an angel attack.  
+真嗣畏缩了一下。她当然知道使徒袭击的事。日本自卫队肯定会宣布发生了完全虚假的事件，要求所有人撤离到避难所。明日香自然知道那实际上是使徒的攻击。
+
+"Oh...that..." “哦...那个...”
+
+"Oh that? Is that all you can say?"  
+“哦，那个？你就只能说这个吗？”
+
+"Can't you at least be a little thankful?"  
+"你就不能至少表示一点感激吗？"
+
+"For what!" "为了什么！"
+
+"Look, you didn't go to school so I didn't think that you'd be able fight well enough. When Misato asked me where you were I said that you were sick and not feeling well."  
+"听着，你没去上学，所以我没想到你能打得那么好。当美里问我你在哪儿时，我说你生病了，感觉不舒服。"
+
+"That doesn't affect the synchro-"  
+"那不会影响同步率——"
+
+"I know! ...I was just looking out for you is all, because of last nig-"  
+"我知道！……我只是关心你，因为昨晚的事——"
+
+Shinji caught himself in mid sentence. Certainly mention of last night would set her off.  
+真嗣话说到一半突然打住。提到昨晚的事肯定会惹她生气。
+
+Asuka was frowning at Shinji, rather curiously. Shrugging she said, "Well it was rather relaxing anyway, and I certainly deserved the day off."  
+明日香正皱着眉头好奇地看着真嗣。她耸耸肩说：“反正挺放松的，我确实该休息一天。”
+
+Standing up she walked over to Shinji and had to tilt her head slightly up towards him. She just realized that he was slightly taller than her, though they were both the same age. "Don't let it happen again though." At her words she calmly extended her index finger and flicked it against his nose, catching Shinji completely off guard.  
+她站起来，走到真嗣面前，不得不稍微抬头看他。她这才意识到他比自己稍高一些，尽管他们同龄。“不过别再有下次了。”她平静地伸出食指，轻轻弹了一下他的鼻子，真嗣完全没料到这一招。
+
+Asuka turned around, her hair brushing against Shinji's face, and crawled back into the blankets.  
+明日香转过身去，头发拂过真嗣的脸颊，然后钻回了被窝里。
+
+Shinji continued standing there as though he was frozen. He had seriously thought that she was about to kiss him.  
+真嗣继续站在那里，仿佛被冻住了一般。他真的以为她要吻他了。
+
+After several seconds in which time seemed to freeze for Shinji, Asuka turned towards Shinji and frowned. "What's wrong with you?"  
+在几秒钟的时间里，时间似乎对真嗣来说凝固了，明日香转向真嗣并皱起了眉头。“你怎么了？”
+
+Shinji seemed to come out of his stupor and nervously said, "Nothing."  
+真嗣似乎从恍惚中回过神来，紧张地说：“没什么。”
+
+"Liar, you thought I was going to kiss you."  
+"骗子，你以为我要吻你。"
+
+Shinji blushed a deep crimson and waved his hands in front of his face, "No, I don't think of you like that."  
+真嗣的脸颊涨得通红，双手在脸前挥舞着，"不，我没那么想你。"
+
+Asuka rolled her eyes and turned back towards the T.V. "Grow some balls and start thinking like that then."  
+明日香翻了个白眼，转身面向电视，"长点胆子，就该那么想。"
+
+Shinji sighed and said, "What, you want me to think like that?"  
+真嗣叹了口气，说道：“什么，你想让我那样想吗？”
+
+It was Asuka's turn to be embarrassed as she quickly turned around before Shinji could see the pink tinge that had appeared on her face.  
+轮到明日香感到尴尬了，她迅速转过身去，以免真嗣看到她脸上泛起的粉红色。
+
+"Baka, just go to sleep already."  
+“笨蛋，快去睡觉吧。”
+
+"Yeah, yeah, I'm going." “是是，我这就走。”
+
+Asuka kept her gaze fixed on the T.V. as Shinji left the room. When she heard his door closed she let out a low sigh and rolled over onto her back. Several emotion coursed through her which she didn't recognize, and all of them had something to do with Shinji. Turning off the T.V. she sat up and ran her hands through her hair. A small smile had appeared on her face.  
+碇真嗣离开房间时，明日香目光依旧紧盯着电视。听到他的房门关闭声，她轻轻叹了口气，翻身仰躺。心中涌动着她辨认不清的情感，而这些情感无一不与真嗣有关。她关掉电视，坐起身来，双手穿过发丝，嘴角浮现出一抹淡淡的微笑。
+
+---
+
+**Okay I'm posting this in a motor home as we drive through town stealing internet as we go. As you'll notice I've taken a lot of liberties with some things here and there. And sorry if there's bad grammar in this one. When I've got time I'll fix it.  
+好吧，我现在是在一辆房车里发帖，我们正开车穿过城镇，边走边蹭网。你会发现我对某些细节做了不少自由发挥。如果这里有语法错误，抱歉了。等我有空会修正的。**
+
+---
+
+
+---
 ### Chapter 35: Finality
 **Two years to the day I posted Spawn of Adam here on Fanfic. Its been an amazing run everybody, but here we go. This is the last chapter! Sorta. Epilogue after this but that doesn't count.** **Thank you to all the support I've received from everyone through these long two years. Its hard for me to believe that this is finally ending. This has been a huge part of my life over these past two years, and I'd like to thank everyone that has read this. Arigato Gozaimasu Minna-san!**  
 两年前，我在 Fanfic 上发布了《亚当的后代》。大家的表现都很棒，但我们开始了。这是最后一章了！有点。在此之后有结语，但这不算数。感谢这漫长的两年里大家对我的支持。我很难相信这一切终于结束了。在过去的两年里，这是我生活中很重要的一部分，我要感谢所有读过这篇文章的人。 Arigato Gozaimasu Minna桑！
