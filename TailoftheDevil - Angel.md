@@ -4378,4 +4378,1693 @@ _Or to the Fanfiction forum I set up for Angel, which can be found on my profile
 或者访问我为 Angel 创建的同人文论坛，链接在我的个人资料页可以找到。点击哪个链接进入应该很明显。_
 
 ---
-### 
+### Chapter 16: Inferno
+第十六章：炼狱  
+
+He hadn't been ready. 他还没准备好。
+
+The plan to calm down Crimson had gone well. A little _too_ well. He thought that after letting loose and venting her frustrations, Crimson might be a _little_ more interactive and less hostile towards them all.  
+安抚绯红情绪的计划进行得很顺利。有点太顺利了。他原以为，在发泄完怒火和不满之后，绯红可能会变得更加互动，对他们的敌意也会减少一些。
+
+But it was not to be.  
+但事与愿违。
+
+_Beep Beep Beep Beep 哔哔哔哔_
+
+His alarm was ringing. He wanted to turn it off. Most other days, all he had to do was reach over and tap the snooze button. But today, he was having some difficulty doing anything like that.  
+他的闹钟响了。他想关掉它。大多数日子里，他只需伸手按下暂停键即可。但今天，他做任何类似的事情都有些困难。
+
+"Okay Shinji, lets actually use that brain for once and figure this out on our own." Shinji gritted his teeth as he tried to loosen his arms, which were currently tied to something at the top of his bed. He dared not look at _what_ was tying his hands up, as it felt soft and cottony, with a slight sense of elasticity. He knew damn well what that was without even looking at it. He knew exactly who they belonged to as well.  
+“好了，真嗣，这次我们真的要用用脑子，自己解决这个问题。” 真嗣咬紧牙关，试图松开被绑在床头的手臂。他不敢看是什么东西绑住了他的手，因为它感觉柔软而有弹性，像是棉质的。他心里清楚那是什么，即使不看不也知道。他也清楚它们属于谁。  
+The culprit to this dastardly scheme was currently snoozing on top of him. A familiar view of orange hair was obscuring most of his vision and he could feel the chest of the girl respirating on top of him.  
+这场恶作剧的始作俑者此刻正躺在他身上打盹。一抹熟悉的橙色头发遮挡了他的大部分视线，他能感觉到女孩的胸膛在他身上起伏。
+
+Said girl sleepily reached over, picked up the alarm clock with a smile and threw it violently against the wall. This wasn't the first time the clock had met such a demise. It seemed to be every other day it was seemingly destroyed, only to be put back together again by the bracelets. Normally by Asuka as a way of apologizing for breaking it in the first place.  
+那女孩睡眼惺忪地伸手拿起闹钟，笑着用力扔向墙壁。这已经不是闹钟第一次遭遇这样的命运了。似乎每隔一天它就会被毁掉，然后又被手环重新组装起来。通常是明日香为了道歉而修复它，毕竟一开始就是她弄坏的。
+
+The offending girl today wasn't Asuka though. Even though she felt like Asuka, looked like Asuka and smelled like Asuka, the girl currently lying on top of him, returning to a comfortable position after ending the life of an innocent timekeeping device, was none other than the same girl that was biting his arm the day before, after beating the literal crap out of him.  
+今天惹事的女孩并非明日香。尽管她感觉像明日香，看起来像明日香，闻起来也像明日香，但此刻躺在他身上，结束了一个无辜计时设备的生命后回到舒适位置的女孩，正是昨天咬他手臂的那位，之前还把他打得半死。
+
+_Why in God's name was Crimson in his bed!?  
+天哪，为什么克莱姆森会在他的床上！？_
+
+_Why was she lying on top of him!?  
+她为什么躺在他身上！？_
+
+_Where in God's name was her shirt!?  
+她的衬衫到底在哪儿！？_
+
+These and similar questions were currently racing through his mind, one of which was wondering why he was also topless, but a thought suddenly occurred.  
+这些问题以及类似的疑问此刻正飞速掠过他的脑海，其中之一便是好奇自己为何也赤裸上身，但突然间一个念头闪现。  
+If he was the type of unfortunate soul to encounter misfortune no matter what, he was expecting Asuka to slam open his door any second now and-  
+如果他是不幸之人，无论做什么都会遭遇不幸，那么他预计明日香随时会猛地推开他的门，然后——
+
+"**CRIMSON!**" "深红！"
+
+_Yup, here we go. 没错，我们开始了。_
+
+"YOU WERE SUPPOSED TO BE SLEEPING IN MY ROOM!"  
+"你应该在我的房间里睡觉的！"
+
+"You don't taste as good as Shinji though."  
+"你可没有真嗣那么好吃。"
+
+"Oh my god, WHAT THE HELL DOES THAT MEAN!?"  
+"我的天，这他妈是什么意思！？"
+
+He couldn't tell if Crimson was insinuating what he thought she was just to drive Asuka crazy or that she had actually gone and bitten Asuka in her sleep.  
+他无法确定深红是在暗示她所想的那样，只是为了把明日香逼疯，还是她真的在明日香睡着时咬了她一口。  
+Honestly, he sure as hell didn't really care for the answer. He just wanted to wake up to a peaceful morning for once. Was that too much to ask?  
+说实话，他真的不在乎答案。他只是想有一次能醒来时迎来一个平静的早晨。这要求过分吗？
+
+"I thought you hated him!?"  
+"我以为你讨厌他！？"
+
+"I hate the ghost." Crimson was referring to Shinji's doppelganger who had been haunting their residence for the past few days. God only knew where he was right now though. Asuka was fuming as she took in the sight of the two teenagers lying on top of each other, topless. Crimson was smirking, directing her taunt to her lookalike that was all but ready to detonate.  
+"我讨厌那个幽灵。" 克里姆指的是真嗣的替身，那个在过去几天一直困扰着他们住所的幽灵。只有上帝知道他现在在哪里。明日香气得满脸通红，看着两个赤裸上身的少年躺在彼此身上。克里姆冷笑着，向那个几乎要爆发的她的替身挑衅道。
+
+"You… You need to get off him!"  
+"你…你得从他身上下来！"
+
+"I'll be sure to get him off alright."  
+"我会让他好好下来的。"
+
+"THAT'S NOT WHAT I SAID, SKANK! GET. OFF. HIM!"  
+"我不是那个意思，贱人！下！来！"
+
+"Why don't you make me?"  
+"你为什么不试试让我呢？"
+
+"_Because you scare the crap out of me, you shameless psychopath!"_ Asuka gritted her teeth as she tried to think of a way to vocalise that without getting her face shoved into a toilet.  
+"因为你这个无耻的精神病让我吓得要死！" 明日香咬紧牙关，试图想出一个不会被对方把脸按进马桶里的表达方式。
+
+"If I may have an opinion…"  
+"如果我可以发表意见的话…"
+
+"No Shinji. You need to shut up and let the girls talk."  
+"不行，真嗣。你得闭嘴，让女孩们说话。"
+
+"Sure, why not, let's all be late for school, that'll be even more fun." Shinji closed his eyes again, resigning himself to his fate as Crimson turned back to Asuka.  
+""当然，为什么不呢，让我们都迟到去上学，那会更有趣。"" 真嗣再次闭上眼睛，无奈地接受了自己的命运，克里姆则转回对明日香说。
+
+"You can either accept that this is going to be a thing from now on or we are going to have a lot of problems."  
+"你要么接受从现在开始这将成为常态，要么我们会有很多麻烦。"
+
+"You're supposed to be me right?" Asuka said through gritted teeth.  
+"你应该就是我吧？" 明日香咬牙切齿地说道。
+
+"Apparently. A slightly more educated version maybe."  
+"显然如此。或许是个稍微受过教育的版本。"
+
+"Then you already know my answer." Asuka put her bracelet arm out, showing the two residing in the bed her palm, a small ball of crackling energy charging in front of it, her face contorted with rage.  
+"那么你已经知道我的答案了。" 明日香伸出戴着手镯的手臂，向床上两人展示她的手掌，掌前凝聚着一团噼啪作响的能量，她的脸上满是愤怒。
+
+In the blink of an eye, Shinji had jumped out of the bed, placed his palm on the raging girl's own, cancelling out the magical science.  
+转眼间，真嗣已经从床上跳下，将手掌放在狂怒的女孩手上，抵消了那股魔法科技的力量。
+
+"Shinji, what the hell!?"  
+“真嗣，搞什么鬼！？”
+
+"Can we _please_ not blow up my room _again_?"  
+“我们能不能不要再炸我的房间了？”
+
+"Ha, you tell her Shin-" Before she could finish, Shinji placed a finger on his free hand on Crimson's lips.  
+"哈，你告诉她，真-" 她话音未落，真嗣用空着的手指轻轻按在绯红的双唇上。
+
+"...and that's enough out of you. I get that you two don't have to be nice to each other, but can we at least avoid having a fight all the time?" His eyes held a steely glow as his gaze jumped between the two of them.  
+"……够了。我明白你们俩不必相互友善，但至少能避免总是争吵吗？" 他的目光中闪烁着坚定的光芒，在两人之间来回扫视。
+
+"I care for you both and I don't want anybody to get hurt."  
+"我关心你们两个，不希望任何人受到伤害。"
+
+A strange, awkward silence fell over the room before Shinji turned bright red, quickly removing his hands.  
+房间里突然陷入一种奇怪而尴尬的沉默，随后真嗣的脸变得通红，迅速移开了双手。
+
+"Please don't kill me." “请不要杀我。”
+
+Both girls looked at each other nervously, both tinged with a blush.  
+两个女孩紧张地对视着，脸上都泛起了红晕。
+
+"I… uh…" Asuka gulped before turning to the door. "...need to finish my toast." She quickly departed.  
+"我…呃…" 明日香咽了咽口水，转向门口。"...我得把我的吐司吃完。" 她迅速离开了。
+
+"I should probably find my shirt…" Crimson was next to beat a hasty retreat. Suddenly Shinji was alone in his room, confused.  
+"我应该去找找我的衬衫…" 绛红紧随其后，匆忙撤退。突然间，真嗣的房间里只剩下他一个人，感到困惑。
+
+"...am I not dead?" "...我难道没死吗？"
+
+Before he could formulate an answer to his rhetorical question, Misato's head poked around the door, looking just as confused as he felt.  
+在他能对他的反问做出回答之前，美里探头从门边望进来，看起来和他一样困惑。
+
+"Why did both Asuka's come out of your room? And why was one of them topless?" All he could do was look at her, looking completely lost.  
+“为什么两个明日香都从你房间里出来了？而且其中一个还光着上身？”他只能看着她，完全不知所措。
+
+"I… don't know?" “我……不知道？”
+
+Somehow, everyone managed to leave the house on time. The awkward silence from earlier hadn't yet dissipated, meaning Shinji was cramped between the two girls on a busy train with nobody making eye contact. It was almost a relief when they made it to school and he could rest his head on his school desk.  
+不知怎么的，大家都准时离开了家。早先的尴尬沉默还未消散，这意味着真嗣挤在拥挤的火车上，夹在两个女孩之间，却没有人对视。当他们到达学校，他可以把头靠在课桌上时，几乎感到一种解脱。
+
+"The days just started, why do you look like hell?" Kensuke had apparated by his desk, looking concerned.  
+“日子才刚开始，你怎么看起来像地狱一样？”健介突然出现在他的课桌旁，面露关切。
+
+"How do you unawkward something Ken?" Shinji mumbled into the wood he was resting on.  
+“健，你怎么让尴尬消失呢？”真嗣喃喃地对着他靠着的木头说。
+
+"What did you do?" "你做了什么？"
+
+"I wish I knew…" "我要是知道就好了…"
+
+"Very helpful Shinji." "真有帮助啊，真嗣。"
+
+The classroom door opened, with the regular and nuclear Asuka's walking in together, along with a Misato that looked as exhausted as Shinji felt. The two students wandered over to their respective desks as their homeroom teacher made a feeble attempt to address the class.  
+教室的门打开了，规律与核心的明日香一同走进来，还有看起来和真嗣一样疲惫的美里。两名学生各自走向自己的座位，而他们的班主任无力地试图向全班讲话。
+
+"Okay ladies, gentleman… and Toji."  
+“好了，女士们，先生们……还有东治。”
+
+"Hey!" “嘿！”
+
+"I have yet _another_ transfer student to introduce to you all today."  
+"今天我又要给大家介绍一位新转学生了。"
+
+"How have we not run out of seats yet?" Shinji mumbled, still face-planting his desk.  
+""我们怎么还没坐满呢？"" 真嗣咕哝着，依旧把脸埋在桌上。
+
+"Is it _another_ hot girl?"  
+"又是个漂亮女孩吗？"
+
+"No Toji, is it not."  
+"不是东治，对吧。"
+
+"Thank god…" "谢天谢地……"
+
+The whole class turned to face the gangly, tracksuited teenager, shock rippling through everyone's face. Even Shinji had raised his head to stare at him, wiggling his very raised eyebrows.  
+全班同学都转头看向那个穿着运动服、身材瘦长的少年，震惊之情在每个人脸上蔓延。就连真嗣也抬起头盯着他，挑起了他那异常高耸的眉毛。
+
+"What?" "什么？"
+
+"It's not a hot girl and you're… happy?" Kensuke looked utterly dumbfounded. "Hikari, I'm sorry to have to tell you this, but he might be into dudes now."  
+"这不是个辣妹，你却……开心？" 真嗣看起来完全懵了。"光，我不得不告诉你，他现在可能对男人感兴趣了。"
+
+The class president buried her head into her arms.  
+班长把头埋进了双臂中。
+
+"Where did I go wrong?!" She wailed. Shinji wasn't a hundred percent sure if she was putting it on or not.  
+"我哪里做错了？！" 她哀嚎道。真嗣不太确定她是不是在演戏。
+
+"Guys! Relax! All I'm sayin' is that I don't think I can survive anymore of Shinji's girlfriends."  
+"伙计们！放松点！我只是说我觉得再这样下去，我可受不了真嗣的那些女朋友了。"
+
+"There's certainly some wisdom in that." A nod from Kensuke and the majority of the class.  
+"这话确实有道理。" 健司点头表示赞同，班上大多数人也同意。
+
+"_WE'RE NOT HIS GIRLFRIENDS!"_  
+"我们才不是他的女朋友！"
+
+"Asuka… really? _Really?_" "明日香…真的吗？真的？"
+
+"I'm technically his fiancé…" Rei piped up, raising a hand.  
+"从技术上讲，我是他的未婚妻…" 绫波举手补充道。"
+
+"I wouldn't mind being his _master…_" Crimson snuck a sly grin to her neighbour. Mana on Shinji's other side grabbed his arm, pulling it tight and in between her ample bosom.  
+"我倒不介意成为他的主人…" 绯红向她的邻居投去一个狡黠的微笑。真嗣另一边的玛娜抓住他的手臂，紧紧地夹在她丰满的胸前。"
+
+"Forget her Shinji. _You can be_ _**my**_ _master."_  
+"忘了她吧，真嗣。你可以成为我的主人。"
+
+A loud bang suddenly made everyone jump. Misato had hit the chalkboard behind her hard to get everyone's attention. Shinji couldn't have thanked her enough.  
+突然一声巨响让所有人都吓了一跳。美里用力敲打身后的黑板，以吸引大家的注意。真嗣感激不尽。
+
+"Guys. Transfer Student. _Shush_."  
+"各位，转学生来了，安静。"
+
+She motioned towards the open door, beckoning whoever was standing in the hall to come inside.  
+她向敞开的门示意，招呼着站在走廊上的人进屋。
+
+"I want you to treat him nice. And I promise he won't blow up the school... You won't blow up the school, right?"  
+"我希望你能对他好点。我保证他不会炸了学校……你不会炸了学校，对吧？"
+
+"I can honestly say the idea never came to mind." The silver-haired male finished writing his name on the board before turning around to face the class. _Oooh's_ and _aah's_ came from some of the girls who found their new classmate attractive.  
+"老实说，我从未有过这种念头。" 银发男子在黑板上写完自己的名字后，转过身来面对全班。一些女生发出了'哦哦'和'啊啊'的赞叹声，她们觉得这位新同学很有魅力。
+
+Shinji noticed something a little different about him.  
+真嗣注意到他有些不同寻常的地方。
+
+Specifically the fact that he had crimson eyes.  
+具体来说，就是他有着猩红色的眼睛。  
+Just like Rei did. Or at least one of them.  
+就像绫波一样。或者至少是其中一个。
+
+Smiling politely, he began his introduction.  
+他礼貌地微笑着，开始了自我介绍。
+
+"My name is Kaworu Nagisa. I look forward to our time together."  
+“我叫渚薰。期待与你的时光。”
+
+---
+
+"KAWORU _WHAT!?"_ “渚薰，什么！？”
+
+"Gendo, calm down." "源堂，冷静点。"
+
+"NO!"
+
+"Should I go get some ketamine?"  
+"我该去弄点氯胺酮吗？"
+
+"Kyoko, what the hell?" "京子，搞什么鬼？"
+
+"HE'S SEELE'S POSTER BOY! HE WON'T JUST BLOW UP THE SCHOOL, HE'LL _NUKE_ IT!"  
+"他是 Seele 的宣传招牌！他不会只是炸掉学校，他会把它核平！"
+
+The Artificial Evolution Research Laboratory, Crisis Command Center.  
+人工进化研究所，危机指挥中心。
+
+Gendo Ikari had called an emergency meeting, directing everyone to their posts before explaining to his impatient wife who this new transfer student really was. Half the story at least.  
+碇源堂紧急召集了会议，指示所有人各就各位，然后向急不可耐的妻子解释这位新转学生的真实身份。至少说了一半的真相。
+
+"Gendo, you still haven't told me, putting the nukes aside for a moment, what kind of a threat he actually is."  
+"源堂，你还没告诉我，暂且不提核武器，他实际上到底构成了什么样的威胁。"
+
+A grim silence descended upon the man until he finally found the words he could use to effectively describe what they were dealing with.  
+那人陷入了严峻的沉默，直到他终于找到了能有效描述他们所面对威胁的词汇。
+
+"As you know with the Mana Kirishima incident, Seele found a way to get their hands on _some_ of our technology. I don't know if its a spy in our midst, or once again Satsuki forgot to disconnect from Twitter-ing on the external networks, but thankfully what data they have is old and somewhat obsolete."  
+"正如你在真奈·雾岛事件中所知，Seele 设法获取了我们的一些技术。我不知道是我们内部有间谍，还是萨津美又一次忘了在外部网络上断开 Twitter 连接，但幸运的是，他们掌握的数据已经过时且有些陈旧。"
+
+"However, thanks to our own spy, we know that they took that data as a foundation and were able to come up with a bracelet all on their own. That's where Miss Kirishima's bracelet came from when we analysed it. Not only that but they managed to take a step in their own direction, without any regard to ethics and human experimentation…" He pushed the bridge of his glasses back up his nose, sighing.  
+"然而，多亏了我们自己的间谍，我们知道他们以那些数据为基础，完全独立地研发出了这款手环。这就是我们在分析时发现的那款来自桐生萌郁小姐的手环。不仅如此，他们还迈出了自己的一步，完全不顾伦理和人体实验……" 他推了推鼻梁上的眼镜，叹了口气。
+
+"This new boy. As far as I'm aware, instead of having to wear a bracelet, actually has a form of the technology embedded inside of him."  
+"这个新来的男孩，据我所知，他不需要佩戴手环，实际上体内已经植入了这种技术。"
+
+"You must be joking…" "你一定是在开玩笑吧……"
+
+"I'm quite serious Yui. The kids are only 'deities' with the bracelets on, but this Kaworu. He is a literal walking god and from what I've been told, has no limiters on his abilities, unlike our kids who can be locked-out should someone go spontaneously insane."  
+"我非常认真，Yui。孩子们只有在戴上手环时才是‘神’，但这个渚薰，他是个名副其实的行走之神，而且据我所知，他的能力没有限制，不像我们的孩子，一旦有人突然发疯就可能被封锁能力。"
+
+"...I wouldn't put that past Asuka." Yui mumbled, much to Kyoko's chagrin.  
+""……我倒不觉得明日香会那样。"" Yui 咕哝道，这让 Kyoko 感到沮丧。
+
+"Instead of worrying about my daughter's sanity, should we not be coming up with a counterplan in case the new student **does** decide to go and kill everyone he sees?"  
+"与其担心我女儿的理智，我们难道不应该制定一个应对计划，以防新来的学生真的决定去杀掉他看到的每一个人吗？"
+
+"That's the whole reason we're here. So tell me ladies, any ideas?"  
+"我们来这儿就是为了这个。所以，女士们，有什么想法吗？"
+
+---
+
+"So that's the gym. Not my favourite place on the campus, but compulsory education, whatcha gonna do, right?"  
+"这就是体育馆了。虽然不是校园里我最喜欢的地儿，但教育必修课，你又能怎么办呢，对吧？"
+
+"I heard there is a pool too. Is that in a different area?"  
+"我听说这里还有个游泳池。是在不同的地方吗？"
+
+"That's right, it's on the roof of the main school building."  
+“没错，就在主教学楼的屋顶上。”
+
+Thanks to the powers that be and Misato insisting that she had one of her imaginary staff meetings to attend to, Shinji had the colossal responsibility of guiding the new student around the school. She could have picked any number of the girls in his class fawning over his silver hair and chiselled jawline, but no. Shinji was a slave, both in the home and at school too.  
+多亏了那些掌权者，以及美里坚持说她要去参加一个虚构的员工会议，真嗣承担起了引导新同学熟悉学校的巨大责任。她本可以选择班上任何一位迷恋他银发和雕刻般下颌线的女生，但偏偏没有。真嗣在家是仆人，在学校也一样。
+
+Not that he minded. Kaworu seemed polite enough and was soaking in everything Shinji said like a sponge. His eyes were hijacking Shinji's curiosity but he didn't know how to bring it up without making things weird. He'd had enough of an awkward day going on as it was.  
+倒不是说他介意。薰看起来很有礼貌，像海绵一样吸收着真嗣说的每一句话。他的眼睛激起了真嗣的好奇心，但他不知道如何在不把事情弄得尴尬的情况下提起。毕竟，这一天已经够尴尬的了。
+
+"Is there something on my face? You appear to have found something of interest, Shinji Ikari."  
+"我脸上有东西吗？你似乎发现了什么有趣的东西，碇真嗣。"
+
+"Oh! Uh… No no no... and you can just call me Shinji by the way. Full names make things way too formal for me."  
+"哦！呃… 没有没有… 对了，你可以直接叫我真嗣。全名让我感觉太正式了。"
+
+"I understand. Though _is_ there something that's caught your eye?"  
+"我明白了。不过，有什么东西吸引了你的注意吗？"
+
+He was smiling in a way that suddenly made Shinji feel very bashful. One wrong word and the yaoi fangirls were going to go ape.  
+他的笑容突然让真嗣感到非常害羞。只要说错一个字，那些耽美粉丝就要疯了。
+
+"Okay, so… You've met Rei right? Rei Ayanami?"  
+“好吧，那么……你见过绫波吧？绫波零？”
+
+"Which one?" “哪一个？”
+
+"Oh yeah, that's right, there's two of them now… Um, the one with the- _ahem…_ Red eyes?"  
+"哦，对，没错，现在有两个了……呃，那个，红眼睛的那个？"
+
+"Ahhh, I see now." Kaworu laughed, easing Shinji's tension slightly. Now that he thought about it, he never once questioned Rei about why her eyes were red either. Maybe it was because he had know her for so much longer that he'd become used to it?  
+"啊，我现在明白了。" 渚薰笑着，稍微缓解了真嗣的紧张。现在想想，他从未质疑过绫波为什么眼睛是红色的。也许是因为他认识她更久，已经习惯了？
+
+"Well, I'm not sure about our classmate. But I was born with some sort of eye infection that dyed the irises with blood. Thankfully the infection was prevented and I managed to retain my sight, but reverting my eyes to their natural color would undoubtedly be an extremely difficult process. One that carries too much risk and may end up robbing me of my sight."  
+"嗯，我不太了解我们的同学。但我出生时患有一种眼病，导致虹膜染上了血色。幸运的是，感染得到了控制，我保住了视力，但要恢复眼睛的自然颜色无疑是一个极其困难的过程。这个过程风险太大，可能会让我失去视力。"
+
+"That makes sense. I'm sorry if it said anything awkward. And your eyes are fine as they are. It just made me realize that there's a lot about the world I don't understand yet..."  
+"那说得通。如果有什么话说得不得体，我很抱歉。而且你的眼睛现在这样就很好。只是让我意识到，对于这个世界，我还有很多不了解的地方……"
+
+"You're welcome to ask anything at all Shinji. If I can help in any way, I'll be glad to do it."  
+"你随时都可以问我任何问题，真嗣。如果我能帮上忙，我会很乐意。"
+
+That answered his burning question, but also made Shinji curious about Rei once more. Maybe she had a similar problem with her eyes as a child? She had spent a lot of time in the hospital when she was younger, so it wasn't totally outside the realms of possibility.  
+这回答了他迫切的问题，但也再次激起了真嗣对绫波的好奇。或许她小时候眼睛也有类似的问题？她小时候在医院待了很长时间，所以这并非完全不可能。
+
+A few metres away from the duo, camouflaged in a way that could respectfully be called terrible, Asuka, Crimson, Mana and the two Rei's were spying on their conversation. Along with most of the other girls in the class dotted around the area.  
+离那对组合几米远的地方，以一种堪称糟糕的方式伪装着，Asuka、Crimson、Mana 以及两位 Rei 正在偷听他们的对话。班上大部分女生也散布在周围。
+
+"I don't like this." “我不喜欢这样。”
+
+"They _could_ just be having a friendly conversation Asuka."  
+“他们可能只是在友好交谈，Asuka。”
+
+"They're practically holding hands Mana."  
+"他们几乎是在牵手了，Mana。"
+
+"I don't like this either." Crimson growled. "I'm going over there-"  
+"我也不喜欢这样。"" 克里姆怒吼道，""我要过去——"
+
+"_No you are not!"_ "不，你不能去！"
+
+"You don't get to tell me what to do, you second-rate imposter. Nobody steals my things away from me."  
+"你没资格命令我，你这个二流冒牌货。没人能从我这里夺走我的东西。"
+
+"Yesterday you hated him. Then you bit him and then apparently woke up this morning crushing him in your boobs. Like, what's going on with that exactly?" Mana was glaring at Crimson with a look somewhere between envy and a pout.  
+"昨天你还恨他。然后你咬了他，今天早上醒来却发现自己在用胸部压着他。到底是怎么回事？" 玛娜瞪着克里姆森，眼神中既有嫉妒又有不满。
+
+"He's entertaining. He doesn't come with the emotional baggage of the apocalyptic world. He's a great cook and the Shinji from my world is both broken-"  
+"他很有趣。他没有末日世界的情感包袱。他是个出色的厨师，而我世界的真嗣已经支离破碎——"
+
+"Dead." Rei II helpfully pointed out.  
+"死了。" 丽二好心地指出。
+
+"That and helped destroy the world. And sure, I died too, but I realized something from my trip through Instrumentality."  
+"不仅如此，还帮助毁灭了世界。当然，我也死了，但我在经历人类补完计划的过程中领悟到了一些东西。"
+
+"That you're a future yandere?" Asuka cast a sidelong glance at her twin.  
+"你将来会变成病娇吗？" 明日香斜眼瞥了瞥她的双胞胎妹妹。
+
+"Very funny. More that I died focusing on the wrong things. I've got a chance at a normal life now and the first thing I want out of it is to redo that kiss!" And with that, Crimson bolted towards the two boys, with Mana in hot pursuit.  
+"真是搞笑。我死前净关注些无关紧要的事。现在我有机会过正常生活了，我首先想重来的就是那个吻！" 话音刚落，Crimson 便向那两个男孩冲去，Mana 紧随其后。
+
+"Did she say kiss?" It was Rei's turn to look jealous. Rei II looked at her own twin looking confused.  
+"她说了吻吗？" Rei 的表情变得嫉妒起来。Rei II 看着自己的双胞胎兄弟，一脸困惑。
+
+"What's a kiss?" "吻是什么？"
+
+"Umm… well… it's…" Asuka decided to leave a furiously blushing Rei with her doppelganger to explain her way out of the hole she'd dug herself into and tore off to chase after the chaos that was about to unfold.  
+"嗯…这个…其实是…" 明日香决定让满脸通红、手足无措的绫波丽自己解释如何摆脱这个尴尬局面，然后她急忙去追赶即将爆发的混乱。
+
+"Shinji! Watch your six!" She bellowed, causing the teenage boy to jump out of his skin, turn around, freak out for a second time after seeing the barrage of girls sprinting towards him, offer a hasty goodbye to Kaworu and then proceeded to run for his life.  
+"真嗣！注意你后面！" 她大声喊道，吓得少年魂飞魄散，转身一看，又被一群狂奔而来的女孩吓得再次惊慌失措，匆匆向渚薰道别后，便开始拼命逃跑。
+
+"You idiot! Why did you open your stupid mouth!" Crimson yelled over her shoulder. All Asuka could offer in response was to stick out her tongue.  
+"你这个白痴！干嘛多嘴！" 绛红在她身后怒吼。明日香只能吐吐舌头作为回应。
+
+"Eh, whatever. It's always fun to chase your prey anyway." Crimson muttered with a smile.  
+“呃，随便吧。反正追逐猎物总是很有趣的。”Crimson 低声笑着说。
+
+Shinji, on the other hand, was panicking. He had no idea where to run, so he was pelting it towards the main building of the school, determined to find a door. Any door.  
+另一方面，Shinji 则慌了神。他完全不知道该往哪儿跑，于是拼命朝着学校的主楼跑去，决心找到一扇门。任何一扇门。  
+Eventually, he found a door, somewhere on the second floor of the building, belonging to what looked like an abandoned classroom.  
+最终，他在大楼的二楼找到了一扇门，看起来像是废弃教室的门。
+
+"Great. Now where can I hide myself." He looked around the room until his eyes came across a relatively big cardboard box.  
+"太好了。现在我该藏哪儿呢。" 他环顾房间，目光最终落在一个相对较大的纸板箱上。
+
+He grinned, his face resembling a mischievous fox.  
+他咧嘴一笑，脸上露出狡黠的狐狸般的神情。
+
+---
+
+"Where did he go!?" "他跑哪儿去了！？"
+
+"He's getting real good at not being caught…"  
+"他越来越擅长不被抓到了…"
+
+Crimson and Asuka respectively had burst into the room of Shinji's last known location. The other girls had split up to look in other places, leaving the two most likely to kill one another alone together.  
+绫波零和明日香分别冲进了真嗣最后被发现位置的房间。其他女孩们已经分头去其他地方寻找，留下最有可能互相残杀的两人单独在一起。
+
+"I don't see anyone in here…" Asuka was tired of searching. They had up-ended the school looking for the bastard in their measly lunch-break time but it wasn't long until it was time to go back to class.  
+"这里也没人…" 明日香已经厌倦了搜寻。她们在短暂的午休时间里翻遍了整个学校，但不久就到了该回教室的时间。
+
+"He owes me a bento. I don't care if I skip class, I'm finding him and throttling him until he coughs up my katsu bento!"  
+"他欠我一个便当。我不在乎是否逃课，我要找到他，掐住他直到他把我的炸猪排便当吐出来！"
+
+"I wouldn't be too partial to anything he _coughs up_ but whatever. And what about that kiss?"  
+"我可不想吃他吐出来的东西，但随便了。那吻呢？"
+
+"Oh, that's happening. I just haven't decided if its before or after I eat. I'm pretty freaking hangry."  
+"哦，吻是肯定要发生的。我只是还没决定是在吃之前还是之后。我现在超级饿又超级生气。"
+
+"Ugh, whatever…" "唉，随便吧…"
+
+Shinji could hear the two girls creeping closer to his hiding place and was genuinely starting to get worried about getting caught. Rather, what they were going to do to him if he did get caught.  
+真嗣能听到两个女孩悄悄接近他藏身之处，他真的开始担心被发现了。更确切地说，如果被发现，她们会对他做什么。
+
+Granted, he'd thought using _Metal Gear_ tactics to escape sounded good in his head, but when did reality ever go as well as it did in video games?  
+诚然，他认为使用《合金装备》的战术逃跑听起来不错，但现实何时能像电子游戏那样顺利呢？
+
+"He's gotta be in here somewhere. We've checked everywhere else…"  
+"他一定就在这里的某个地方。我们已经检查了其他所有地方……"
+
+"I still can't believe you went into every men's toilet we passed… Everyone's going to think we're perverts…" Shinji came _this_ close to gasping in surprise at the revelation that Crimson had probably given half the male population of the school a heart attack.  
+"我还是不敢相信你进了我们经过的每一个男厕所……大家都会以为我们是变态……" 真嗣差点因为得知绯红可能让学校一半的男生心脏病发作而惊呼出声。  
+He almost went into cardiac arrest himself when Asuka crouched down, her striped-red panties in view for a split-second, right in front of his cardboard box and peeked through the hole on the side, locking eyes with him.  
+当明日香蹲下身来，她那条纹红内裤在眼前一闪而过，透过纸箱侧面的洞口与他四目相对时，他几乎要心脏病发作了。
+
+It was hard to tell who was the more surprised. Both teenagers had an expression akin to looking electrocuted. Asuka looked like she was about to open her mouth and say something when Crimson suddenly shouted from the other end of the room.  
+很难说谁更惊讶。两个青少年都露出了像是被电击般的表情。明日香看起来正要张嘴说些什么，这时深红突然从房间的另一头大喊起来。
+
+"Where the hell is he!? Anything over your side?"  
+“他到底在哪儿？！你那边有什么发现吗？”
+
+Asuka squinted through the hole, giving Shinji a meaningful glare, before responding.  
+明日香透过洞口眯眼观察，意味深长地瞪了真嗣一眼，然后回应道。
+
+"Nothing over here. Look, lunch breaks over. We can kill him when he gets back to class."  
+“这边什么都没有。看，午休时间结束了。等他回教室我们再动手。”
+
+"Ugh… fine." “呃……好吧。”
+
+Crimson opened the door to the abandoned classroom violently before stomping away. Asuka waited a moment before whispering to the box.  
+克里姆森猛地推开废弃教室的门，气冲冲地走了。明日香等了一会儿，然后对着盒子低声说道。
+
+"You owe me for this, stupid Shinji."  
+"你欠我一个人情，笨蛋真嗣。"
+
+He definitely owed her. He also really didn't want to go back to class right now.  
+他确实欠她人情。而且他现在真的不想回教室。
+
+---
+
+"WHERE WERE YOU!?" "你跑哪儿去了！？"
+
+"I went outside the school for a quick second, I had to get something!"  
+"我刚出学校一会儿，得去拿点东西！"
+
+"LIES! I WANTED MY BENTO!"  
+"胡说！我要我的便当！"
+
+"It's inside your desk, moron!"  
+"便当就在你桌子里，笨蛋！"
+
+"IT IS NOT-oh shit, it is…"  
+"不是吧-哦该死，真的是…"
+
+"_Oh my god…_" "我的天啊…"
+
+"But still! You owe me a kiss for making me waste my lunch break searching for you!"  
+"不过话说回来！你欠我一个吻，为了找你我午休时间都浪费了！"
+
+"A kiss!? WHAT!? **WHY!?**" "一个吻！？什么！？为什么！？"
+
+Crimson and Shinji continued to bicker whilst the rest of the class looked on. Some were giggling at the romantic comedy scene playing out in front of them. Those with the bigger testes were wolf-whistling, though were quickly silenced when Crimson decided to chase them with a stapler. With her twin momentarily distracted, Asuka poked Shinji's back with a pencil.  
+绫波和真嗣继续争吵，而班上的其他同学则在一旁观看。有些人因为眼前上演的浪漫喜剧场景而咯咯笑。那些胆子大些的吹着口哨，但很快就被绫波拿着订书机追赶的举动给吓得安静下来。趁着双胞胎姐姐暂时分心，明日香用铅笔戳了戳真嗣的背。
+
+"So Crimson gets a kiss. You thought of what my reward is going to be yet?"  
+"所以绫波得到了一个吻。你有没有想过我的奖励会是什么呢？"
+
+"I haven't agreed to anything yet!"  
+"我还没同意任何事呢！"
+
+"You owe me a favor, remember…"  
+"你欠我一个人情，记得吗…"
+
+"That I do…" "确实如此…"
+
+It was then their afternoon periods began, with the arrival of Honekawa-sensei postponing further discussion. Shinji couldn't ever remember a time he'd been looking forward to almost an hour of their wizened teacher's droning but with any luck, Crimson would fall asleep and leave him be for a while.  
+那时，他们的下午课程开始了，Honekawa 老师的到来推迟了进一步的讨论。真嗣几乎记不起有哪次他曾期待过将近一小时这位老教师的喋喋不休，但愿幸运的话，绛会睡着，让他暂时清静一会儿。
+
+"Hey Shinji." “嘿，真嗣。”
+
+Of course, Crimson and Asuka weren't the only girls he had to deal with. Mana was tugging on his shirt from the seat to his left.  
+当然，绛和明日香并不是他唯一需要应付的女孩。麻奈正从他左边的座位上拉扯着他的衬衫。
+
+"Can I ask you for a favour?"  
+"能请你帮个忙吗？"
+
+"Is it going to hurt?"  
+"会疼吗？"
+
+"What? No." She rolled her eyes. "I need you to come with me somewhere after school. Alone."  
+"什么？不会。"" 她翻了个白眼。""放学后我需要你单独跟我去个地方。"
+
+"That's easily the most suspicious thing you could have said... Sure, why not. Might give me a break from the Soryu twins."  
+"那绝对是你能说出的最可疑的话了……好吧，为什么不呢。或许能让我从惣流双胞胎那里喘口气。"
+
+"That's what I was thinking." She giggled sweetly. After their afternoon period classes were over, Mana dragged him out of the class before Asuka or Crimson could get a word in. Sprinting at breakneck speed, Shinji was beginning to wonder where exactly she was kidnapping him to this time.  
+"我也是这么想的。" 她甜甜地笑了起来。下午的课程结束后，真那在他还没被明日香或绛薰搭话之前就把他拽出了教室。以惊人的速度奔跑，真嗣开始好奇这次她究竟要把他带到哪里去。
+
+"Here we go!" "我们走吧！"
+
+"A bookstore? Is it real? Or is it one of those camouflaged BDSM shops?"  
+"书店？是真的吗？还是那种伪装成 BDSM 店的？"
+
+"What do you take me for?! Sometimes I want people to think I have a normal hobby from time to time!" Taking him by the hand, Mana dragged him inside. Shinji's eyes were darting everywhere, making sure he wasn't about to walk into a trap.  
+"你把我当成什么了？！有时候我也想让别人觉得我有正常的爱好！" 说着，Mana 拉起他的手，拽着他进了店里。Shinji 的眼睛四处扫视，确保自己不会走进陷阱。
+
+Surprisingly, everything about the shop looked normal. Mana had wandered over to the light novels, picked up the latest _Monogatari_ story and was lost to the world. Before Shinji decided to join her, he'd spotted a small in-store café. Deciding to buy two lattes, he brought the steaming takeout cups over to hallucinating bookworm and offered her one.  
+出乎意料的是，这家店的一切看起来都很正常。Mana 已经走到轻小说区，拿起最新的《物语》系列故事，完全沉浸其中。在 Shinji 决定加入她之前，他注意到店内有一个小咖啡馆。决定买两杯拿铁，他拿着热腾腾的外带杯走到那个沉迷于书海的女孩面前，递给她一杯。
+
+"Thank you Shinji!" "谢谢你，真嗣！"
+
+"No problem. Did you just want company then?"  
+"没事。那你只是想要个伴吗？"
+
+"Sort of. I love these books, but coming into a shop to buy them by myself was a little nerve-wracking…"  
+"算是吧。我非常喜欢这些书，但自己一个人进店买书还是有点紧张……"
+
+"Eh? Blowing up a school is all good, but walking into a harmless bookstore is where you draw the line?"  
+"嗯？炸学校都无所谓，但走进一家无害的书店就让你犹豫了？"
+
+"It's more… I have to pretend to be normal. That's the hardest part about all of this." Her eyes never left the book she was reading. She seemed to be engrossed in the story, whilst somehow being able to have a conversation at the same time.  
+""更多的是…我必须假装正常。这才是这一切中最难的部分。"" 她的目光始终没有离开正在阅读的书。她似乎完全沉浸在故事中，同时又能进行对话。
+
+"From where I'm standing, you look perfectly normal to me."  
+"在我看来，你看起来完全正常。"
+
+"Even though you know I was a spy, now a godhand-wielding high school girl with a traumatic past and stalkerish tendencies?"  
+"即便你知道我曾是个间谍，现在是个挥舞神器的、有着创伤过往且有点跟踪狂倾向的高中女生？"
+
+"Normal is pretty overrated anyway. You're far more interesting like this. And besides, some of that applies to me too."  
+"反正正常也挺被高估的。你这样更有趣。而且，有些方面我也适用。"
+
+"Wait, are you _stalking_ me Shinji?!" Mana giggled, reminding him of how cute she could be when she wasn't blowing things up. "I guess I wouldn't mind, if it was you."  
+"等等，你在跟踪我吗，真嗣？！" 玛娜咯咯笑道，让他想起她不搞破坏时有多可爱。"如果是你，我倒不介意。"
+
+"I'll… keep that in mind?"  
+"我会…记住的？"
+
+Shinji decided to read some stories too, standing next to Mana as it started to rain outside the shop. The soft pitter-patter of the rain on the windows and skylights made for a beautiful orchestra of noise as they both fantasized about the worlds they were lost in. The outside looked cold, but he could feel the faint body heat coming from Mana, mere centimeters away from his right arm. It was a very cozy feeling.  
+真嗣决定也读些故事，站在麻那旁边，外面开始下雨了。雨滴轻轻敲打在窗户和天窗上，形成了一曲美妙的自然交响乐，他们俩都沉浸在自己所迷失的世界中。外面看起来很冷，但他能感觉到从麻那身上传来的微弱体温，距离他的右臂仅几厘米。这种感觉非常舒适。
+
+"Hey Shinji…" "嘿，真嗣…"
+
+"What's up Mana?" "怎么了，麻奈？"
+
+"This is nice. Isn't it?"  
+"这样挺好的，不是吗？"
+
+---
+### Chapter 17: A Mother's Embrace  
+第十七章：母亲的怀抱  
+
+The Artificial Research Laboratory was in chaos.  
+人工研究实验室陷入了一片混乱。
+
+Alarms were blaring, scientists and security were running around wildly, areas of the complex were being locked down, it was utter pandemonium.  
+警报声此起彼伏，科学家和安保人员四处奔走，实验室的部分区域被封锁，场面一片混乱。
+
+Gendo, Yui, and Kyoko sat in the command centre, fearing the worst. Yui looked over towards her husband, a rare look of fear etched into her expression.  
+源堂、唯和京子坐在指挥中心，心中充满最坏的预感。唯望向她的丈夫，脸上罕见地刻着恐惧。
+
+"What do we do?" Her eyes looked lost. She felt her whole life coming apart at the seams. Her husband was in his traditional signature pose, as he usually was during times of crises like this. But even behind his tinted glasses, Yui could see that the man who could keep his composure in most situations was panicking. His response never came, his eyes fixated on the large monitor in front of him. Satsuki, Kaede and Aoi were sitting at their posts, barking orders.  
+“我们该怎么办？”她的眼神显得迷茫。她感到自己的生活正从缝隙中崩解。她的丈夫保持着他一贯的标志性姿势，通常在这样危机的时刻也是如此。但即便隔着墨镜，唯也能看出，这个在大多数情况下都能保持镇定的人正在恐慌。他没有回应，目光紧盯着面前的大屏幕。萨斯吉亚、枫和葵坐在他们的岗位上，大声下达命令。
+
+"The MAGI are at a 32% intrusion level! Sever the network links with the outside!"  
+“MAGI 的入侵程度已达 32%！切断与外部网络的连接！”
+
+"The virus is… mutating!? Nothing we do is stopping it! Morphing the logic is having no effect!"  
+病毒正在……变异！？我们的一切努力都无法阻止它！改变逻辑结构毫无效果！
+
+"Vice Director, what do we do!?"  
+副所长，我们该怎么办！？
+
+Yui bit her lip. This was a bold move, even for SEELE. Everything they had been working on for _years_… All the research and data. All of it! Teetering on the knife's edge of being totally stolen away. Their contribution to not only the future of the children but to all of humanity was mere moments away from ending up in the hands of the fools that would rather see the world go to ruin.  
+Yui 咬紧了嘴唇。这对 SEELE 来说也是大胆的一步。他们多年来为之努力的一切……所有的研究和数据。所有的一切！正处在被彻底窃取的边缘。他们不仅对孩子们的未来，更是对全人类的贡献，即将落入那些宁愿看到世界毁灭的蠢货手中。
+
+This spectre had been haunting them for long enough. It was time to deal with the ghost in the machine.  
+这个幽灵已经困扰他们够久了。是时候处理这台机器里的鬼魂了。
+
+Yui whipped out her phone, speed dialling a number in the swift action it took to get from phone to ear.  
+Yui 迅速掏出手机，以迅雷不及掩耳之势拨通了一个号码，手机随即贴到了耳边。
+
+"Misato, bring the kids. I want them to do some ghostbusting."  
+“美里，带上孩子们。我要他们去捉鬼。”
+
+---
+
+"I love your mother, I really do… But her references are showing her age. And in doing so, it's making _ME_ feel old!"  
+"我爱你的妈妈，真的……但她的那些老掉牙的典故，真是让我也感觉自己老了！"
+
+"I hate to break it to you Misato but the chicken that represents your life is no longer in it's Spring. If anything, I'd say the first leaves that drop in the Fall are a better representative than-… _HEY_!" Asuka's scathing remarks were rudely interrupted by Misato's swerving Alpine taking the inclines of the road as ramps.  
+""我不想打击你，美里，但代表你生命的那只鸡已经过了青春期。要说的话，我觉得初秋落下的第一片叶子更能代表你……嘿！"" 明日香尖刻的评论被美里驾驶的阿尔派突然转向，将路面斜坡当作跳台的举动粗暴打断。
+
+"I've never seen the Fast and Furious movies but I'd stop Asuka, before we start to reenact them-… gurghhh!" The car landing back on its wheels managed to shock the air out of Shinji before he had a chance to delicately finish his sentence. His lunch was threatening to paint the car interior with bile and judging from the hue on Asuka's face shifting slowly to a greenish colour, she wasn't far behind.  
+""我从来没看过《速度与激情》系列电影，但我觉得在开始重现它们之前，明日香，你最好停下来——呃！"" 车子重新着地，震得真嗣一口气没上来，话也没说完。他的午饭眼看就要在车内涂上一层胆汁，而从明日香脸上逐渐转为青绿色的脸色来看，她也快撑不住了。
+
+"Anymore smartass comments and I'll show you my drifting skills next, _Asuka_." Misato grinned evilly. The ride back to the Artificial Research Lab was significantly quieter after that.  
+"再敢耍嘴皮子，下次我就给你展示我的漂移技术，明日香。" 美里邪恶地笑着。之后返回人工研究实验室的路上，气氛明显安静了许多。
+
+Rolling into the lab's underground car park, Misato had the kids up the command centre as quick as possible, give or take a few detours and consulting a technician for directions.  
+驶入实验室的地下停车场，美里迅速带着孩子们前往指挥中心，期间绕了几次路并咨询了一位技术人员以确定方向。
+
+"You've been here how many times Misato!? God, I'm so embarrassed…"  
+"你来过这里多少次了，美里？！天啊，我真是太尴尬了……"
+
+"Yeah, thanks for all your help Asuka, you've been here before too!"  
+“是啊，谢谢你的帮助，明日香，你也来过这里！”
+
+"All of once! Why on earth would the Ikari's make this place a labyrinth? How do _they_ ever find their way around this place?"  
+“就一次！伊卡里家为什么要把这个地方弄成迷宫？他们怎么在这里找到路的？”
+
+Skidding into the command centre, all three of them panted, desperately trying to get some oxygen into their lungs. Yui grinned weakly at the dramatic entrance.  
+三人滑进指挥中心，气喘吁吁地试图让氧气进入肺部。唯虚弱地对这戏剧性的入场笑了笑。
+
+"Glad to see you eventually made it."  
+"很高兴你终于到了。"
+
+"No problem at all. But if I may make a request, can someone give me a map? Would be _really_ useful to get these guys here as quickly as possible." Misato wheezed. Shinji spotted a familiar blunette standing behind his mother.  
+"完全没问题。不过如果可以的话，能给我一张地图吗？这样能尽快把这些人送到目的地。"" 美里喘着气说。真嗣注意到一个熟悉的蓝发女孩站在他母亲身后。
+
+"Rei! When did you get here?"  
+"绫波！你什么时候来的？"
+
+"I had to do some testing, so I left school early…" Rei looked at him, almost pouting. "Did you even _notice_ I had gone?"  
+"我得做些测试，所以提前离开了学校……" 丽看着他，几乎要噘嘴了。"你注意到我走了吗？"
+
+"Well, I…" His words had magically chosen that moment to not appear out of thin air.  
+"嗯，我……" 他的话仿佛在那一刻神奇地选择不从空气中冒出来。
+
+"It's not even the end of lunch break, you could've been in the bathroom! You were right there with us up until the bell rang at the end of last period. You've been here like… thirty minutes before we got here!" Asuka, still trying to catch her breath, came to his rescue. The two girls glared at each other.  
+"甚至还没到午休结束，你可能是去洗手间了！直到上一节课结束铃响，你都还和我们在一起。你比我们早到这儿……三十分钟呢！" 明日香还在努力喘气，过来帮他解围。两个女孩互相瞪着对方。
+
+"MAGI intrusion is at seventy percent! Vice Director, whatever you're planning, you better get them to it asap!" Satsuki bellowed from her workstation. Shinji and the others could now see that things were a lot more serious than they realised. All the technicians looked incredibly stressed, the large monitor was filled with warnings and errors. Shinji saw 'MAGI' and what looked like a slowly filling graph pulsing red splashed across the screen.  
+“MAGI 入侵已达百分之七十！副所长，无论您计划什么，最好尽快让他们行动起来！”萨斯吉的声音从她的工作站传来。真嗣和其他人现在意识到情况远比他们想象的严重。所有技术人员看起来都非常紧张，大屏幕上满是警告和错误信息。真嗣看到‘MAGI’和屏幕上似乎在慢慢填充的红色脉冲图表。
+
+"Wait, is this…?" “等等，这是……？”
+
+"_SEELE_." His father grunted his overly large desk. His eyes were fixated on the screen. Shinji had never seen him look so serious.  
+“SEELE。”他的父亲在巨大的办公桌后咕哝着。他的眼睛紧盯着屏幕。真嗣从未见过他如此严肃。
+
+"Mom, what's going on?" "妈妈，发生什么事了？"
+
+"You heard your father. SEELE have decided to play a game with us. And if we lose, it threatens the future as we know it." Shinji noticed his mother was also struggling not to scowl at the monitors above them. Things were much worse than he thought.  
+"你听你父亲说了。SEELE 决定和我们玩一场游戏。如果我们输了，我们所知的未来将受到威胁。" 真嗣注意到他的母亲也在努力不向他们头顶的监视器皱眉。情况比他想象的要糟糕得多。
+
+"In order to combat and resolve the situation, we need you three to help us." Yui suddenly had a tablet in her hand, rapidly scrolling through the data. "Your bracelets will be key, but unfortunately, we can't just wave them and hope this situation will go away. So, in order to use them effectively, we're going to be sending you _into the MAGI_ _itself_ in order to defeat the virus."  
+"为了应对并解决这一局面，我们需要你们三个的帮助。" 唯突然手中多了一个平板电脑，迅速滚动着数据。"你们的手环将是关键，但遗憾的是，我们不能仅仅挥挥手就指望这种情况会消失。所以，为了有效地使用它们，我们将把你们送入 MAGI 系统内部，以击败病毒。"
+
+There was a long silence at the end of her explanation. Asuka and Shinji looked at each other for a moment before returning their gaze to the lead scientist of the Artificial Research Laboratory.  
+她的解释结束后，是一阵长久的沉默。明日香和真嗣对视了一会儿，然后将目光转回到人工研究实验室的首席科学家身上。
+
+"…_wut_?" “…啥？”
+
+"I think she means we're going into a virtual reality… Right Auntie?" Rei's voice piped up in the distance, standing next to Gendo's desk.  
+“我想她的意思是我们要进入虚拟现实…对吧，阿姨？” 绫波的声音从远处传来，站在碇的办公桌旁。
+
+"Well done Rei, that's right."  
+"干得好，丽，没错。"
+
+"Wait, VR? Like with those headsets? Ooh, I've always wanted to play _Beatsaber_…"  
+"等等，VR？就像那些头戴设备？哦，我一直想玩《节奏光剑》……"
+
+"No Asuka. It's not going to need a headset. But I suppose it wouldn't be too far off to call the experience a game…" Yui lifted her eyes from the tablet and glanced up at them.  
+"不，明日香。它不需要头戴设备。但我想，称之为一种游戏体验也不算太离谱……" 绫波从平板电脑上抬起眼睛，瞥了她们一眼。"
+
+"Misato, can you take them to the VR room? I've sent a map to your phone. Yes, yes, I know, you're welcome. Actually…" Yui suddenly looked thoughtful. "Get them into their plug suits first. I feel like they're going to need them."  
+"美里，你能带他们去 VR 室吗？我已经把地图发到你手机上了。对，对，我知道，不用谢。其实……" 唯突然若有所思。"先让他们穿上插入栓服。我觉得他们会需要的。"  
+Ignoring Misato's cheer of finally getting hold of a way to navigate the maze that made up the facility, Asuka and Shinji looked at each other again in confusion.  
+无视美里终于找到方法穿越错综复杂设施的欢呼，明日香和真嗣再次困惑地对视。
+
+"What's a plug suit?"  
+"插入栓服是什么？"
+
+---
+
+"You have _**got**_ to be kidding me…"  
+"你一定是在开玩笑吧…"
+
+"They're a bit…" "他们有点…"
+
+Both Shinji and Asuka were holding the answer to the question that had bugged them all the way from the command centre. Misato hadn't said a word. Instead, she had been content to irritate them with giggles. Rei hadn't said anything either, but both Shinji and Asuka noticed the wild blush that had threatened to consume her face.  
+真嗣和明日香都握着从指挥中心一路困扰他们的问题的答案。美里一句话也没说。相反，她只是满足于用咯咯的笑声来激怒他们。丽也没有说什么，但真嗣和明日香都注意到了她脸上那几乎要蔓延开来的狂野红晕。
+
+Now they knew the reason for it. A bright red suit made from what felt not too far from latex was dangling from Asuka's outstretched hand. Holding it as though it was made from the excrement of animals, Asuka looked at Misato, aghast.  
+现在他们明白了其中的缘由。一件鲜红色的紧身衣，触感近似乳胶，正悬挂在明日香伸出的手上。她拿着它，仿佛那是动物粪便制成的东西，明日香惊愕地看着美里。
+
+"Please tell me this is some sort of sick joke."  
+“请告诉我这只是某种恶心的玩笑。”
+
+"Unfortunately not Asuka. Some of the experiments here require a suit that has a bunch of cutting-edge technology in them. I don't know _how_ they work exactly, but trust me, they're important."  
+“不幸的是，并非如此，明日香。这里的一些实验需要穿上集成了许多尖端科技的服装。我不太清楚它们具体如何运作，但相信我，它们至关重要。”
+
+"But… _**WHY**_!?" Asuka raged out the last syllable. "It looks, and there's no other word for it, _**kinky!**_ And not in a good way!"  
+"但…为什么！？" 明日香愤怒地喊出最后一个字。"这看起来，找不到其他词来形容，就是变态！而且不是好的那种！"
+
+Misato let out a hearty laugh. "I can't totally disagree with you there. If you have a problem with the design, you'll need to take it up with the guys that run this place."  
+美里发出一阵爽朗的笑声。"我完全同意你的看法。如果你对设计有意见，你得去找管理这个地方的人谈谈。"
+
+"Rei, you not going to put yours on?" The blunette was looking very anxious, her blush not having yet dissipated yet.  
+"丽，你不打算穿上吗？" 蓝发少女显得非常焦虑，她的脸颊上的红晕还未消退。"
+
+"For the purpose of the experiments, I never questioned it before but…" She looked nervously at Shinji. "But… I share Soryu's sentiment. Wearing it in front of Shinji is going to be… difficult."  
+"为了实验的目的，我以前从未质疑过，但是……" 她紧张地看着真嗣。"但是……我和惣流有同样的感受。在真嗣面前穿这个会……很困难。"
+
+"Oh for the love of…" Misato walked towards the girls, suddenly grabbed them both by the waist and plopped them both on each shoulder.  
+"哦，真是的……" 美里走向女孩们，突然抓住她们的腰，将她们分别放在自己的两个肩膀上。
+
+"_**MISATO, WHAT ARE YOU DOING**_!?"  
+"美里，你在干什么！？"
+
+"Miss Katsuragi, please, this is embarrassing!"  
+“葛城小姐，请别这样，太难为情了！”
+
+"If we wait until you guys are ready to do this, SEELE will kill us all. Oh, and Shinji?" Misato nodded towards the men's changing room. "When you do put on the suit, make sure you press the button on your left wrist. That'll match the form of the suit to your measurements. I know it looks a bit oversized now, but it'll fit, trust me."  
+“如果我们等到你们都准备好了再行动，SEELE 会把我们都干掉的。哦，还有，真嗣？”美里朝男更衣室点了点头，“当你穿上这套装甲时，记得按一下左手腕上的按钮。它会根据你的身材调整装甲的尺寸。我知道现在看起来有点大，但相信我，它会合身的。”
+
+With that, the three girls disappeared, the sounds of indignation getting quieter. Shinji sighed and looked at the blue and white suit in his hand. There was no avoiding it. He wandered over to the door of the men's changing room, but not before he heard an embarrassed scream come from the ladies.  
+说完，三个女孩便消失了，不满的声音也逐渐减弱。真嗣叹了口气，看着手中的蓝白套装。这是无法避免的。他走向男更衣室的门，但在那之前，他听到了从女士那边传来的一声尴尬的尖叫。
+
+"_I MIGHT AS WELL BE NAKED!_" He heard Asuka rage. That didn't bode well for his own suit. Stripping off his clothes, he debated about wearing his underwear. His initial instinct was yes but maybe it might cause problems?  
+“我简直就像没穿衣服一样！”他听到明日香愤怒地吼道。这对他的防护服可不是个好兆头。他脱掉衣服，犹豫着是否要穿上内裤。起初的本能反应是肯定的，但也许这会引起问题？
+
+Shaking his head and realizing that they never got any instruction about it, he decided to keep his boxers on. For emotional support if nothing else.  
+他摇了摇头，意识到他们从未得到任何相关指导，于是决定还是穿上内裤。至少为了情感上的支持。  
+It was a lot baggier than he had expected. Pulling the strangely rubbery material over his shoulders, it felt more like a clownish fat suit than something used for cutting-edge science. He did notice some bits on the suit that looked like they might be sensors, including the bright red jewel looking object on his chest. The suit also came with what looked like sensors to put in his hair, almost like the hair accessories Asuka liked to wear.  
+这套衣服比他预想的要宽松得多。他将那奇怪的橡胶质感材料拉过肩膀，感觉更像是个滑稽的胖大褂，而不是用于尖端科学的装备。他注意到衣服上有一些像是传感器的部件，包括胸前那个鲜红色的宝石状物体。衣服还附带了一些看起来像是用于头发的传感器，几乎像是明日香喜欢戴的发饰。
+
+After sorting them out and making sure the suit was on as best as possible, he looked at his left wrist.  
+整理好一切并尽可能完美地穿上战衣后，他看向自己的左手腕。
+
+"Is this it… WOAH!" A sound like air being sucked up a vacuum suddenly hissed all around his body. The suit rapidly compressed around him, clinging to his skin all over. It wasn't uncomfortable, but the material felt odd to him. He'd never worn anything like this before.  
+“这就是了……哇哦！”一阵仿佛被吸尘器吸入的空气声突然在他全身周围嘶嘶作响。战衣迅速压缩，紧贴着他的皮肤。虽然并不难受，但这种材质让他感到陌生。他从未穿过类似的东西。
+
+It really was as skintight as Asuka's cry earlier had made it out to be. Suddenly getting an uncomfortable thought, he looked down at his gentleman's area, aware that any kind of thoughts that would set _that_ off would be visible from a mile away. Grimacing at the reality, he promised himself to only think clean thoughts when he saw Asuka and Rei.  
+确实如明日香之前的惊呼所言，这件衣服紧贴得如同第二层皮肤。突然间，他产生了一个不安的想法，低头看向自己的私密部位，意识到任何会引起反应的念头都会一览无余。面对这个现实，他暗自发誓，在见到明日香和绫波时，只会有纯洁的念头。
+
+It was hopeless. It had been approximately a nanosecond before he covered his groin in the presence of his two suited comrades. Rei was wearing a pure white suit that accented absolutely _everything_ and Asuka was very much the same but in a completely red outfit. At least in their school uniforms, you couldn't tell immediately but in the plug suits, Asuka clearly had a size advantage in the breasts department. Rei had a rump that put her back in the competition easily, but they both also had a significant feature around their groin areas that reminded Shinji very much of the toes of an animal that you would usually find crossing deserts.  
+这真是无望了。就在大约一纳秒前，他在两位西装革履的同伴面前遮住了自己的下体。丽穿着一身纯白色的西装，完美地衬托出她的每一处曲线，而明日香也几乎一样，只不过是一身全红的装扮。至少在学校制服里，你不会立刻察觉到，但在插入栓服中，明日香在胸部方面明显占优势。丽则拥有一个让比赛重新变得激烈的翘臀，但她们俩在胯部区域都有个显著特征，让真嗣不禁联想到通常在穿越沙漠时会遇到的动物的蹄子。
+
+"Yeah, yeah, get it out of your system." Asuka grimaced, well aware that Shinji _had_ been trying his best not to _look_ like he was looking. "We can see your leaning tower of Pisa attempting to wave hello, we're not blind either."  
+“是啊，是啊，尽情发泄吧。”明日香皱眉说道，她很清楚真嗣一直在尽力不让自己看起来像是在偷看。“我们能看到你那座倾斜的比萨塔试图挥手打招呼，我们也不是瞎子。”
+
+"Wait, what? What tower?" Rei squinted at Shinji, scanning him over until she reached the lower half. "Oh… Ohhhh…"  
+“等等，什么？什么塔？”丽眯起眼睛看着真嗣，仔细打量着他，直到目光落在了下半身。“哦……哦哦……”
+
+It was time to get the party back to the command centre.  
+是时候把派对带回指挥中心了。
+
+"Oh my, they look even better than I thought they would!" Yui Ikari beamed at seeing the three suited-up teenagers return.  
+"哦天哪，他们看起来比我想象的还要好！" 看到三个穿着战斗服的少年归来，Yui Ikari 露出了灿烂的笑容。
+
+"With all due respect Vice Director, it feels a bit… revealing…" Asuka nervously glanced all over herself. She'd been fighting the urge to clobber Shinji the whole way back but decided not to out of pity. The poor guy basically waddled back whilst trying his best to cover the silhouette of his unmentionables. All the blood in his body seemed to have gone to his face thankfully, so she left his punishment to mother nature to dole out.  
+"恕我直言，副指挥官，这感觉有点……暴露……" 明日香紧张地四处打量自己。她一路上都在努力克制着想要揍真嗣的冲动，但出于同情决定不这么做。可怜的家伙基本上是一路蹒跚着回来，同时尽力遮掩着他的隐私部位的轮廓。幸运的是，他全身的血液似乎都涌到了脸上，所以她决定让自然法则来惩罚他。
+
+"I understand it's not the most fashionable thing in the world, but it does really help us out with the science side of things." Yui smiled weakly. "Also, you can just call me Ikari y'know. Or even just Yui. Or even Auntie, like Rei does! It feels weird hearing _Vice Director_ from you guys…" Something resembling the shadow of a pout flickered across the lead scientist's face.  
+"我知道这可能不是世界上最时髦的东西，但它确实在科学方面帮了我们大忙。" 唯微笑得有些无力。"而且，你们可以直接叫我碇，或者干脆叫唯，甚至像丽那样叫我阿姨也行！听你们叫副所长感觉怪怪的……" 首席科学家脸上闪过一丝类似撅嘴的阴影。
+
+"Yui come on. You're running the show here, it's not a surprise she has no idea how to refer to you." A familiar voice echoed from one of the workstations across the command centre. Asuka's eyes immediately lit up, woes about her suit completely forgotten.  
+"唯，拜托。你在这里是掌舵的，她不知道怎么称呼你也不奇怪。" 一个熟悉的声音从指挥中心对面的一台工作站传来。明日香的眼神立刻亮了起来，对她的制服的烦恼完全抛诸脑后。
+
+"Mama!" Asuka ran over to her mother, grabbing her in a big hug. It was a surprise to see the blonde scientist out of her lab. Shinji couldn't remember the last time he had actually seen Kyoko Soryu. He'd been convinced that she had become a permanent sort of hermit down there, texting colleagues for food deliveries and forgetting to have regular showers. But the woman that greeted them looked as fit as a fiddle and perfectly hygienic, if a little sleepy.  
+"妈妈！" 明日香跑向她的母亲，紧紧地抱住了她。看到这位金发科学家离开实验室真是意外。真嗣记不清上次见到草薙京子是什么时候了。他一直以为她已经变成了那种永久性的隐士，通过发短信让同事送食物，并忘记定期洗澡。但迎接他们的女人看起来精神抖擞，卫生状况良好，只是有点困倦。
+
+"Sorry it's been a while, my little Asuka! These guys keep me pretty busy!"  
+"抱歉，久等了，我的小明日香！这些家伙让我忙得不可开交！"
+
+"I hate to interrupt this touching reunion but…" The burly voice of a troubled Gendo Ikari boomed from his desk, before-  
+"我不愿打断这感人的重逢，但是……" 一个低沉而焦虑的声音从碇源堂的办公桌传来，随后——
+
+"MAGI Intrusion at eighty-five percent! Guys, _do something_!" The tech team seemed to be at their wits end keeping the intrusion at bay. Kyoko returned to her terminal, apologizing to her daughter.  
+"MAGI 系统遭到百分之八十五的入侵！伙计们，快采取行动！" 技术团队似乎已经竭尽全力在抵御入侵。绫波零回到她的终端前，向女儿道歉。
+
+"I'm sorry Asuka but I need to help them. Let Auntie Yui fill in the rest!"  
+"对不起，明日香，但我需要帮助他们。让 Yui 阿姨来补充剩下的吧！"
+
+"She's right." Yui Ikari once again took up the reins of the operation. "Misato, take them to the VR room. I'll be in communication when you get there. And guys…" She looked at the three kids, worry clouding her face. "Please, be careful in there."  
+"她说得对。"" 碇唯再次接管了行动的指挥权。""美里，带他们去 VR 室。你们到了那里后我会保持联系。还有，孩子们……"" 她看着三个孩子，脸上满是担忧。""请在里面小心点。"
+
+---
+
+The VR room looked very familiar. To Shinji and Asuka, it was the room where they first discovered what exactly it was that Shinji's parents were experimenting with. The bare room with nothing inside but white walls was back.  
+VR 室看起来非常熟悉。对真嗣和明日香来说，这是他们第一次发现真嗣父母究竟在实验什么的地方。那个空荡荡的房间，只有白色墙壁，又回来了。
+
+"_However, this room is not the same. It's been extensively tuned and refitted with mechanisms that can extend its length and width, as well as provide safety. Unfortunately, Misato can't join you in there until she gets her own plug suit-_"  
+"然而，这个房间并不一样。它经过了大量调整和改装，配备了可以延伸其长度和宽度的机械装置，以及提供安全保障。遗憾的是，直到美里获得她自己的插入栓服之前，她无法进入那里——"
+
+"_I'M GETTING A PLUG SUIT TOO!?_" Shinji and Asuka both mentally agreed that their guardian and teacher sounded way too excited with that bit of information.  
+"我也要穿插入栓服！？" 真嗣和明日香都在心里认同，他们的监护人和老师对这个消息显得过于兴奋了。
+
+"…_-so she will be monitoring you both via a smaller control centre over there. Unfortunately, I don't have the time to give you all a briefing so we're going to be explaining things to you on the fly. We'll be launching the experiment in ten seconds. Brace yourselves!"_  
+"……-所以她将通过那边的一个小型控制中心监控你们俩。遗憾的是，我没有时间给你们做简报，所以我们将在实验进行中向你们解释。实验将在十秒后启动。做好准备！"
+
+On his left, Rei looked nervous. Suddenly she yelped in surprise. Shinji had gently started to hold her hand.  
+在他左边，丽看起来很紧张。突然，她惊叫了一声。真嗣轻轻地握住了她的手。
+
+"It's going to be alright Rei."  
+“丽，一切都会好起来的。”
+
+She had participated in a fair few experiments at the lab, helping Auntie and Uncle. But this one felt a lot more overwhelming. The future of the lab was at stake and she didn't want to mess up. She squeezed Shinji's hand gently in return, thankful for the reassurance.  
+她在实验室参与了不少实验，帮助阿姨和叔叔。但这次感觉格外沉重。实验室的未来悬而未决，她不想搞砸。她轻轻回握了真嗣的手，感激这份安慰。
+
+"Yeah. It'll be okay… I think."  
+"嗯，会没事的……我想。"
+
+Shinji suddenly felt his other hand being clasped. Turning his head, he saw Asuka looking straight ahead at one of the blank walls.  
+真嗣突然感到另一只手被握住了。他转过头，看到明日香正直视着一面空白的墙壁。
+
+"You better not forget about me Shinji. It's not just Rei you need to look after." She was trying not to show anything, but her face was slightly tinged red. Smiling, he squeezed her hand too.  
+"你最好别忘了我，真嗣。不只是丽需要你照顾。"" 她尽量不表现出什么，但脸颊微微泛红。他微笑着，也握紧了她的手。
+
+"Yeah. I don't want to let anything happen to you either."  
+"是啊。我也不想让你受到任何伤害。"
+
+"Good! Then let's go kick this thing's ass and go home!"  
+"好极了！那我们就去狠狠教训这玩意儿，然后回家吧！"
+
+"_T-MINUS 5, 4, 3, 2, 1, START!"_  
+"倒计时 5，4，3，2，1，开始！"
+
+The world around them erupted into a kaleidoscopic abstract flurry of colours. The three teenagers awed at the world around them, looking as though they had dived headfirst into a radiant galaxy. Shinji was immediately reminded of a school trip to the planetarium a long time ago. However, what they were seeing now was making that experience pale in comparison. It wasn't long before the lightshow around them ended and they were suddenly greeted with the sight of-  
+周围的世界爆发成一片万花筒般的抽象色彩旋风。三个青少年惊叹于四周的景象，仿佛一头扎进了一个璀璨的银河。真嗣立刻想起了很久以前一次学校组织的去天文馆的旅行。然而，现在他们所见之景，让那次经历相形见绌。不久，环绕他们的光影秀结束，他们突然被眼前的景象所迎接——
+
+"Wait, is this our classroom?"  
+“等等，这是我们的教室吗？”
+
+---
+
+"I brought them, Vice Director." The voice of a man who looked to be in his early 30s appeared in the command centre.  
+“我把他们带来了，副指挥。”一个看起来三十岁出头的男子的声音在指挥中心响起。
+
+"Ah, Kaji! It's good to see you again!" Yui Ikari glanced over at him, noting the ponytail that forever irked her was still present. Behind the smiling man were two girls. Crimson, with her ever present scowl was glaring at Yui. The scientist could understand why the Asuka lookalike usually had an angry disposition but it always felt like she done something to the irritated teenager personally.  
+"啊，加持！再次见到你真好！" 碇唯瞥了他一眼，注意到那根永远让她不爽的马尾依旧存在。微笑的男人身后站着两个女孩。绛红，总是带着不满表情的她正瞪着碇唯。科学家能理解为什么这个酷似明日香的人通常带着愤怒的情绪，但总感觉她对这位烦躁的少女做了什么似的。
+
+Standing at a comfortable distance away from the angry redhead, Rei II had also joined them, with a curious expression. To her, especially with the large gaps in her memory, this must feel like the first time standing in a facility like this, Yui reasoned to herself.  
+站在愤怒的红发少女稍远的地方，绫波零也加入了他们，带着好奇的表情。对她来说，尤其是记忆中存在大片空白的情况下，这一定像是第一次站在这样的设施里，碇唯暗自推理。
+
+"I just hope it isn't going to bring back any unpleasant memories, especially at a time like this." She thought to herself.  
+"我只希望这不会唤起任何不愉快的记忆，尤其是在这个时候。" 她暗自思忖。
+
+"So why are we here... _And what the hell are they_ _**wearing**_!?" Crimson had spotted the monitoring window on the huge display in front of everyone. On it, she could clearly see Shinji, Asuka and Rei in their plug suits.  
+“所以我们为什么会在这里...还有他们到底穿的是什么鬼东西！？” Crimson 注意到了大家面前巨大显示屏上的监控窗口。通过它，她可以清楚地看到穿着插入栓服的 Shinji、Asuka 和 Rei。
+
+Yui suddenly realised why the girl looked ready to boil water with her face. Crimson's eyes raged with the fire of a supernova. On the day that Shinji had brought Crimson home, alongside the amnesiac Rei and the creepy ghost, they had all been wearing similar suits. Asuka's suit was an almost perfect recreation of the one that Crimson had worn from her own world. And it was no coincidence either.  
+Yui 突然意识到为什么女孩看起来像是要用脸煮开水了。Crimson 的眼睛里燃烧着超新星般的怒火。那天 Shinji 把 Crimson 带回家时，还有失忆的 Rei 和那个诡异的幽灵，他们都穿着类似的服装。Asuka 的服装几乎完美再现了 Crimson 在自己世界中所穿的款式。而这绝非巧合。
+
+Yui and the rest of the scientists had analysed the suits from the mysterious other world and had realised that they did indeed contain useful functions, such as life support and various other sensors that gave real-time monitoring abilities to many of the body's functions. They had been deemed useful and became an integral part of the experiments.  
+Yui 和其他科学家们分析了来自神秘异世界的服装，并发现它们确实包含了一些实用功能，比如生命维持系统和各种实时监测身体机能的传感器。这些服装被认为非常有用，并成为了实验不可或缺的一部分。
+
+In the beginning, Yui hadn't been overly ecstatic using them. Using technology from a world that sought to basically destroy itself wasn't chiming with her moral compass. But the logic in her scientifically geared brain won out in the end. After all, any tool could be used for good, not just evil.  
+起初，Yui 对使用这些技术并不感到特别兴奋。使用一个基本自毁的世界的技术，与她的道德指南针并不合拍。但最终，她那偏向科学的逻辑思维占了上风。毕竟，任何工具都可以用于善，而不仅仅是恶。
+
+But she had completely forgot about what it might do to the mental stability of the teenagers from the destroyed world. Judging from Crimson's expression, it was about to rain blood-  
+但她完全忘记了这可能对来自那个被毁灭世界的青少年的心理稳定造成的影响。从 Crimson 的表情来看，血雨即将来临——
+
+"ARE YOU JOKING!? PLUG SUITS!? WHAT, ARE YOU GUYS HIDING A GODFORSAKEN ANGEL IN THE _FUCKING_ BASEMENT TOO?"  
+“你在开玩笑吗！？插件服！？什么，你们是不是还在地下室藏了一个该死的天使？”
+
+"No! We just need them to- "  
+"不！我们只是需要他们去——"
+
+"TO WHAT!? No, don't even say it! I've heard this schtick before! Giant, soul-powered robots, fighting messengers of God but _actually_… no! Vessels, to initiate a world-ending apocalypse, all to resurrect a dead wife and stick it to some Illuminati _dickheads_ and turn all of humanity into some giant Haunted-Mansion style blob in the sky where EVERYONE gets to see all of your secrets and memories. The _fucking_ janitor in that world from my old school has memories of me getting off to the translucent baka and god forbid I can't bloody look him in the eye in this one! Everyone's dead, the sea's blood red, Ayanami's _fucking_ face just chilling in it, grinning at the _fucking_ moon, not to mention being the size of one. And you know what…" The temperature of the room was _Arctic_. No one dared breath as Crimson slowly but purposefully walked up to Gendo Ikari.  
+"去干什么？！不，别说出来！我以前听过这套说辞！巨大的、由灵魂驱动的机器人，对抗神的使者但实际上……不！容器，为了引发世界末日的天启，全都是为了复活死去的妻子，打击那些光明会的混蛋，然后把全人类变成某种巨大的、像鬼屋一样的天空中漂浮的团块，在那里每个人都能看到你所有的秘密和记忆。我以前的学校里那个清洁工有我对着半透明笨蛋自慰的记忆，天哪，我在这个世界里简直不敢直视他的眼睛！所有人都死了，海水血红，绫波零的脸就那么漂浮其中，对着月亮咧嘴笑，更别提它有那么大了。而且你知道吗……" 房间的温度如同北极般寒冷。没有人敢呼吸，克里姆森缓缓但坚定地走向碇源堂。
+
+"It was All. Your. Fault."  
+"这一切都是你的错。"
+
+No one knew what kind of expression lay behind the orange-tinted spectacles of the Commander. His signature pose suggested a sense of stoicism, but under the façade, Yui knew that Gendo Ikari, the leader of the Artificial Research Laboratory, the man who braved facing off against the likes of SEELE, was absolutely _freaking out_.  
+没有人知道指挥官橙色镜片后的表情是什么样的。他标志性的姿态暗示着一种坚忍，但在表面之下，Yui 知道，Gendo Ikari，人工研究实验室的领导者，那个敢于直面 SEELE 之类的人，绝对是在抓狂。
+
+"I do believe this is the first time we've met, Miss…"  
+“我相信这是我们第一次见面，小姐……”
+
+"Crimson! I may share the same name as the other, but I am not the same Asuka! I am one that _YOU DESTROYED_! Along with an entire planet!" A long silence followed. Everyone bar a few scientists had been completely distracted by the drama unfolding in front of them. It wasn't everyday you saw the Commander being absolutely bullied by a teenager.  
+“Crimson！我可能和其他人同名，但我不是同一个 Asuka！我是被你摧毁的那一个！连同一整个星球！”长时间的沉默随之而来。除了少数几位科学家，所有人都被眼前上演的戏剧完全吸引了。不是每天都能看到指挥官被一个青少年彻底欺负的。
+
+"Miss… Crimson. I do not know what it was like in the world you came from, I cannot possibly even begin to fathom the darkness that swallowed up the planet. We do not intend to keep secrets from you, or Rei, about what it is we do here. But I ask you to understand. We are _not_ NERV. We don't have weapons here of any kind. There are no… Angels, to fight. The only thing that stands in our way of providing a future for the generations ahead, is SEELE. A name that I am aware you are familiar with. What we do here is research, and experiment, in order to progress humanity. Not to conglomerate it in a false sense of paradise. We defend ourselves against SEELE, not with weapons but with science. We use the tools that we develop with good intentions, including what you see the children wearing. It is not an indication that we have malicious intentions." Gendo sighed, pushing up his glasses.  
+“Miss… Crimson。我不了解你来自的那个世界是怎样的，我无法想象吞噬了整个星球的黑暗。我们无意对你或零隐瞒我们在这里所做的事情。但我请求你理解。我们不是 NERV，这里没有任何武器。没有……天使，需要对抗。我们唯一的阻碍是 SEELE，这个名字我相信你并不陌生。我们在这里所做的是研究与实验，为了推动人类进步，而不是在虚假的天堂中聚集。我们用科学而非武器来抵御 SEELE。我们使用的是出于善意的工具，包括你看到的孩子们所佩戴的。这并不意味着我们有恶意。”碇源堂叹了口气，推了推眼镜。
+
+"I realise that it will be nearly impossible for you to accept any of this. Anything I say about it is words echoed from a man that resembles the chaos from where you came from. So all I can do it show you the actions we take here with full transparency and…" Almost everyone in the room silently gasped in surprise. Gendo Ikari, the man with an image to maintain, _had just taken off his glasses._ Standing on his feet, he gave his full attention to Crimson. _And bowed._  
+"我意识到，要你接受这一切几乎是不可能的。我对此所说的任何话，都只是从一个与你来自的混乱之地相似的人那里传来的回声。所以我只能向你展示我们在这里采取的行动，保持完全的透明度，并且……" 房间里几乎每个人都默默地倒吸了一口气，感到惊讶。碇源堂，这个有着形象需要维护的男人，刚刚摘下了他的眼镜。他站起身来，全神贯注地面对着绯红。然后鞠了一躬。
+
+"Apologize, for the trauma you have been through. Miss Soryu-… no. Miss Crimson, I am sorry for what you have been through. And I can assure you, we are going to do anything we can to stop evil from taking root in this world and prevent another apocalypse in this one."  
+"为你们所经历的创伤道歉。绫波小姐……不，绯红小姐，我为你们所经历的一切感到抱歉。我可以向你保证，我们将尽一切努力阻止邪恶在这世界上扎根，并防止这个世界再次陷入末日。"
+
+There was another long silence.  
+又是一阵漫长的沉默。
+
+"I am not going to help. If that's the reason you brought me here, you can think again."  
+"我不会帮忙的。如果这就是你带我来这里的原因，那你还是再想想吧。"
+
+"We will not force you to do anything."  
+"我们不会强迫你做任何事。"
+
+"Fine then. I'm going home."  
+"那好吧。我要回家了。"
+
+"Asuka!" It was her mother's voice. A voice she had not heard in a very, _very_ long time. She knew an incarnation of her mother existed here, but out of fear, Crimson had not sought her out. Her memories were painful enough.  
+“明日香！”那是她母亲的声音。一个她许久未曾听闻的声音。她知道这里存在着她母亲的转世，但出于恐惧，绯红未曾去寻找她。她的记忆已足够痛苦。
+
+She found herself unable to move. Frozen to the spot. She wanted to run away. To hide at the ends of the earth. She was afraid. Afraid of her memories. Afraid of that voice. Afraid of herself.  
+她发现自己动弹不得，僵立在原地。她想逃跑，躲到天涯海角。她害怕，害怕那些记忆，害怕那个声音，害怕她自己。
+
+"Asuka…" Dr Kyoko Soryu took a tentative step forward. She could see the girl referring to herself as Crimson shaking all over. Another step forward. Kyoko wanted to reach out, to console the girl trapped in the throes of her own mentality, after all of the suffering. But Kyoko could see that any sudden moves would cause Crimson to flee. She'd done enough running. She needed to heal.  
+“明日香……” 绫波京子博士小心翼翼地向前迈了一步。她能看到自称绯红的女孩浑身颤抖。又一步向前。京子想要伸出手，安慰那个深陷自我心魔中的女孩，毕竟经历了那么多苦难。但京子看得出，任何突然的动作都会让绯红逃走。她已经逃得够多了，她需要治愈。
+
+"Everything is all right now. Everything is going to be okay."  
+"现在一切都好了。一切都会好起来的。"
+
+"You. You're…" Crimson felt her throat locking up. She hated it. She wanted to scream. To shout. To let this imposter know her place. She wasn't her real mom. But…  
+"你。你是…" Crimson 感到喉咙哽住了。她讨厌这样。她想尖叫。想大喊。想让这个冒牌货知道她的位置。她不是她的亲生母亲。但是…"
+
+She couldn't bring herself to do it. Why? It was just words… Right? She couldn't even face looking at the scientist right now. A tsunami of hot, angry tears was threatening to flow and destroy her where she stood. So, she remained there, frozen in place, not sure of what to do.  
+她无法让自己这么做。为什么？这只是些话…对吧？她甚至无法直视那位科学家。一股热泪的巨浪即将涌出，摧毁她所站立的地方。因此，她依旧站在那里，僵在原地，不知该如何是好。
+
+_Did Shinji ever feel like this?  
+真嗣曾经有过这种感觉吗？_
+
+Kyoko made it around to stand in front of the stricken girl. Worry was etched over the blonde scientist's face as she searched for the light of hope in the trauma taking over Crimson's mind. The girl's breathing was increasing in pace. She looked ready to crumble into dust at the merest touch of a light wind.  
+响子绕到前面，站在那个受创的女孩面前。担忧刻在金发科学家的脸上，她寻找着希望之光，试图穿透正在侵蚀绯红心灵的创伤。女孩的呼吸越来越急促，她看起来就像一阵微风就能将她吹散成尘埃。
+
+Stretching out her arms, Kyoko was about to embrace the girl, not knowing what else to do to soothe her pain. But before she could-  
+响子伸出双臂，正准备拥抱女孩，不知道还有什么办法能缓解她的痛苦。但在她能这么做之前——
+
+"You… told me… to die."  
+"你…让我…去死。"
+
+Once again, the room froze. All eyes were on the two in the middle of the command centre. Most of the people there had only heard fragments of Crimson's story. Only Yui, Gendo, Kyoko and the other children knew what Crimson was talking about.  
+又一次，房间陷入了死寂。所有目光都聚焦在指挥中心中央的两人身上。在场的大多数人只听说过关于 Crimson 故事的片段。只有 Yui、Gendo、Kyoko 和其他孩子们知道 Crimson 所指的是什么。
+
+"I…" Kyoko was lost for words. She heard what happened. The Shinji and Asuka from her world had relayed as much information that they had managed to glean from Crimson. But it still wasn't really enough to explain the sheer magnitude of what she had gone through.  
+"我…" Kyoko 无言以对。她听说了发生的事情。她所在世界的 Shinji 和 Asuka 尽可能多地向她转述了从 Crimson 那里得到的信息。但即便如此，仍不足以解释她所经历的巨大痛苦。
+
+"The Contact… Experiment…" Crimson could barely breath. Trickles of tears started to flow down her face. But she had long since given up trying to stop them. What did it matter anyway?  
+"接触……实验……" 绯红几乎无法呼吸。泪水开始顺着她的脸颊流淌。但她早已放弃试图阻止它们。反正又有什么关系呢？
+
+"The day I lost you, was the day I was told I was going to be an Evangelion pilot. I was proud, I couldn't wait to tell you. But truthfully, I had lost you long before that. The woman I knew as Kyoko Soryu, my mother, died the day she decided to sell her soul to those abominable creations. The only thing that was left was a husk of a women, driven mad, convinced that a stupid doll was her daughter, not the living, breathing child that begged her to get better every day. And in the end, not only did you kill yourself… But you tried to take me with you."  
+"我失去你的那天，正是我被告知将成为 EVA 驾驶员的那天。我感到自豪，迫不及待想告诉你。但事实上，我早已失去了你。我所认识的绫波响子，我的母亲，在她决定将灵魂出卖给那些可憎的造物的那天就死了。剩下的只是一个被疯狂驱使的女人，坚信一个愚蠢的玩偶是她的女儿，而非那个每天恳求她好起来的活生生的孩子。最终，你不仅自杀了……还试图带我一起走。"
+
+"That was it. From that point on, I couldn't be a normal child anymore. I had to be there for myself, because no one would. The only thing anyone ever cared about me for was piloting an Eva. Everyone except… _him_. And I even managed to destroy that shred of happiness too."  
+"就这样。从那一刻起，我再也不能做一个普通的孩子了。我必须为自己而存在，因为没有人会。唯一关心我的人只是因为我能驾驶 EVA。除了他。而我甚至毁掉了那最后一丝幸福。"
+
+"Maybe… If I had been nicer to him… The world might not have ended. Maybe I could've helped him to actually save the world. Maybe part of the reason that world is now an actual hell, is because I let it happen…"  
+"或许……如果我当时对他更友好一些……世界可能就不会终结。也许我本可以帮助他真正拯救世界。也许那个世界如今变成地狱的一部分原因，是因为我放任了它的发生……"
+
+"Maybe if… If I had a mother, who was there for me, the whole way… I would've turned out better. But you… You left me. _All alone_. In a world full of despair and destruction. Why!? WHY!?" Tears had become sobs. Every negative emotion was coming out, aimed squarely at the woman who stood in front of her. She wanted to scream to the ends of the earth. She wanted to shout until she lost her voice. She wanted to cry until she couldn't anymore. She wanted… What she really wanted…  
+"也许如果……如果我有一个始终陪伴我的母亲……我会变得更好。但你……你抛弃了我。独自一人。在一个充满绝望和毁灭的世界里。为什么！？为什么！？"" 泪水变成了抽泣。每一种负面情绪都在涌出，直指站在她面前的女人。她想要向地球的尽头尖叫。她想要喊到失声。她想要哭到无法再哭。她想要……她真正想要的是……
+
+Arms wrapped around her. Tightly. Warm. An embrace, for the first time she could remember in forever.  
+双臂环绕着她。紧紧地。温暖地。一个拥抱，是她记忆中久违的第一次。
+
+"No… No… I don't…!" Crimson tried to beat away, to break free of the embrace. She wanted it so badly, but she was so angry. So sad. Miserable. She had no strength to break away. So all she could do was stand there, and sob into the chest of Kyoko Soryu. Her mother.  
+“不…不…我不要…！”绛红试图挣脱，想要摆脱这个拥抱。她如此渴望，却又如此愤怒。如此悲伤。如此痛苦。她没有力气挣脱。所以她只能站在那里，将脸埋进草薙京子的胸前，她的母亲，哭泣着。
+
+"I'm so sorry… I'm so sorry… Asuka." Kyoko had managed to hold back her own sobs just as well as Crimson had. Both women had let their knees collapse onto the ground, still embracing each other.  
+“我很抱歉…我很抱歉…明日香。”京子设法像绛红一样抑制住了自己的哭泣。两位女性都让膝盖瘫软在地，依然紧紧相拥。
+
+Yui Ikari looked on at them both, a paralytic agony dancing around her heart. What Crimson had gone through was exactly what they were trying to avoid. She didn't want anyone else to go through what Crimson had to suffer through. She would make sure of it.  
+碇唯注视着她们两人，心中痛苦得仿佛被麻痹。绛红所经历的正是他们试图避免的。她不希望任何人再经历绛红所承受的痛苦。她会确保这一点。
+
+As if to temper her determination, alarms began ringing throughout the command centre.  
+仿佛是为了考验她的决心，警报声开始在指挥中心内响起。
+
+"MAGI intrusion at ninety percent, we have to _hurry_!"  
+"MAGI 系统遭到九十百分比的入侵，我们必须加快速度！"
+
+"_Guys, we could really use your help right about now!_" Shinji's voice blared through the monitor's. Everyone looked up to see the progress of his mission with the other Asuka and Rei. Things were not looking good.  
+"伙计们，我们现在真的需要你们的帮助！" 真嗣的声音通过监视器传来。所有人都抬头看向屏幕，关注着他与其他版本的明日香和绫波的任务进展。情况看起来并不乐观。
+
+---
+
+_Whew boy... Has it been a while.  
+哎呀，天哪...真是隔了好久。_
+
+_Apparently the last time I actually updated Angel was in 2018... What on earth happened?  
+原来上次我真正更新《天使》还是在 2018 年...到底发生了什么？  
+Truthfully, a whole mountain of crap happened, some of which is still ongoing.  
+说实话，一堆破事接踵而至，有些至今还在持续。  
+But I suppose in a way,  
+但我想在某种程度上，__it helped me to remember that writing is a good outlet.  
+它帮助我记住了写作是一个很好的宣泄方式。_
+
+_It brought me back to where my creative journey began, with writing.  
+它让我回到了我的创作之旅开始的地方，那就是写作。  
+__I started Angel a long time ago, and I am determined to finish it, one way or another.  
+我很久以前就开始了《天使》，无论如何我都决心要完成它。_
+
+_Also keep an eye on my profile, as I try to update that as much as possible.  
+同时请关注我的个人资料，我会尽量频繁更新。  
+__There will be posts on my profile about Angel, as well as where you can find updates and early access to future chapters.  
+我的个人资料上会有关于《天使》的帖子，以及在哪里可以找到更新和未来章节的提前访问权限。  
+But don't worry, they will all end up here eventually.  
+但别担心，他们最终都会来到这里的。_
+
+_P.S. I've already started the next chapter with almost 2000 words in it already. Look forward to it!  
+附言：我已经开始了下一章的创作，目前已有近 2000 字。敬请期待！_
+
+---
+### Chapter 18: The Least Expected Scenario
+
+"Shinji! Watch your back!"  
+“真嗣！小心背后！”
+
+An explosion rocked the school corridor. It might be VR but everything felt incredibly real. If it wasn't for Asuka's yell, he would have been thrown out of the window and onto the harsh tarmac outside. VR or not, that was going to hurt a lot.  
+学校走廊发生爆炸。虽然是虚拟现实，但一切都感觉异常真实。要不是明日香的大喊，他可能已经被炸出窗外，摔在坚硬的地面上。无论是虚拟还是现实，那都会非常痛苦。
+
+In his hands, he held a pistol. If Kensuke were here, he'd have spent a decent amount of time being lectured on how it was an M1911, how it was one of the most famous weapons of all time and all the wars it had ever been in, _ad nauseum._  
+他手中握着一把手枪。如果剑介在这里，肯定会花上不少时间被教导这是 M1911，它是史上最著名的武器之一，以及它参与过的所有战争，等等等等，让人听得反胃。
+
+To Shinji, it was a gun that fired bullets. Not that he had ever fired a weapon outside of a video game before. It felt like they were using actual bullets too, judging from all the holes in the wall from their missed shots. It was pretty loud too.  
+对真嗣来说，这只是一把发射子弹的枪。他从未在电子游戏之外开过武器。从墙上那些他们射偏留下的弹孔来看，感觉他们用的像是真子弹。声音也相当大。
+
+"_Did they have to replicate the weapons this accurately?"_ Shinji thought as he ducked into an empty classroom, hot on Asuka's tail.  
+“他们有必要把武器做得这么逼真吗？”真嗣一边想着，一边躲进一间空教室，紧追在明日香身后。
+
+It all started when they found themselves plonked into their classroom after entering the VR room.  
+一切始于他们发现自己被传送进了教室，就在进入 VR 房间之后。
+
+Things had become weird in short order.  
+事情很快就变得诡异起来。
+
+---
+
+"So… why the school?" Asuka looked around. When the technology the bracelets had been based on was first shown to Asuka and Shinji, one of their tasks had been to imagine a location familiar to them. She had imagined their school classroom, and the location was bringing back memories of that first time but now school was laced with a sense of danger.  
+“那么……为什么是学校？”明日香环顾四周。当最初展示给明日香和真嗣手环所基于的技术时，他们的任务之一就是想象一个对他们来说熟悉的地方。她想象了他们的学校教室，这个地点唤起了第一次的记忆，但现在学校却笼罩着一种危险的气息。
+
+"_So luckily when it comes to these skirmishes with SEELE, we seem to be able to decide the place, although unfortunately, they get to decide when."_ Misato's voice blared out from an invisible speaker somewhere above their heads.  
+"幸运的是，在与 SEELE 的这些小规模冲突中，我们似乎能够决定地点，尽管不幸的是，他们可以决定时间。" 美里从头顶某个看不见的扬声器中大声说道。
+
+"_The school was decided as everyone here has ample knowledge of its layout, hopefully giving us some tactical advantages-"_  
+"学校被选定是因为这里的每个人都对它的布局有充分的了解，希望这能给我们带来一些战术优势——"
+
+"Wait, Misato… what's that?" Asuka had spotted several _things_ floating around outside of the classroom. They looked like jewels, something like rubies about the size of a human head, levitating a few feet from the ground.  
+"等等，美里……那是什么？" 明日香在教室外发现了几样漂浮的东西。它们看起来像宝石，类似红宝石，大小约有人头那么大，离地面几英尺悬浮着。
+
+They reminded Shinji of the red object implanted in his suit.  
+它们让真嗣想起了植入他作战服中的红色物体。
+
+"_Those would appear to be your enemies, Asuka."_  
+“那些似乎是你的敌人，明日香。”
+
+They didn't look very threatening. They did make Shinji feel unnerved, almost as if he recognized them from somewhere.  
+它们看起来并不十分具有威胁性。但它们确实让真嗣感到不安，仿佛他在某个地方认得它们似的。
+
+"So we just have to take them out?" Asuka's bracelet glowed red and suddenly she was holding a gun. Shinji vaguely recognised the shape from a James Bond movie. A voice in his head that sounded a lot like Kensuke Aida helpfully reminded him that it was a Walther P99.  
+"所以我们只需要把它们干掉？" 明日香的手镯发出红光，转眼间她手中握着一把枪。真嗣隐约从一部詹姆斯·邦德电影中认出了这把枪的形状。他脑海中一个听起来很像相田健介的声音友好地提醒他，这是一把瓦尔特 P99。
+
+The weapon made a loud cracking noise, as deafening as he would imagine a real-life pistol to sound. Quickly followed was the sound of shattering glass as one of the classroom windows into the corridor collapsed. A bright red flash suddenly shone through the windows as one of the ruby-like objects popped out of existence.  
+武器发出一声响亮的爆裂声，震耳欲聋，正如他想象中现实生活中的手枪声一样。紧接着是玻璃破碎的声音，教室通向走廊的窗户崩塌了。一道鲜红的闪光突然透过窗户射进来，其中一个红宝石般的物体突然消失不见了。
+
+"Really? That's it? This is gonna be easy!" Asuka grinned as she fired off her weapon a few more times. Red flashes followed her wake as she ran out of the classroom and down the corridor. Her gleeful giggling started to sound downright maniacal to Shinji and Rei.  
+"真的吗？就这样？这太简单了！" 明日香一边笑着，一边又开了几枪。她跑出教室，沿着走廊奔跑，身后留下一串红色的闪光。她的欢快笑声开始变得对真嗣和绫波来说近乎疯狂。  
+Both had their hands to their ears, their dislike for loud noises on full display.  
+两人都捂着耳朵，对巨大噪音的厌恶之情表露无遗。
+
+"Hey Misato, those bullets aren't… live ammo are they?" Shinji asked fearfully. All they needed right now is the gun-crazy Asuka to accidentally hit them with friendly fire.  
+“嘿，美里，那些子弹不是……实弹吧？”真嗣害怕地问道。他们现在最不需要的就是疯狂的明日香不小心对他们进行友军射击。
+
+"_If I'm reading this right… If you get hurt in the VR world, the system is going to 'simulate' pain. In other words, it's probably going to hurt a lot but probably not as much as if you'd been shot in real life. That being said, if you receive the equivalent of what would normally be a fatal injury, the system pulls you out.  
+“如果我没理解错的话……如果你在虚拟现实中受伤，系统会‘模拟’疼痛。换句话说，可能会很痛，但可能不会像现实生活中被枪击那样痛。也就是说，如果你受到相当于通常致命伤害的打击，系统会把你拉出来。”  
+The good news is that that means infinite respawns! But we don't have a good deal of time to be working with so hopefully it won't come to that…"  
+好消息是，这意味着无限复活！但我们没有太多时间可以浪费，希望不会走到那一步……_
+
+"We better get after her…" Shinji glanced at Rei. Nodding back, she ran out of the classroom, Shinji following close behind.  
+“我们最好追上去……” 真嗣瞥了一眼绫波。绫波点头回应，跑出教室，真嗣紧随其后。
+
+---
+
+With his ears ringing and his kill count steadily climbing, Shinji had his back pressed up against Asuka's, firing for all he was worth. His pistol was on the ground, out of ammo, with Shinji not having any time to reload it. He was currently holding an M4 assault rifle, something Asuka had summoned and thrown to him in the heat of battle.  
+真嗣的耳朵嗡嗡作响，击杀数稳步上升，他紧贴着明日香的背，全力开火。他的手枪已经掉在地上，弹药耗尽，真嗣没时间重新装填。他现在正拿着一把 M4 突击步枪，这是明日香在激战中召唤并扔给他的。
+
+The Rubycores (as Asuka had helpfully designated them), had multiplied ferociously. It turned out that they could fire small lasers, sort of like blasters from every space movie ever. All three had been hit at least once by one of the lasers, which stung like hell on impact, but had a slightly more emotionally distressing effect, especially for the girls.  
+红宝石核心（这是明日香贴心的称呼），已经疯狂繁殖。事实证明，它们能发射小型激光，有点像所有太空电影中的爆能枪。三人都至少被激光击中过一次，那种冲击痛得要命，但对女孩们来说，情感上的打击更为严重。  
+Whenever a beam landed on target, it would melt the suit a little, revealing skin underneath. The effect normally produced a hole in the suit about the size of an adult hand. Asuka had been caught on her naval and slightly under her left breast, Rei had a couple of holes on her back and several going down her legs and Shinji had the great misfortune of having one on his left buttcheek.  
+每当光束命中目标，就会稍微熔化装甲，露出下面的皮肤。通常会在装甲上造成一个成人手掌大小的洞。明日香被击中在肚脐和左乳下方，绫波背后有几个洞，腿上也有几处，而真嗣则不幸地被击中了左臀。
+
+Thanks to the revelation of the suit-melting weaponry, both girls had turned the insanity up to the nth degree. Asuka had been firing RPGs and grenade launchers, switching to katanas and twin daggers for close quarters combat, howling the whole time.  
+由于这种熔化装甲的武器被揭示，两位女孩将疯狂程度提升到了极致。明日香一直在发射火箭筒和榴弹发射器，切换到武士刀和双匕首进行近战，全程咆哮着。
+
+Rei was… _wild._ He was starting to think there were many layers to the red-eyed girl he still didn't know, but he certainly hadn't been expecting her to be wielding a submachine gun with one hand whilst killing close quarter enemies with a claw gauntlet on the other. He was briefly reminded of the time Rei had been showing how the bracelets worked originally, asking Shinji if he thought her armour gauntlet had been nicer than the one Asuka had summoned that day.  
+丽……狂野。他开始觉得这个红眼女孩有着许多他尚未了解的层面，但绝对没料到她会一手挥舞着冲锋枪，另一手用爪形护手近战杀敌。他短暂地回想起丽最初展示手镯功能时，问过真嗣是否觉得她的盔甲护手比那天明日香召唤的那个更漂亮。
+
+The memories blasted out of his head when a grenade exploded, decimating many of the Rubycores. The corridor was a mess, it genuinely looked like a warzone, with spent ammo casings, destruction and scorch marks everywhere. The Rubycores didn't leave corpses, but Shinji could almost imagine what it might look like if they had.  
+一颗手榴弹的爆炸将这些记忆从他脑海中炸飞，大量红玉核心被摧毁。走廊一片狼藉，真的像战场一样，到处是弹壳、破坏痕迹和烧焦的痕迹。红玉核心不会留下尸体，但真嗣几乎能想象出如果它们会留下尸体会是什么样子。
+
+"Mi… Sa… To…" Asuka breathed, desperately trying to oxygenate herself. "When… does this nightmare… end…?"  
+“美……沙……斗……”明日香喘息着，拼命试图让自己呼吸。“这噩梦……何时……才能结束……？”
+
+"_I wish I could tell you… Another wave is coming from the gymnasium to your position. You've got maybe two minutes before they're on to you…"_  
+"我希望我能告诉你……又一波敌人正从体育馆向你逼近。你大概还有两分钟就会被他们发现……"
+
+"Oh my GOD!" Asuka growled, checking her weapons and ammo, summoning anything that was depleted. "We've got to come up with a plan!"  
+"哦，我的天哪！" 明日香咆哮着，检查武器和弹药，召唤任何耗尽的资源。"我们必须想出一个计划！"
+
+It was like fighting in a zombie survival game, with waves that seemed to get more and more aggressive. They were allowed a brief respite between waves, but things seemed to get more and more challenging every time another wave started.  
+这就像是在玩僵尸生存游戏，一波接一波的敌人似乎越来越凶猛。他们每波之间有短暂的喘息时间，但每次新一波开始时，情况似乎都变得更加艰难。
+
+"What about Mom and Dad? Any bright ideas from them?" Shinji had his hands on his knees, panting after a quick reload. Rei was not fairing much better, a visible amount of sweat glistening over her face.  
+"妈妈和爸爸呢？他们有什么好主意吗？" 真嗣双手撑在膝盖上，快速装填后喘着粗气。绫波也没好到哪儿去，脸上明显有汗水闪烁。
+
+"_They… uhhh… appear to be having a bit of a situation on their hands at the moment…"_  
+"他们……呃……目前似乎遇到了点麻烦……"
+
+"Wait, what!? Are they okay?"  
+"等等，什么！？他们还好吗？"
+
+"Uhh… don't worry about that! Your mom and dad are just having a uhh… chat with uhhh… Crimson…" Misato glanced nervously at the other monitor broadcasting the command centre. Things were looking emotional to say the least. It didn't help that she could _hear_ everything that was going on in one ear, and also being able to hear Shinji and the others within the VR environment in the other. It was like trying to watch a soap drama with one eye and an action movie with the other. Her head was spinning. Did the Artificial Research Laboratory have healthcare that covered therapy?  
+"呃…别担心那个！你妈妈和爸爸只是在和…呃…Crimson…聊天…" Misato 紧张地瞥了一眼播放指挥中心画面的另一台显示器。情况可以说是相当情绪化了。更糟糕的是，她一只耳朵能听到那边的一切动静，另一只耳朵还能听到 Shinji 和其他人在 VR 环境中的声音。这感觉就像是用一只眼睛看肥皂剧，另一只眼睛看动作片。她的头都快晕了。人工研究实验室的医疗保险包括心理治疗吗？
+
+Shinji and the others weren't paying attention her anymore. The next wave had started in earnest… but something was different.  
+Shinji 和其他人已经不再关注她了。下一波攻击已经正式开始…但有些不同。
+
+"Misato!?"
+
+On her monitors, Misato could see a humanlike form instead of the regular Rubycores. It was still the same colour, but it was unmistakeably a clone of Shinji. It was as though someone had taken their Shinji Ikari and drowned him in ruby-coloured paint.  
+在她的监视器上，美里看到一个类人形而非常规的红宝石核心。颜色依旧，但那无疑是真嗣的克隆体。仿佛有人拿走了他们的碇真嗣，把他浸在了红宝石色的颜料里。  
+The paint was starting to evaporate, a red misty steam rising from the clone, until it revealed a perfect replica of the Shinji they knew, complete with his regular school uniform. The most disturbing part was that it was grinning, _evilly_.  
+颜料开始蒸发，从克隆体上升起红色的雾状蒸汽，直到露出他们所熟知的真嗣的完美复制品，连同他平常的校服。最令人不安的是，它正邪恶地咧嘴笑着。
+
+"_Kids, you have to run! Get away from him!"_  
+“孩子们，你们得跑！离他远点！”
+
+The trio didn't need telling twice. They ran from the destroyed corridor, moving towards the staircase.  
+三人无需多言，立刻从被毁的走廊逃离，朝着楼梯跑去。
+
+"We have to get outside. Bottlenecking the cores worked for a while but they keep pincer manoeuvring us. We need more open space!" Nobody had the time to disagree with Asuka, but as they made their way to the staircase, more Shinji clones began to walk up the stairs, all with the same evil grin plastered on their faces. Shinji swore he could see a red glow from their eyes.  
+“我们必须到外面去。用瓶颈战术暂时有效，但他们不断用钳形战术对付我们。我们需要更开阔的空间！” 没人有时间反驳明日香，但当他们向楼梯移动时，更多的真嗣克隆体开始走上楼梯，每个脸上都挂着同样的邪恶笑容。真嗣发誓他能看到他们眼中的红光。
+
+Two bullet holes appeared above the clones, accompanied by the sounds of the gunshots.  
+两个弹孔出现在克隆体上方，伴随着枪声响起。
+
+"Asuka, you missed!? You're like three feet away from them, how did you miss!?"  
+"明日香，你居然没打中！？你离他们才三英尺远，怎么可能打不中！？"
+
+"It's harder to kill these things when they…"  
+"这些家伙看起来像你的时候，更难下手……"
+
+"_When they look like you, baka Shinji!"_ Asuka gritted her teeth, forcing herself to remember that these things were just clones. Not human beings, not her Shinji. Just bastardized mimics of her one and only treasure. Flipping the pin on a grenade, she lobbed it down the stairs before grabbing both Rei and Shinji's hand.  
+"当它们看起来像你的时候，笨蛋真嗣！" 明日香咬紧牙关，强迫自己记住这些只是克隆体。不是人类，不是她的真嗣。只是对她唯一珍宝的拙劣模仿。她拔掉手榴弹的保险销，扔下楼梯，然后抓住绫波和真嗣的手。
+
+"Back past the classroom, there's another stairwell. Hopefully that one isn't overrun with bakas!" Asuka dragged them into the direction they started at, a deafening explosion in their wake.  
+“绕过教室，还有另一座楼梯。希望那儿没有被笨蛋们占领！”明日香拽着他们回到最初的方向，身后是一声震耳欲聋的爆炸。
+
+After having made it to the other side of the school, Asuka's eyes lit up when she saw the stairwell, only to turn into fires of rage when she saw more figures slowly walking up the stairs.  
+好不容易穿过学校到达另一侧，明日香看到楼梯时眼中一亮，但随即被愤怒的火焰所取代，因为她看到几个身影缓缓走上楼梯。  
+This time though, they weren't clones of Shinji. A clone of _herself_ was slowly walking towards her, alongside a few Rei clones as well. All of whom had the same terrifying smile and glowing red eyes.  
+然而这一次，他们不再是真嗣的克隆体。一个自己的克隆体正缓缓向她走来，旁边还有几个绫波的克隆体。他们全都带着同样的恐怖微笑和闪着红光的眼睛。
+
+"As if I needed any _MORE_ clones of me!" Asuka snarled, pulling out her pistol and landing headshots on every clone she saw. Seeing herself get shot in the head was a weird and existential feeling if there ever was one, but seeing the core clones evaporate into a red mist was enough to bring her imagination under control.  
+"好像我还需要更多的克隆体似的！" 明日香咆哮着，拔出手枪，对每一个她看到的克隆体进行爆头射击。看到自己被爆头是一种奇怪且存在主义的感觉，但看到核心克隆体化为红色雾气消散，足以让她的想象力得到控制。
+
+Thankfully, there hadn't been as many clones on this side, so they still had a chance to make it downstairs.  
+幸运的是，这一侧的克隆体没有那么多，所以他们仍有下楼的机会。
+
+"Guys we have to-…" Asuka spotted Shinji and Rei staring at one of the corkboards on the wall of the school corridor. They both looked terrified.  
+"大家我们必须-…" 明日香发现真嗣和绫波盯着学校走廊墙上的一块软木板。他们俩看起来都吓坏了。
+
+"Are you seriously doing this right now!? We have to move-…!" She spotted it. Her brain was refusing to process the demand though. The cogs in her brain had jammed, to the point where she could almost visualize the sparks trying to force them to move.  
+“你现在是认真的吗？！我们得走了——！”她看到了那一幕。她的脑子却拒绝处理这个信息。她的大脑齿轮仿佛卡住了，以至于她几乎能想象到那些试图迫使它们转动的火花。
+
+On the wall, pinned on the corkboard, was around twenty or so photos. All of Asuka. All of which could be politely described as indecent.  
+在墙上，钉在软木板上，大约有二十来张照片。全都是关于明日香的。所有这些照片都可以礼貌地形容为不雅。
+
+_Changing in the school locker room. Lying in her panties and shirt at home. Several of her on the toilet, panties by her ankles. A shot from behind with her holding a towel to her front, her bare behind on display.  
+在学校更衣室里换衣服。穿着内裤和衬衫在家躺着。几张她在厕所里的照片，内裤褪到脚踝。一张从背后拍摄的照片，她手里拿着一条毛巾遮住前方，裸露的臀部暴露无遗。_
+
+Various other pictures that appeared to be taken from a distance, as though with a telescopic camera. Plastered all over the wall.  
+其他各种照片，似乎是从远处用望远镜头相机拍摄的。贴满了整面墙。  
+Unable to process it, she walked numbly into their classroom, ready to plonk her head onto her desk and call it a day.  
+她无法理解这一切，木然地走进教室，准备把头埋在桌上，就此结束这一天。
+
+Her fate would have other plans. Walking into the classroom, she saw more of the same. Photos the size of posters everywhere. Stuck to the chalkboard, falling out of every desk in the room, in student planners, bags, bento boxes.  
+但命运另有安排。走进教室，她看到的仍是同样的景象。到处都是海报大小的照片。贴在黑板上，从每张桌子里掉出来，在学生计划本里，书包里，便当盒里。  
+It was like a printing press of some dirty voyeur magazine had decided to set up home in their classroom.  
+这就像某个色情偷窥杂志的印刷厂决定在他们教室安家落户一样。
+
+Shinji and Rei had tentatively followed Asuka into their classroom. Asuka didn't even have the energy to shout at them not to look. Her eyes simply rolled into the back of her head and she collapsed where she stood.  
+真嗣和丽小心翼翼地跟着明日香走进教室。明日香连斥责他们不要看的力气都没有了。她的眼睛只是翻到了后脑勺，随即就站在原地昏倒了。
+
+"ASUKA!" “明日香！”
+
+Holding the limp girl in his arms, he checked for injuries. It appeared she'd fainted from the shock. Thankfully that meant nothing had physically knocked her out but now they were down to just Rei and Shinji. Versus a whole horde of clones.  
+他抱着瘫软的女孩，检查她的伤势。看来她是因惊吓过度而昏厥。幸好这意味着她并未受到实质性伤害，但现在只剩下丽和真嗣两人。面对一群克隆人大军。
+
+"Guys, we could really use your help right now!" Shinji yelled towards the heavens.  
+“伙计们，我们现在真的需要你们的帮助！”真嗣对着天空大喊。
+
+---
+
+The command centre had suffered a lot of drama already, but what they were seeing on the monitors was catastrophic. Shinji and Rei had summoned anything they could to prop the doors and windows. The toll of using their bracelets was noticeable. One of the tech nerds had likened it to using too much mana in a video game. And now the two teenagers were running on fumes.  
+指挥中心已经经历了许多风波，但监控屏幕上显示的景象却是灾难性的。真嗣和丽用尽一切能找到的东西支撑门窗。使用手环的代价显而易见，一位技术宅曾比喻这就像在电子游戏中过度消耗法力。如今，这两个少年已是强弩之末。
+
+Yui watched opened mouth in horror as several of the clones began firing through the gaps in the defences, laser beams flying from outstretched palms. Several beams caught Rei, striking her head and suit. Her entire top half had melted away. But Shinji didn't have the spare thought capacity for boobs right now. The impact to her head had caused her to faint, and suddenly vanish out of existence. The same had happened with Asuka.  
+优看着目瞪口呆，惊恐万分，因为几个克隆体开始从防御的缝隙中开火，激光束从伸出的手掌中飞射而出。几束激光击中了丽，打中了她的头部和装甲服。她的上半身已经融化殆尽。但真嗣此刻无暇顾及胸部的问题。头部受到的冲击让她昏迷过去，随即突然消失，不复存在。同样的情形也发生在明日香身上。
+
+"REI! ASUKA!" “丽！明日香！”
+
+"_Shinji, we've pulled them both out of the VR environment. They're alive but you have to think of some way to stop them!"_  
+“真嗣，我们已经把她们俩从虚拟现实环境中救出来了。她们还活着，但你得想办法阻止他们！”
+
+Misato's words only gave Shinji the barest hint of reassurance. What was he going to do!? He had failed them both, and he was the weakest fighter out of the three by his own admission. He was panicking and the defences were not going to hold much longer.  
+美里的话只给了真嗣一丝微弱的安慰。他该怎么办！？他辜负了他们俩，而且他自己也承认，他是三人中最弱的战士。他惊慌失措，防御也撑不了多久了。
+
+The pulse in his ears was starting to drown out the chaos. His thoughts were rapidly looking across his entire lifespan for anything that might help him right now. Suddenly, his thoughts focused in on a memory, from a long time ago.  
+耳中的脉搏声开始淹没周围的混乱。他的思绪迅速掠过他的一生，寻找任何可能帮助他此刻的东西。突然，他的思绪聚焦在一个久远的记忆上。
+
+_~I want you to be the pilot~  
+~我希望你成为驾驶员~_
+
+_Would it work? Did he have enough strength? He didn't really have much of a choice right now. It was do or die!  
+这会奏效吗？他有足够的力量吗？他现在真的没有太多选择。这是生死攸关的时刻！_
+
+_Thank you… Mana… 谢谢你……Mana……_
+
+"I'm… the pilot…" Shinji whispered. His entire form began to glow with a golden light.  
+“我……是驾驶员……” 真嗣低声说道。他的整个身体开始散发出金色的光芒。
+
+"_Misato! What's happening to him?"_ Yui was yelling down the comms from the command centre.  
+“美里！他怎么了？” 由依在指挥中心的通讯器里大喊。
+
+"I have no idea…" Misato breathed, unable to take her eyes away from the monitors. "Shinji…?"  
+“我不知道……” 美里喘息着，目光无法从监视器上移开。“真嗣……？”
+
+Shinji's form was almost blinding. That hadn't stopped the clones from firing, but it appeared none of the laser beams were able to touch him anymore. A forcefield had appeared in front of the boy, shielding him.  
+真嗣的身影几乎耀眼得让人无法直视。克隆体们并未因此停止射击，但似乎所有的激光束都无法再触及他。一个力场出现在男孩面前，保护着他。
+
+"IS THAT AN A.T. FIELD!?" Crimson was staring at the monitors too, dumbfounded. Was it possible? In this world too!?  
+"那是 AT 力场吗！？" 绯红也盯着监视器，目瞪口呆。这可能吗？在这个世界也存在！？
+
+Her words were cut short by the roar that bellowed from the monitors in the VR environment.  
+她的话被从 VR 环境中的监视器里传来的咆哮声打断了。
+
+"I AM SHINJI IKARI, PILOT OF EVANGELION UNIT 01!"  
+"我是碇真嗣，EVA 初号机的驾驶员！"
+
+A deafening explosion rocked the school. Smoke and debris mushroomed from the devastation, blinding everyone at the command centre.  
+一声震耳欲聋的爆炸震撼了学校。浓烟和碎片如蘑菇云般从废墟中升腾而起，让指挥中心的每个人都陷入了失明状态。
+
+"We need a visual, anything, please!" Yui was staring at the monitor, her heart caught in her throat. She felt just like she had when she discovered the earthquake all those years ago. The day she almost lost her little boy. Terrified couldn't begin to do justice to the roller coaster of emotions she was experiencing right now. Her husband had stood from his desk, a look of shock and bewilderment filling his face.  
+“我们需要画面，任何画面，请！” 结衣紧盯着监视器，心如悬旌。她感觉就像多年前发现地震的那一刻，那天她差点失去了她的小儿子。恐惧这个词远不足以形容她此刻经历的情绪过山车。她的丈夫从桌前站起，脸上满是震惊和困惑。
+
+"Shinji!" "真嗣！"
+
+The smoke began to descend and fade from view. A monstrous shadow began to form. Flashes of purple and green began to make themselves seen through the clouds of dust.  
+烟雾开始下沉并逐渐消失在视野中。一个巨大的阴影开始显现。紫绿相间的闪光开始在尘埃云中变得清晰可见。
+
+Crimson looked up at the beast she had fought alongside for what felt like years, before it tore her world to shreds. Her whole body was shaking, as though electrified. Her mind wasn't believing what she was seeing. This world wasn't supposed to have them!  
+深红抬头望着那头与她并肩作战多年、最终将她的世界撕成碎片的巨兽。她的全身颤抖不已，仿佛被电击一般。她的心智无法相信眼前所见。这个世界本不该有它们的存在！
+
+"Evan…gelion… Unit…01…" She whispered out loud.  
+“福音战士……初号机……”她低声自语。
+
+---
+
+The bestial form of a huge, robotic monster towered on what was once the school playing field. It made Misato think of a transformer with a purple and green paintjob. A terrifying transformer with angry looking teeth and eyes and a roar that could shatter every window for miles around.  
+一只巨大的机器人怪兽，其野兽般的形态矗立在曾是学校操场的地方。这让美里想起了涂着紫绿两色漆的变形金刚。一个面目狰狞的变形金刚，拥有愤怒的眼神和利齿，咆哮声足以震碎方圆数英里内的每一扇窗户。
+
+"What the hell is that!?"  
+"那到底是什么鬼东西！？"
+
+She could only watch as an army of clones piled out of the school. All of whom took a moment to stand stock still and stare up at the giant robot. All grinning maniacally.  
+她只能眼睁睁地看着一群克隆人大军从学校里涌出，所有人都停顿了一下，僵立原地，抬头凝视着那巨大的机器人，个个都疯狂地咧嘴笑着。
+
+"_We've been waiting for you… Shinji Ikari."_  
+"我们一直在等你……碇真嗣。"
+
+A chorus of creepy voices echoed from the crowd of clones in unison. It was like watching a bizarre horror movie. Misato could almost laugh at the silliness of it all if it wasn't such a dire situation.  
+一群诡异的声音从克隆人群中齐声回荡。这就像在看一部离奇的恐怖电影。如果不是这么危急的情况，美里几乎要笑出声来，觉得这一切太荒谬了。
+
+"What's the plan Shinji… What are you gonna do?" Misato stared at the giant monster glaring down on the clones. He needed to figure out his plan, fast!  
+“真嗣，你有什么计划…你打算怎么做？”美里盯着那只巨型怪物，它正凶狠地俯视着克隆人。他必须尽快想出计划！
+
+---
+
+He had found himself inside a cockpit of sorts. He was sat in a chair that seemed to stretch down a long tube, with controls by his hands. He'd never controlled anything in his life before, outside of video games. He had certainly never played a game that needed controlling with what looked to be two sliding joysticks. Grabbing them, he decided to at least try moving the thing first.  
+他发现自己身处某种驾驶舱内。他坐在一把似乎延伸进长管的椅子上，手边有控制装置。他这辈子除了电子游戏外，从未操控过任何东西。当然，他也从未玩过需要用两个滑动操纵杆来控制的游戏。他决定先抓住操纵杆，至少试着移动一下这个东西。
+
+"Okay, here goes… WHAAAA-…!"  
+"好了，开始了……哇啊啊-…！"
+
+The entire command centre watched in horror as the giant robot took one tentative step forward, before slipping and collapsing onto the ground. It had been like watching a lamb take its first steps and falling over, except a whole lot less cute.  
+整个指挥中心的人都惊恐地看着那台巨型机器人小心翼翼地向前迈了一步，然后滑倒并摔在地上。这情景就像看着一只小羊羔第一次走路就摔倒了，只不过没那么可爱。
+
+"He doesn't… Oh gods…! He doesn't know how to…" Crimson breathed. Kyoko looked at her daughter anxiously.  
+"他不知道……哦，天哪……！他不知道怎么……"" 克里姆森喘着气说。京子焦急地看着她的女儿。
+
+"What? What doesn't he know?"  
+"什么？他不知道什么？"
+
+"He has no idea how to pilot it!" Crimson was on the verge of having another mental outburst, before an idea suddenly popped into her head. It wasn't an idea she was crazy about, but if she didn't do this, there wouldn't be much of a future left for any of them.  
+"他根本不知道怎么驾驶它！"" 绯红差点又要情绪爆发，但一个念头突然闪过她的脑海。这不是她喜欢的想法，但如果她不这么做，他们就没有多少未来可言了。
+
+"M-mom?" "妈——妈？"
+
+Kyoko Soryu squeaked in surprise. She never thought the day would come that Crimson would refer to her like that. Deciding that the situation needed more focus than thinking about how cute her daughter sounded, she nodded in response.  
+空条承太郎惊讶地叫了一声。她从未想过有一天绯红会这样称呼她。她决定，比起思考女儿那可爱的声音，当前的情况更需要集中注意力，于是她点头回应。
+
+"Yes?" “是？”
+
+"Are there anymore plug suits around I could use?"  
+“还有其他插入栓服我可以使用吗？”
+
+---
+
+Shinji was hurt. Falling and hitting the ground had felt like as though it had been him who had fallen over. He didn't understand why it happened, but he was going to have serious talks with his parents about how they designed their VR experiments in the future.  
+真嗣感到疼痛。跌倒并撞击地面，那种感觉仿佛是他自己摔倒了一样。他不明白为什么会发生这种事，但他打算和父母严肃讨论一下他们未来在虚拟现实实验设计上的问题。
+
+Managing to get the beast back up on its feet, he was beginning to realise that he could get it to walk through a combination of the controls and his own will. It was still clunky and he was having a hard time getting used to it, especially with the damn clones swarming all over him like rabid ants!  
+好不容易让那头野兽重新站了起来，他开始意识到可以通过控制装置和自己的意志让它行走。尽管仍然笨拙，他很难适应，尤其是那些该死的克隆体像狂暴的蚂蚁一样蜂拥而至！
+
+He was managing to shake them off, but he could feel pinpricks of pain all over his body, as though the clones were trying to tear off the armour cladding the giant robot.  
+他勉强能甩开它们，但全身都能感受到针刺般的疼痛，仿佛那些克隆体正试图撕裂巨型机器人身上的装甲。
+
+Stamping on them didn't seem to be doing much. For all the destroyed clones, another hundred appeared to take their place. If he could find a source for where they were coming from, he might be able to destroy that, but he had his hands full trying to keep himself upright.  
+踩踏它们似乎效果不大。尽管摧毁了一批克隆体，又有上百个出现来填补空缺。如果能找到它们来源的地方，他或许能摧毁那个源头，但他现在正忙于保持自己不倒下。
+
+"HEY BAKA! OVER HERE!" "嘿，笨蛋！这边！"
+
+All of the clones and Shinji turned around. What they saw was Asuka, dressed in her bright red plug suit, grinning evilly.  
+所有的克隆体和真嗣都转过身来。他们看到的是明日香，身穿她那鲜红色的插入栓服，邪恶地笑着。
+
+"Asuka!? You're okay!?" "明日香！？你没事吧！？"
+
+"No you idiot." The girl's smile continued as she began to glow with a radiant light, just like Shinji had before.  
+"不，你这个白痴。" 女孩的笑容依旧，随着她开始散发出耀眼的光芒，就像真嗣之前那样。
+
+"I told you." Another explosion rocked the school field. Shinji's mouth felt like it dropped to the floor as he saw what was being revealed by the dissipating smoke.  
+"我告诉过你了。" 又一次爆炸震撼了学校操场。真嗣的嘴巴张得大大的，仿佛要掉到地上，因为他看到了烟雾散去后显露出来的东西。
+
+A red version of his robot was standing in front of him. It had many green eyes, scary teeth and a terrifying aura. Reminding him heavily of someone else he knew. The emerald eyes all focused on him. It looked like even the robot was grinning at him.  
+一个红色版本的机器人站在他面前，拥有许多绿色的眼睛，吓人的牙齿和一个恐怖的气场。这让他不由自主地想起了他认识的某个人。那些翡翠般的眼睛全都聚焦在他身上，仿佛连机器人都在对他咧嘴笑。
+
+"Call me…" “叫我……”
+
+_Crimson. “深红。”_
+
+---
+
+Misato _really_ needed a beer right about now. Another scary looking robot, Crimson demanding to get into the simulation, somehow able to get authorisation to use a bracelet which had almost too conveniently been ready for her.  
+美里现在真的很想来杯啤酒。又是一台看起来吓人的机器人，克莱姆红要求进入模拟，不知怎么地竟然能获得授权使用一个几乎太方便就准备好的手环。
+
+"Almost as if they were planning to have Crimson cooperate with them eventually, eh?" Ryoji Kaji had joined her in the VR's control centre. His normally smiling visage was lost in thought, looking at the monitors.  
+“简直就像他们早就计划好要让克莱姆红最终与他们合作一样，是吧？” 碇キョウジ已经加入了她在 VR 控制中心的行列。他平时总是带着笑容的脸庞此刻陷入了沉思，目光盯着监视器。
+
+"I wonder what would have happened if Crimson had refused to work with the lab? Kept that bracelet as a spare?"  
+“我在想，如果克莱姆红拒绝与实验室合作，把那个手环当作备用会怎样？”
+
+"I doubt Gendo would try to force her into doing anything, judging from that speech earlier. Yui wouldn't have allowed him to do so anyway."  
+"我怀疑源堂会试图强迫她做任何事，从他之前的演讲来看。即使他想，绫波也不会允许他这么做。"
+
+"I'm just surprised Crimson is doing this at all! You heard what she said about that world she came from. I would never have come near one of those creepy robots again if I'd been through what she had." Misato was racking her brains trying to think about what changed the young girls mind. "It's gotta be…"  
+"我只是惊讶绫波居然会这么做！你听她说过她来自的那个世界。如果我经历了她所经历的，我绝不会再靠近那些可怕的机器人。真嗣，她在想什么？"" 美里绞尽脑汁试图理解这位年轻女孩的转变。""一定是……"
+
+"Shinji." “真嗣。”
+
+---
+
+"It feels… just like my original one did."  
+"感觉……就像我原来的那个一样。"
+
+Crimson found herself once again behind the wheels of EVA Unit 02. Stretching out her arm, she found her EVA's arm did the same, flawlessly.  
+绯红发现自己又一次坐在了 EVA 二号机的驾驶舱内。她伸展手臂，发现 EVA 的手臂也同步做出了同样的动作，完美无瑕。
+
+"Okay, at least I can control this thing." She looked around at the various diagnostics around her. "Huh, that's different."  
+“好吧，至少我能控制这东西。”她环顾四周的各种诊断数据。“咦，这有点不一样。”
+
+Normally in an EVA, she had an entire tech crew monitoring the Entry Plug's diagnostics, as well as readouts all around her displaying battery life, life support system status and other technobabble.  
+通常在驾驶 EVA 时，她会有一整个技术团队监控插入栓的诊断数据，以及环绕在她周围的各种显示屏，显示电池寿命、生命维持系统状态和其他技术术语。  
+The graphs were all there but the only way she could describe them was _freaking out._  
+图表全都在那儿，但她唯一能形容它们的方式就是抓狂。
+
+Her battery life flickered through numbers so fast that it made her think of a Nixie tube clock on crack. Everything else was reading out about the same. Sod the numbers, she'd have this wrapped up in a few minutes anyway.  
+她的电池寿命数字闪烁得如此之快，让她想起了嗑药的数码管时钟。其他一切读数也大致相同。去他的数字，反正她几分钟内就能搞定。
+
+"Oh shit, do I have any weapons?"  
+“哦该死，我有武器吗？”
+
+No rifles and no weapon buildings to get them from.  
+没有步枪，也没有武器建筑可供获取。
+
+"How about… YES!" Her shoulder pauldrons! The right shoulder opened to reveal one of her favourite toys, the Progressive Knife!  
+“不如…好极了！”她的肩甲！右肩甲打开，露出了她最爱的玩具之一，那把渐进式匕首！
+
+Pulling it out, she felt the familiar blade start to hum with high frequency vibrations. At least she had something! It looked like she was going to need it too.  
+拔出匕首，她感受到熟悉的刀刃开始发出高频振动的嗡鸣。至少她还有这个！看起来她真的会需要它。
+
+The crowd of clones had been acting strangely for a while. Individual clones were appearing to meld with each other, almost like the reverse of a cell dividing. The process was rapidly speeding up to.  
+克隆人群已经有一阵子表现得异常了。个别克隆体开始融合在一起，几乎像是细胞分裂的反过程。这一进程正在迅速加速。
+
+"_Asu-… I mean, Crimson, can you hear me?"_  
+“Asu……我是说，Crimson，你能听到我吗？”
+
+So they still had inter-Eva comms apparently.  
+看来他们仍然保持着 Eva 之间的通讯。
+
+"Yes, baka. Now let me show you how a real pilot controls an EVA!"  
+"没错，笨蛋。现在让我展示给你看，真正的驾驶员是如何操控 EVA 的！"
+
+Slamming her knife down, she aimed for the areas where the clones merging was starting to get noticeably big. The field and the school noticeably shook, as though an earthquake had ripped through the area.  
+她猛地将刀插下，瞄准了克隆体开始明显融合的区域。整个场地和学校明显震动，仿佛一场地震横扫了这片区域。
+
+Crimson's knife wasn't having much of an effect. The clones had begun melding around her blade, rapidly conglomerating before the eyes of the two pilots.  
+Crimson 的刀效果甚微。克隆体已经开始围绕她的刀刃融合，迅速地在两位驾驶员眼前聚集成形。
+
+"Shit, it's happening too fast!"  
+"该死，这一切发生得太快了！"
+
+"_Crimson, what do we do?"_  
+"深红，我们该怎么办？"
+
+It didn't take long before all the clones had merged into something big. A colossus, standing about as tall as the Evas. Another being that Crimson was only too familiar with. Her heart almost stopped just looking at it.  
+没过多久，所有的克隆体就融合成了一个巨大的存在。一个巨人，身高几乎与 Eva 相当。对于深红来说，这个存在她再熟悉不过了。仅仅是看着它，她的心跳几乎都要停止了。
+
+"IS THAT A FUCKING ANGEL!?"  
+"那他妈的是个天使吗！？"
+
+She had never actually seen this Angel before. However, she recognised its look from watching previous battle records. Before Crimson had made her way to Tokyo-3, her world's Shinji Ikari had fought the third Angel, beating it but just barely. Mostly because the dumb thing had decided to self-destruct. Looking at what was in front of her, it looked awfully similar.  
+她从未亲眼见过这个天使。然而，她从之前的战斗录像中认出了它的模样。在克莱曼婷来到东京-3 之前，她所在世界的碇真嗣曾与第三使徒萨基尔交战，虽然最终取胜但也仅是险胜。多半是因为那蠢东西选择了自爆。看着眼前的东西，它看起来极其相似。
+
+"That can't be… Sachiel?!" She breathed. It looked just like what she had seen before. It had the aura of an Angel, but not quite. It felt… artificial? Like it wasn't real. Like it was more some sort of bizarre automaton.  
+"不可能……萨基尔？！" 她喘息道。它看起来和她之前见过的如出一辙。它有着使徒的气息，但又不太像。感觉……人造的？仿佛它并非真实存在，更像某种奇异的自动机械。  
+But if it was real, or at least, very similar, the weaknesses should be the same, right?  
+但如果那是真实的，或者至少非常相似，那么弱点应该是一样的，对吧？
+
+"Shinji!" "真嗣！"
+
+He jumped, hearing Crimson suddenly bark over the airwaves.  
+他吓了一跳，听到 Crimson 突然在无线电中大声喊道。
+
+"Y-yes?" “是-是的？”
+
+"I've fought these things before, in my world. I'm not sure if that's _exactly_ the same thing, but it looks close enough, which means I know how to beat it."  
+"我在我的世界里对付过这些东西。虽然不确定是不是完全一样，但看起来足够接近，这意味着我知道怎么打败它。"
+
+"You do!?" "你真的会！？"
+
+"Watch and learn!" "看着学吧！"
+
+Unit 02 broke into a sprint, heading straight for the monstrosity. Crimson's progressive knife was ready, aiming at the sparkling red core she had destroyed countless times before. She was seemingly meters away from her target, her aim true.  
+02 号机突然加速，直奔那怪物而去。Crimson 手中的渐进之刃已准备就绪，瞄准了那闪烁着红光的核，她曾无数次将其摧毁。她看似离目标仅几米之遥，瞄准精准无误。
+
+A rush suddenly erupted from the ground beneath her. She had expected some form of resistance, but instead of an A.T. field like she spotted earlier, a rush of melded clones had formed a wall between her and the Angel. It was like a wall of half-formed humans, arms and legs sticking out at weird angles, heads were popping out… It was another thing that made everyone watching think of cheap horror movies.  
+突然间，她脚下的地面爆发出一股力量。她本以为会遇到某种形式的抵抗，但出乎意料的是，没有像之前看到的那种 A.T.力场，取而代之的是一堵由融合克隆体组成的墙，横亘在她与使徒之间。这堵墙像是半成型的人类，四肢以怪异的角度伸出，头颅不断冒出……这景象让所有旁观者不禁联想到廉价的恐怖电影。
+
+"_I don't want to rush whatever it is you guys are trying to do, but the MAGI are 98% infected. Hurry!"_  
+“我不想催促你们正在做的事，但 MAGI 系统已有 98%被感染。快点！”
+
+Misato's cry pushed Shinji to act. There wasn't much he _could_ do; he could barely control his… Eva. But after glancing over at Unit 02, he caught the eyes of Crimson on the communication monitors. They both nodded at each other, understanding what needed to be done.  
+美里的一声呼喊促使真嗣行动起来。他能做的并不多；他几乎无法控制自己的……Eva。但当他瞥向 02 号机时，通讯监视器上那双深红色的眼睛吸引了他的注意。两人相互点头，明白了需要做什么。
+
+Unit 01 clumsily started to run. From Crimson's perspective, it was like watching a toddler running towards a toy. She almost laughed at the comicalness of it all, but she needed to keep her focus sharp. She'd only have one chance at this.  
+01 号机笨拙地开始奔跑。从深红的角度看，这就像是在看一个蹒跚学步的孩子冲向玩具。她几乎要被这滑稽的一幕逗笑了，但她必须保持专注。她只有一次机会。  
+Unit 01 finally reached the wall, where, instead of stopping, Shinji decided to barrel through it, ripping the wall apart and exposing the core once again.  
+01 号机终于到达了墙边，真嗣没有选择停下，而是决定直接冲破它，撕裂墙壁，再次暴露出核心。
+
+Without thinking, Crimson willed Unit 02 to dive forward, not allowing anything else to come between her, her knife and the sparkly jewel that needed to shatter, right now.  
+未加思索，Crimson 便命令 02 号单位向前俯冲，不容任何事物阻挡在她、她的刀刃与那急需粉碎的闪亮宝石之间，就在此刻。
+
+A crack ripped through the air, followed by a deafening crashing noise.  
+空气中撕裂出一道裂缝，紧接着是震耳欲聋的轰鸣声。
+
+An explosion ripped through the world, followed by darkness.  
+一场爆炸席卷了整个世界，随后陷入黑暗。
+
+---
+
+"So."
+
+Gendo Ikari was once again sitting behind his desk. In front of him were various documents. Reports, on how SEELE had managed to infiltrate their networks and cause untold catastrophe for the past eighteen hours.  
+碇源堂再次坐在他的办公桌后。面前摆着各种文件。报告，关于 Seele 如何成功渗透他们的网络并在过去十八小时内造成无法估量的灾难。
+
+Yui Ikari was standing next to him, facepalming at the sheer stupidity of it all. She didn't have much to say to the crowd of tech crew, scientists, the kids, along with Misato and Kaji. Gendo began to clear his throat, wondering how to deal with the cretins he called comrades.  
+碇唯站在他旁边，对这一切的愚蠢程度捂脸。她对技术团队、科学家、孩子们，以及美里和加持无话可说。碇源堂开始清嗓子，思考如何对付这些他称之为同志的蠢货。
+
+"It appears, from initial reports… That we were hacked. Quite magnificently, as you can imagine, by SEELE. You would think that it might have taken them a long time, lots of effort and patience but the truth is…"  
+“根据初步报告……我们被黑了。想象一下，非常精彩地，被 Seele。你们可能会认为这需要他们很长时间，大量的努力和耐心，但事实是……”
+
+Gendo sighed. He was considering whether this was more excruciating than _losing_ to those idiotic men at the cult cabal.  
+源度叹了口气。他在考虑这是否比输给那些邪教密会里的白痴们更令人痛苦。
+
+"Someone had used the MAGI system to check social media, and not via network safety protocols. For the sake of everyone here, no names will be mentioned but the warnings about using the Internet here were for a reason. As a result, there is a huge amount of system damage done that is going to take _months_ to repair." Gendo turned his gaze towards the desk. He kept sighing to himself, feeling himself get older with every breath.  
+“有人利用 MAGI 系统检查社交媒体，而且不是通过网络安全协议。为了大家的利益，这里不会提及具体名字，但关于在此使用互联网的警告是有原因的。结果造成了大量系统损坏，修复这些损害需要数月时间。”源度将目光转向办公桌。他不停地叹息，每呼吸一次都感觉自己又老了一分。
+
+"Why SEELE decided to use this method to insert a virus, we're not sure. Why or how it took on the forms that it did is also unknown. It's a small miracle Crimson was here to not only help us defeat the target, but to also have data that might help us in the future." Yui Ikari had taken over, giving the uncomfortable Crimson a thankful wink in the process. "Not to mention Shinji, Asuka and Rei for fighting valiantly for the defence of this facility."  
+“我们不确定 Seele 为何决定采用这种方式植入病毒，也不清楚它为何以及如何呈现出这些形态。能在这里有 Crimson 不仅帮助我们击败目标，还拥有可能对未来有帮助的数据，这真是个小奇迹。”碇唯接过话头，向不自在的 Crimson 投去感激的一瞥。“更不用说真嗣、明日香和绫波为保卫这个设施而英勇奋战了。”
+
+The three teenagers shuffled awkwardly while receiving a round of applause. Sure, they all fought but they also got their butts kicked. It was humiliating, even though they technically won.  
+三个青少年在一片掌声中尴尬地挪动着脚步。没错，他们确实战斗了，但也挨了不少揍。这很丢脸，尽管从技术上讲他们赢了。
+
+"Can I just ask…?" Asuka raised her hand. "The… pictures. What was… that about?"  
+“我可以问一下…吗？”明日香举起手。“那些…照片。是怎么回事？”
+
+Everyone in the command centre had _just_ managed to forget about all the indecent images of Asuka flashing up in the VR room. Unaware of the discomfort she had just caused, Asuka continued her barrage of awkward questions.  
+指挥中心里的每个人都刚刚设法忘记了在 VR 室里闪现的明日香的不雅图像。不知自己刚造成了不适，明日香继续连珠炮似地提出尴尬的问题。
+
+"Why just me? Why stuff like… that? And who on earth took them!?"  
+“为什么只针对我？为什么是那种……东西？还有，到底是谁拿走了它们？！”
+
+"As for the who, we don't know." Yui attempted to answer the understandably distressed girl. "However…" She gestured weakly to Shinji, who almost begged his mother with his eyes to not answer the question.  
+“至于是谁，我们还不清楚。”Yui 试图回答这个完全可以理解的焦虑女孩。“不过……”她无力地向 Shinji 示意，后者几乎用眼神恳求母亲不要回答这个问题。
+
+Realising there was no stopping the crazy train just yet, Shinji pulled out his phone.  
+意识到疯狂的列车还停不下来，Shinji 掏出了他的手机。
+
+"Have you checked _your_ socials today Asuka? I think… _you're_ the one that might've been hacked…"  
+"今天你检查过社交账号了吗，明日香？我觉得……可能是你被黑了……"
+
+There was a return of the arctic freeze in the command centre as Asuka stood stock still.  
+指挥中心再次陷入了北极般的冰冷氛围，明日香僵立不动。
+
+"No…"
+
+She slowly pulled out her phone, which she had neglected to look at since she had left school. There were dozens of notifications on the lock screen. Some of them, even with their short headers, had sentences that looked like warnings from her friends.  
+她缓缓掏出手机，自从离开学校后就没再查看过。锁屏上有数十条通知。其中一些，即便只有简短的标题，也像是来自朋友的警告。
+
+"_You might want to check your timelines! I think you've been hacked!"_  
+“你最好检查一下你的时间线！我觉得你被黑了！”
+
+A message from Hikari only further brought on the dread as she opened LINE and her other social media applications. All of the lewd photography was there, just like she had seen in the VR world.  
+来自光的一条消息更是加剧了她的恐惧，当她打开 LINE 和其他社交媒体应用时，那些猥亵的照片赫然在目，正如她在 VR 世界中所见。
+
+"W-why…?" "为…为什么…？"
+
+Just like she had done in the VR world, Asuka collapsed onto the ground, unconscious.  
+就像她在 VR 世界中所做的那样，明日香倒在地上，失去了意识。
+
+"ASUKA!" Shinji ran to the second-time collapsed teenager.  
+"明日香！" 真嗣跑向再次倒下的少女。
+
+"But really though, why her?" Misato looked thoughtfully. "And if the hack was today, _how_ could it have been Asuka? She was at school all day, the attack had already started before we even got here?"  
+"但说真的，为什么是她？" 美里若有所思地看着。"而且如果黑客行为是今天发生的，怎么可能是明日香？她一整天都在学校，攻击在我们到达这里之前就已经开始了。"
+
+"It obviously happened on a different day she was here. Probably a virus lying dormant until certain triggers went off…" Crimson said in a low voice, glaring daggers at her counterpart. "I can't believe she'd be someone to flaunt herself like that."  
+"显然是她在别的时候在这里发生的。可能是一种病毒潜伏着，直到某些触发条件被激活……" 克莱姆森低声说道，目光如刀般瞪着对方。"我真不敢相信她会那样炫耀自己。"
+
+"She isn't like that! My Asuka would never do such a thing!" Kyoko glared at Crimson, coming to one of her daughter's defence. "Why would you think she'd do anything like that? It's clear that someone has been spying on her for a while now. But why would they pick her as a target?"  
+"她不是那样的！我的明日香绝不会做这种事！" 京子瞪着克莱姆森，为她的女儿辩护。"你为什么会认为她会做那样的事？很明显，有人已经监视她一段时间了。但为什么会选择她作为目标？"
+
+Crimson looked nervously away from Kyoko, feeling for the first time since arriving in this world, an overwhelming sense of anxiety and fear. There was something about being in the presence of her mother that stripped away all her anger, replacing it with a constrictive knot in her chest that made it difficult to talk. She felt like a child caught stealing cookies and instead of reacting how she normally would with out-of-control rage, she caught herself staring at her shoes.  
+深红紧张地避开京子的目光，自从来到这个世界后，她第一次感受到了难以承受的焦虑和恐惧。在母亲面前，她所有的愤怒都消失了，取而代之的是胸口紧缩的结，让她难以开口。她觉得自己像个偷吃饼干被抓的孩子，本该像平时那样爆发失控的怒火，现在却只是盯着鞋子发呆。
+
+"I-I believe the hackers might have been… attempting s-something like a penetration t-test? And Asu… She would-… w-work well as a target b-because of her links to the… lab and her… popularity… She'd be a… good… catalyst…" Crimson couldn't believe it. _She_ was stammering. Her! Sounding for all the world like a shy bookworm, she sounded like one of the Rei's for God's sake!  
+“我-我认为黑客可能是在……尝试进行某种渗透测试？而……阿苏……她会……很适合作为目标，因为她和……实验室的联系以及她的……知名度……她会是……一个很好的……催化剂……”深红简直不敢相信，她在结巴。她！听起来完全像个害羞的书呆子，简直像是那些玲的翻版，天哪！
+
+Kyoko instantly realized why Crimson was reacting like this. She was the spitting image of the poor girl's mother in Crimson's past world, and she was demanding answers. Though she might not have meant it, Kyoko probably appeared intimidating and that was the last thing she wanted to do.  
+京子立刻意识到深红为何如此反应。她与深红过去世界中的母亲如出一辙，而她现在正要求答案。尽管她可能并非有意，京子大概显得很吓人，而这正是她最不想做的。
+
+"Oh dear…" Stumbling over to the stricken girl, Kyoko enveloped her in a tight embrace, causing even more emotional confusion on Crimson, although she didn't altogether dislike it. Gendo sighed, adjusting his glasses as he began to address everyone once again.  
+"哦，天哪…" 踉跄着走向受伤的女孩，绫子紧紧地抱住了她，这让绯红心中的情感更加混乱，尽管她并不完全讨厌这种感觉。源渡叹了口气，调整了一下眼镜，再次向大家讲话。
+
+"The young lady is right. SEELE will do anything and everything to disrupt and invade our operations. This has been a lesson for us all."  
+"这位年轻女士说得对。SEELE 会不择手段地破坏和入侵我们的行动。这对我们所有人都是一个教训。"
+
+"We'll need to bolster our countermeasures to prevent things like this from happening again in the future." Yui glanced towards the tech team. "And maybe make sure that social media use is blocked on site for the foreseeable future..."  
+"我们需要加强我们的反制措施，以防止未来再次发生类似的事情。" 唯看向技术团队。"或许还要确保在可预见的未来，现场禁止使用社交媒体……"
+
+A collective groan echoed throughout the command centre. Breaks times were about to become excruciating. Personnel were going to have to socialize.  
+指挥中心内响起了一阵集体的呻吟。休息时间即将变得难以忍受。工作人员们不得不进行社交。
+
+Before he found himself caught in the crossfire of an uprising, Shinji decided to pick Asuka up and carry her towards the medical bay. He figured that she would probably appreciate it more than waking up on the floor of the command centre. Or in his lap.  
+在发现自己卷入一场起义的交火之前，真嗣决定抱起明日香，带她前往医疗舱。他觉得她可能会更感激这种方式，而不是醒来时躺在指挥中心的地板上，或者在他的腿上。
+
+---
+
+Asuka suddenly woke up, her eyes finding a cold, bare ceiling above her. She recognized it, seeing as it hadn't been the first time she'd awoken in the medical bay. Blinking her eyes a few times to shake the weariness out of them, she thought back, piecing together the memories of how she got here.  
+明日香突然醒来，她的眼睛发现头顶是一片冰冷、光秃秃的天花板。她认出了这个地方，毕竟这不是她第一次在医疗舱里醒来。眨了几下眼睛，试图驱散疲惫，她开始回想，拼凑起自己如何来到这里的记忆。
+
+"Okay, so we went to the command centre… The revelation that indecent images of me have been hacked out of my phone and flooded on social media was discovered, ah…" She felt a wave of dizziness flood over her. That would do it. Shock on that level would make anyone crumple to the floor.  
+“好吧，我们去了指挥中心……发现我的手机里不雅照片被黑客盗取并大量散布到社交媒体上，啊……”她感到一阵眩晕袭来。这足以让人崩溃。那种程度的震惊足以让任何人瘫倒在地。
+
+She suddenly felt her hand twitch. Not by her own power, but from the faintly warm sensation she felt wrapped around it. She marvelled at the fact that she had only just noticed it. Her head really wasn't in the game today. She had a pretty good idea who it was, clutching her hand as if to stop her from floating away.  
+她突然感到手微微抽动。不是她自己的力量，而是被一种微暖的感觉包裹着。她惊讶于自己刚刚才注意到这一点。今天她的脑袋确实不在状态。她大致猜到了是谁，紧紧握住她的手，仿佛要阻止她飘走。
+
+Turning her head, Asuka's suspicions were confirmed when she saw a passed-out Shinji, his head resting on one arm, a sliver of drool dribbling out of the corner of his mouth. Bizarrely, she seemed to find it somewhat attractive. A blush flared across her face, followed by indignation. Was there anything else weird about him that she liked?! Was she about to start having strange fantasies about his scent?!  
+转过头，当看到昏睡的 Shinji，他的头靠在一只手臂上，嘴角流出一丝口水时，Asuka 的怀疑得到了证实。奇怪的是，她似乎觉得这有点吸引人。她的脸颊泛起红晕，接着是愤怒。他还有其他什么奇怪的地方是她喜欢的吗？！她是不是快要开始对他的气味产生奇怪的幻想了？！
+
+Her body froze. Oh no. She wasn't… Was she? With her internal debate in full rage about why this was/wasn't a good idea, she suddenly found herself inches away from the top of Shinji's head.  
+她的身体僵住了。哦不。她不是……她是吗？内心激烈的辩论正全速进行，关于为什么这是个/不是个好主意，她突然发现自己离真嗣的头顶只有几英寸远。
+
+"No no no no no, stop... stopstopstopnononon... **_AHHHHHHHHH!_**" The embarrassed screams in her head were drowned about by the thunderous claps of her heartbeat in her ears. She held her breath, begging with herself not to do anything she might end up regretting later.  
+“不不不不不，停下来……停停停不不不不……啊啊啊啊啊啊！”内心的尴尬尖叫被震耳欲聋的心跳声淹没。她屏住呼吸，恳求自己不要做出任何可能后悔的事。
+
+She was already regretting it and she hadn't done anything yet!  
+她已经开始后悔了，而她甚至还没做任何事！
+
+Her nose inched further along its half-intended trajectory. She could feel the tips of his hair tickling her nostrils. She was going lightheaded from holding her breath. It was almost as if she wasn't giving herself a choice. She would have to breathe eventually. Yeah, that was it. It wasn't as if she was doing this because she _wanted_ to. Breathing was a necessity! Never mind that she had by now buried her face into Shinji's bird nest he called hair and inhaled deeply, hit by curious notes of chestnuts and other earthy scents.  
+她的鼻子沿着半是有意的轨迹缓缓向前。她能感觉到他发梢轻触她的鼻孔。屏息太久，她开始感到头晕目眩。仿佛她别无选择，终究得呼吸。没错，就是这样。并非她出于渴望才这么做。呼吸是必需的！别提她此刻已将脸埋进真嗣那被他称为鸟窝的头发中，深深吸气，被栗子和其他泥土气息的奇异香味击中。
+
+She stayed there, longer than she subconsciously promised herself that she would. It was addictive, her senses being enveloped by Shinji.  
+她停留的时间，比潜意识中给自己设定的要长。这种感觉令人上瘾，她的感官被真嗣所包围。
+
+"Would it be the same if he gave me a long hug, I wonder?" She giggled to herself, indulging in her weirdness for just a bit longer. He was still snoring, she was safe for now. She was enjoying herself, for the first time in what felt like forever, she was happy, letting life and her hormones take the wheel. At least it wasn't something even weirder, like lusting over his BO…  
+“如果他给我一个长长的拥抱，会不会也是这样呢？”她暗自发笑，沉溺于这份怪异中稍久一些。他仍在打鼾，她暂时安全。她正享受着，仿佛久违的快乐，任由生活和荷尔蒙掌控方向盘。至少这还不算更奇怪的事，比如对他的体味产生欲望……
+
+With that thought snapping her straight back into reality, her heartbeat still beating a million miles an hour, Asuka sat bolt upright, her eyes still transfixed on the sleeping Shinji.  
+这个念头猛地将她拉回现实，心跳依旧如百万英里般急速，明日香突然笔直坐起，目光依旧紧锁在熟睡的真嗣身上。
+
+Rapid thoughts involving stealing his clothes at home, from the laundry… Inhaling their scent, losing herself into a lust-filled adventure of self-pleasure invaded her mind. Somewhere under the covers of the hospital bed, she could feel a wetness beginning to dampen where she'd very much rather not think about right now. As much as she tried, she still felt her hand slowly slinking its way under the covers, slipping past the elastic of her undergarments as her breathing slowly turned into panting. Her face felt like a radiator, a small voice in the back of her head was wondering if she was breaking out into a full-blown fever, and _Shinji appeared to be stirring-… !_ _**ABORT MISSION, ABORT-…!**_  
+快速闪过的念头涉及在家中偷取他的衣物，从洗衣篮里……吸入它们的气息，迷失在充满欲望的自我愉悦冒险中侵袭她的思绪。在医院床铺的被单下，她能感觉到一种湿润开始浸湿她现在非常不想去想的地方。尽管她尽力尝试，她的手仍慢慢滑向被单下，悄悄越过内衣的松紧带，她的呼吸逐渐转为喘息。她的脸热得像散热器，脑海中有个小声音在想她是否正在发高烧，而真嗣似乎在动……！中止任务，中止……！
+
+"Asuka?" A sleepy voice, adorable as they come, wandered into the stricken girl's eardrums. She tried every trick in the book to banish her thoughts from moments ago. She tried to think of anything that would, in lack of a better phrase, turn her off!  
+“明日香？”一个睡意朦胧的声音，可爱至极，传入了受惊女孩的耳膜。她尝试了所有能想到的办法来驱散刚才的念头。她试图想任何能让她，用一个不太恰当的词来说，失去兴趣的事情！
+
+_Old people, a dog peeing on the road, Honekawa-sensei's deadly boring lessons, Misato's cooking, Shinji's SDAT player, Shinji's unwashed boxers lying on top of the washing machine, defenceless and all her's to-ARGHHHH!  
+老人家，一只狗在路上撒尿，Honekawa 老师的无聊至极的课，Misato 的烹饪，Shinji 的 SDAT 播放器，Shinji 未洗的内裤躺在洗衣机上，无助且全都是她的——啊啊啊！_
+
+It was a fruitless battle. Realizing now that she had been repressing her urges for a long time, it felt as though a dam had burst. Though not completely.  
+这是一场徒劳的战斗。现在她意识到自己已经压抑了很久的冲动，感觉就像大坝决堤了一样。虽然还没有完全崩溃。
+
+Cracks had appeared, spouting out surges of water but the mental sanity department inside her mind was working at insane pace to put the metaphorical band aids on before she lost herself completely.  
+裂缝已经出现，喷涌出水流，但她内心的心理理智部门正以疯狂的速度在彻底迷失之前用比喻性的创可贴修补。
+
+"Jesus Asuka! You're bright red! Do you have a fever or something?!" Shinji picked that moment to do the one thing that would demolish her internal Walls of Jericho and gently touched his forehead onto hers, checking her temperature. She internally cursed to all the gods in existence ever.  
+“天哪，明日香！你脸红得像番茄！是不是发烧了？”真嗣恰好在那一刻做了唯一能摧毁她内心耶利哥之墙的事，他温柔地将额头贴在她的额头上，检查她的体温。她在心里向所有存在的神明咒骂着。
+
+_**WHY WAS THIS A THING?!  
+“为什么这种事会发生？！”**_
+
+_Japanese and their skinship…  
+“日本人真是爱肌肤接触啊……”_
+
+At least she knew who to blame for her following action.  
+至少她知道该怪谁引发了接下来的举动。
+
+"Asuka, let me go get the nurse! You're burning u-_MMMMMPH_!" Shinji was cut off by a pair of lips finding a home on his own, Asuka's hands firmly around the back of his head. He was a fish out of water, his whole nervous system was electrified. His eyes were wide with shock and his fried brain was sure he was seeing what looked like hearts instead of irises in Asuka's.  
+“明日香，我去叫护士来！你烧得厉害——唔唔唔！”真嗣的话被一双唇堵了回去，明日香的手紧紧按在他的后脑勺上。他如同离水的鱼，全身神经都被电击般震撼。他的眼睛因震惊而瞪大，混乱的脑海中确信自己看到明日香的眼中闪烁的不是虹膜，而是心形图案。
+
+He feared for his life. After she inevitably calmed down, Shinji wasn't sure if this was going to continue, or she'd be out for murder.  
+他为自己的生命担忧。等她终于平静下来后，真嗣不确定这是否会继续，还是她会转而谋杀他。
+
+Of course, as his fate seemed destined to suffer misfortune of all kinds, the sound of an automatic door pneumatically opened behind him. He didn't need to look around. He felt the eyes staring into the back of his head.  
+当然，似乎他的命运注定要遭受各种不幸，自动门在他身后气动开启的声音响起。他无需回头。他能感觉到目光刺入他的后脑。
+
+The whole gang had just walked in.  
+整个团伙刚刚走了进来。
+
+---
+
+_Whew... 6000 words? Can't remember the last time I wrote that much for a chapter.  
+呼... 6000 字？不记得上次为了一章写这么多是什么时候了。_
+
+_Angel has become my longest fic on fanfiction, and I'm fairly proud of that. Writing has been helping me emotionally the past few days, and seeing all the characters delving into their development like they have been doing is great!  
+《Angel》已成为我在 fanfiction 上篇幅最长的作品，对此我颇为自豪。写作近几日对我的情感有着极大的慰藉，看到所有角色如他们所展现的那样深入发展，真是太棒了！_
+
+_And being able to get two long chapters out over the course of 2/3 days has been very motivating as well.  
+而且能在两三天内完成两篇长章节，也极大地激励了我。_
+
+_I will have to slow it down a bit though. Not by much, but the reason these chapters were so long was because it was difficult to break them up without disrupting the flow of the atmosphere. Originally, it was supposed to be one long chapter, but it inflated well beyond what I had originally intended.  
+不过，我得稍微放慢节奏。不会太多，但这些章节之所以如此长，是因为很难在不破坏氛围流畅性的情况下将其分割。原本计划是一个长章节，但它的篇幅远远超出了我最初的预期。_
+
+_Not to mention I can't forget about other projects/stories etc.  
+更别提我还有其他项目/故事等不能忘。_
+
+_I'm setting up a Ko~Fi for donations and early access to other projects, as well as more concise updates about 'Angel' and other stories. I want to be able to turn what I do into a more regular thing, but I can't do it alone. So I need your help. I would appreciate it so much if you're able to check my profile for links.  
+我正在为捐赠和提前访问其他项目，以及关于《天使》和其他故事的更简明更新设置一个 Ko~Fi。我希望能让我的创作变得更加规律，但我一个人做不到。所以我需要你的帮助。如果你能查看我的个人资料链接，我将不胜感激。_
+
+_Have a nice day! 祝你今天愉快！_
