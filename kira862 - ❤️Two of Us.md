@@ -3169,7 +3169,6 @@ Rolling over on his back, he faced away from Asuka and tried to go to sleep, tho
 翻身仰躺，他背对着明日香，试图入睡，NERV 和父亲的思绪在脑海中盘旋。火堆对面，母亲的形象填满了明日香的心，同时她也在揣测着真嗣是否就是第三适格者。
 
 ---
-
 ### Chapter 5: Progression
 
 Refer to previous chapter for stuff I talk about. Although, on another note, anybody see Evangelion 3.0 yet? I know it comes out in the states on the 11 of January (if you can believe IMDB) but anyone see it in Japan?
@@ -4201,6 +4200,7 @@ As he thought this, he slowly fell asleep, while above him, the clouds above Tok
 正当他这么想着，他渐渐进入了梦乡，而头顶上，东京-3 上空的云层开始变得阴沉。
 
 ---
+
 ### Chapter 6: Remembrance
 
 Right so I'm really drunk right now so ignore any typing problems right now. This chapter is...well something that had to happen sooner or later I guess, and the sooner the better. Getting it out the of the way, Shinji and Asuka can continue there lives as so at least. Trying to do one chapter a month at least as well.
@@ -5227,7 +5227,7 @@ They had grown closer since last night Shinji supposed, and this was a step in t
 
 ---
 
-### Chapter 7: Return  Chapter 7: 归来
+### Chapter 7: Return
 
 Longer chapter here then what I've done so far, but I'll talk more about stuff at the end of this.
 
