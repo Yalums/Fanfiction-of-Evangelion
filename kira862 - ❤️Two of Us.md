@@ -27896,3 +27896,270 @@ From where she existed, Lilith peered down through the clouds of Kyoto and into 
 She woke up. Had she been dreaming? She felt like she had been, and that it had been wonderful, but she couldn't recall what it had been about. Then, was she still dreaming now? If so, then this was incredibly real. The sand squishing between her toes and hands as she lay there, the salty smell of the ocean breeze tickling her nose. Was this truly a dream?  
 她醒了。她是否做了梦？她感觉自己做了梦，而且是个美梦，但她记不清梦的内容了。那么，她现在还在梦中吗？如果是的话，那这梦也太真实了。沙子在她脚趾和手掌间挤压的感觉，海风中咸咸的气息轻拂着她的鼻子。这真的是梦吗？
 
+She sat up, albeit slowly. Her whole body ached as if she hadn't used it for months. Trying to stand proved impossible, and she fell back onto her butt. Her body felt weak, and her vision was hazy. Her throat was dry, and her stomach began to rumble. What had happened to put her in this situation? Where was she in the first place?  
+她缓缓坐起身，尽管动作迟缓。全身酸痛，仿佛数月未曾活动。试图站立却力不从心，她再次跌坐在地。身体虚弱，视线模糊。喉咙干涩，胃也开始咕咕作响。究竟发生了什么让她陷入这般境地？她又身在何处？
+
+She turned around, digging her hands in the sand to move her body. It was still difficult for her to see, but she recognized the large buildings towering in the skyline. It was a city that she recognized easily, even with the apparent destruction.  
+她转过身，双手在沙中摸索以移动身体。视线依旧模糊，但她认出了天际线上高耸的建筑物。即便满目疮痍，这座城市她依然一眼就能辨认出来。
+
+This wasn't all though. Through her hazy vision, she saw a figure coming towards her. No, running would be a better explanation. She recognized them, this man. She tried opening her voice, but it hurt too much to speak right now. He seemed to understand something she didn't however, because he eased her worries.  
+然而，不止如此。透过朦胧的视线，她看到一个人影正朝她走来。不，更确切地说是奔跑。她认出了他，这个男人。她试图开口，但喉咙的疼痛让她难以发声。不过，他似乎理解了她的某些未言之语，从而缓解了她的忧虑。
+
+"It's alright. I've got you. Everything is going to be okay."  
+"没事的，我在这儿。一切都会好起来的。"
+
+He picked her up then, holding her against his body. She was incredibly light, so this proved easy. She wanted to say something, anything to this man that she thought she recognized, but he shushed her again.  
+他随即抱起了她，将她紧贴在自己身上。她轻得惊人，这让他轻松不少。她本想对这个她觉得似曾相识的男人说些什么，但他再次轻声安抚她。
+
+Wordlessly, he carried her across the beach, and up the concrete steps to the world above. People, at least a hundred of them, were walking around on the road just above the beach. Hundreds of tents of varying sizes and colors were pitched along the road, some of them directly against the remains of destroyed buildings. Some glanced in there direction, but most of them seemed too busy to give them a second thought.  
+他默默地抱着她穿过沙滩，走上通往上方世界的混凝土台阶。路上至少有上百人在走动。数百顶大小和颜色各异的帐篷沿着道路搭设，有些直接紧挨着被毁建筑的废墟。有些人瞥了他们一眼，但大多数人似乎都忙得无暇顾及。
+
+The man continued walking past all these tents. He seemed to know his way around the area well, and had a destination in mind. While still in his arms, she craned her neck around, looking at all the people going about their business. Nearly all of them were carrying something in their arms, or had backpacks slung over their shoulders. It was like a tightly knit colony it seemed.  
+那男人继续走过这些帐篷。他似乎对这片区域很熟悉，心中有着明确的目的地。尽管她仍在他怀里，她还是扭过头，观察着周围忙碌的人们。几乎所有人手里都拿着东西，或者肩上挎着背包。这里就像一个紧密相连的殖民地。
+
+"We're here," said the man suddenly, and she looked forward just as he ducked his head, stepping inside of a large tent. The canvas was green, and the sunlight which shined through created a murky green glow on the inside. There were several makeshift beds on the inside, and the man laid her down on one of them.  
+“我们到了，”男人突然说道，她向前看去，只见他低头钻进了一个大帐篷。帐篷的帆布是绿色的，阳光透过布料，在里面投下一片朦胧的绿光。里面有几张简易床铺，男人将她放在其中一张上。
+
+He glanced around the large tent, capable of allowing multiple people to stand upright inside of it, but one cursory glance around showed that there wasn't anybody else inside.  
+他环顾这个宽敞的帐篷，足以让多人直立其中，但匆匆一瞥便知里面空无一人。
+
+"Stay here, and don't move. I'm going to find someone to check on you."  
+“待在这里，别动。我去找人来给你检查一下。”
+
+She tried to say something again, but he was already leaving the tent. Without any other options, she closed her eyes and rested her weak body on the bed. She trusted this man that she thought she knew, but the whole situation baffled her. She recognized this city, the man, and even some of the people she had seen walking around, but everything else was confusing. What had happened?  
+她试图再次说些什么，但他已经离开了帐篷。别无选择之下，她闭上眼睛，将虚弱的身体靠在床上休息。她相信这个自以为认识的男人，但整个情况让她感到困惑。她认得这座城市、这个男人，甚至一些她见过的行人，但其他一切都令人费解。到底发生了什么？
+
+Several minutes went by with her laying there, her eyes closed. Try as she might, she couldn't remember what had happened, even though she knew it was important. Before she could think of anything else though, she heard hurried footsteps, and the sound of a woman's voice.  
+她躺在那里，闭着眼睛，几分钟过去了。尽管她知道这很重要，但无论怎么努力，她都想不起发生了什么。然而，还没等她想出别的，她就听到了急促的脚步声和女人的声音。
+
+"How was she?" "她怎么样？"
+
+"Weak, couldn't speak, bit disoriented; same as everyone that has returned, though she recognized me."  
+"很虚弱，说不出话，有些迷糊；和所有回来的人一样，不过她认出我了。"
+
+"That's something at least. Well, let's see her."  
+"至少还有这点。好吧，我们去看看她。"
+
+The tent flap opened, momentarily piercing her eyes with the change in light. As her eyes adjusted, she could make out the two distinct figures. One was the man who had carried her here, and the other was a woman. The woman, she recognized her from the short length blonde hair, though she hadn't seen her were jeans or a t-shirt in a long time.  
+帐篷的门帘被掀开，突如其来的光线瞬间刺痛了她的眼睛。待视线适应后，她辨认出两个身影。一个是将她带到这里来的男人，另一个则是位女子。她从女子那头短短的金发认出了她，尽管她已经很久没见过她穿牛仔裤或 T 恤的样子了。
+
+The woman pulled up a chair to sit beside her and started examining her body. She checked her eyes, her arms, legs, heart rate, and reflexes. This was all rather sudden, but she let this woman continued the examination. She knew and trusted her, even though she couldn't place the name.  
+女子拉过一把椅子坐在她旁边，开始检查她的身体。她检查了她的眼睛、手臂、腿、心率和反射。这一切来得相当突然，但她任由这位女子继续检查。她知道并信任她，尽管一时想不起她的名字。
+
+Apparently done with the examination, the woman turned to the man and said, "I'm gonna have you leave for a minute. I want to talk to her alone for a minute."  
+检查完毕后，女子转向男子说道：“我要你离开一会儿。我想单独和她谈谈。”
+
+The man waved at her, understanding, and pulled something out from his breast pocket as he left the tent. This conjured up a strange memory for the woman lying on the bed, but she didn't know why. Reaching for the tent flap with her arm outstretched, she suddenly didn't want the man to leave, but the woman doing the examination placed something in her hand instead.  
+那男人向她挥手示意，心领神会地从胸前口袋里掏出某物，离开帐篷。这勾起了躺在床上的女人一段奇异的记忆，但她不明白为何如此。她伸出手去抓帐篷的帘子，突然间不想让那男人离开，但进行检查的女人却将某物塞进了她的手中。
+
+"Here drink this, but slowly."  
+“来，喝这个，但要慢慢喝。”
+
+She passed her a plastic cup filled with water, and she drank it slowly, sitting up slightly. Her throat didn't feel as painful anymore, and her body began to feel invigorated.  
+她递给她一个装满水的塑料杯，她慢慢坐起身来，小口啜饮。喉咙不再那么痛了，身体也开始感到精力充沛。
+
+"Now," said the woman as she took the plastic cup away from her, "how do you feel, Misato?"  
+"现在，" 女人从她手中拿走塑料杯，问道，"你感觉怎么样，美里？"
+
+Katsuragi Misato opened her eyes wide, a rush of things returning to her mind, things that she had forgotten, which she shouldn't have. That's right, she was a major, part of the organization know as Nerv whose purpose was to prevent the annihilation of humankind from the beings known as Angels. And this woman in front of her was-  
+葛城美里睁大了眼睛，一股记忆涌回脑海，那些她本不该忘记的事情。没错，她是一名少校，隶属于名为 NERV 的组织，其目的是防止人类被称作使徒的生物所灭绝。而眼前这位女性是——
+
+"Ritsuko...wha-" "律子...什-"
+
+"I'm sure you have plenty of questions, and I have my own. But before any of that, how do you feel?"  
+"我确信你有很多问题，我也有我的。但在那之前，你感觉如何？"
+
+Misato blinked, trying to formulate her thoughts. How did she feel?  
+美里眨了眨眼，试图整理思绪。她感觉如何呢？
+
+"I don't know. My whole body is sore, and just moving my muscles hurts."  
+"我不知道。我全身酸痛，连动一下肌肉都疼。"
+
+"That's typical from what we've seen so far."  
+"到目前为止，这是我们常见的典型情况。"
+
+"What?" "什么？"
+
+"Never mind, I'll get back to that another time. How are your memories? What do you remember?"  
+"没关系，我改天再处理。你的记忆怎么样？你记得些什么？"
+
+"..My name, yours, Nerv, the Angels, and...the Evangelions."  
+"...我的名字，你的，NERV，使徒，还有...EVA。"
+
+"What about the man who carried you here?"  
+"那个把你抱到这里来的男人呢？"
+
+That's right, that man who carried her. She also knew who he was, because he was somebody important to her.  
+没错，就是那个抱她的男人。她也知道他是谁，因为他对她来说是个重要的人。
+
+"Kaji," Misato said. "加持," 美里说道。
+
+"Good," replied Ritsuko. "Now, do you remember anything else? Something which happened before you woke up on the beach?"  
+"好，" 律子回答道，"那么，你还记得其他什么吗？在你醒来之前，海滩上发生的事情？"
+
+"I...know I don't think so-"  
+"我...我觉得不记得了-"
+
+Misato paused. No, she did remember something; it was coming back to her. The attack, the battle, the sound of gunfire and the smell of smoke. Blood though is what came to the front of her mind. The rich acrid smell of blood. But it wasn't just anybody's blood, it was her blood, slowing dripping out of her body, and there had been somebody else there with her. Who was it? The face, a male, slowly came back to her, and she remembered that it was Kaji.  
+美里停顿了一下。不，她确实记得一些事情；记忆正逐渐回流。攻击，战斗，枪声和烟雾的味道。但首先浮现的是血的气味。那浓烈刺鼻的血腥味。但这不仅仅是任何人的血，这是她的血，缓缓从身体中滴落，而且当时还有另一个人在场。是谁？那张脸，一个男性，慢慢浮现在她脑海中，她记起来了，那是加持。
+
+"I...died?" mumbled Misato. "Kaji and I died? How is that-"  
+"我...死了？" 美里喃喃道。"我和加持都死了？这怎么可能——"
+
+"Focus Misato," said Ritsuko abruptly. "What else do you remember? Slowly, what else do you remember?"  
+"集中注意力，美里，" 律子突然说道。"你还记得什么？慢慢地，你还记得什么？"
+
+"I...the hallway where we were, fighting back other soldiers. Other Nerv personal were there, assisting us, but we couldn't hold them off. It was only a matter of time until they broke through but-"  
+"我...我们在那条走廊里，与其他士兵对抗。其他 NERV 人员也在那里，协助我们，但我们无法抵挡他们。他们突破只是时间问题，但是——"
+
+"What else? Why were you there in the hallway. Why did you stay there?"  
+"还有什么？你为什么会在走廊里。为什么你留在那里？"
+
+"...an elevator, there was an elevator that we were guarding. We couldn't let them go down to the lower levels, but-"  
+"...一个电梯，我们守着的一个电梯。我们不能让他们下到较低的楼层，但是-"
+
+Something sprang to her mind. They had been fighting, holding them off as best as they could, but the superior numbers and weapons were thinning there numbers. Then, the elevator door opened, and somebody stepped out. The face, who was it? It was a target for the soldiers, somebody that they were aiming for, that they had orders to kill on sight. But the person, no, it was a girl now that Misato remembered, wanting something, she wanted to help.  
+一些事情突然闪过她的脑海。他们一直在战斗，尽其所能地阻挡敌人，但优势的数量和武器正在削弱他们的力量。然后，电梯门打开了，有人走了出来。那张脸，是谁？那是士兵们的目标，他们接到的命令是见到就杀。但那个人，不，现在美里记得，那是个女孩，她想要什么，她想要帮忙。
+
+Against her better judgement, Misato had listened to the girls request, and led her to an emergency duct. Both her and Kaji let the other Nerv personal hold them back while they did this, but they knew they didn't have much time. What was it though about the girl? Misato knew her, had known her for years before everything at Nerv had happened. The blue eyes, the vivid red hair, the fiery attitude that no one could contain. And then it clicked.  
+尽管心存疑虑，美里还是听从了女孩的请求，带她来到了一个紧急通风管道。她和加持让其他 NERV 人员拦住他们，但他们知道时间不多了。这个女孩身上有什么特别之处呢？美里认识她，早在 NERV 发生一切之前就认识她多年了。那双蓝色的眼睛，鲜红的头发，以及无人能压制的火爆脾气。然后，她恍然大悟。
+
+"Asuka," said Misato loudly. "Asuka was there. We were there at the elevator because Asuka was there...and...Rei. The soldiers wanted to get to the Evangelion pilots, but we were there to stop them. But Asuka wanted to go out a fight, even though Unit-02 was badly damaged, and came up to the floor we were on."  
+“明日香，”美里大声说道，“明日香在那里。我们去电梯是因为明日香在那里……还有……丽。士兵们想接近 EVA 驾驶员，但我们去那里是为了阻止他们。但明日香想要出去战斗，尽管二号机受损严重，她还是来到了我们所在的楼层。”
+
+"What else?" asked Ritsuko leaning forward.  
+“还有什么？”律子向前倾身问道。
+
+"Kaji and I led her to an access tunnel that would allow her to get there, but we both knew we couldn't follow her, so we stayed there to hold them off."  
+加治和我带她到了一个通道口，她可以借此到达那里，但我们俩都知道我们不能跟着她，所以我们留在那里牵制他们。
+
+"Why was Asuka so set on helping then, even though she knew Unit-02 was badly damaged?"  
+为什么明日香那么坚决要帮忙，尽管她知道二号机受损严重？
+
+Oddly, the answer came quickly to Misato. When one thought of Asuka, they would immediately begin thinking about the person associated with her, the boy who had given up on his own humanity to protect her. Misato had known both of them deeply, had watched them grow together in her own apartment. She cared about both of there well beings, but he in particular cared about her to the point that he would willingly sacrifice himself to protect her.  
+奇怪的是，答案很快就在美里心中浮现。当人们想到明日香时，会立刻联想到与她相关的那个人，那个为了保护她而放弃自己人性的男孩。美里深知他们俩，曾在自己的公寓里看着他们一起成长。她关心他们两人的福祉，但他尤其关心她，甚至愿意牺牲自己来保护她。
+
+"Shinji," mumbled Misato almost sadly. "She was going out to help Shinji fight the Mass-Produced Evangelions, even though hers was damaged, and I let her. What sort of a guardian am I?"  
+"真嗣," 美里几乎悲伤地喃喃道。"她明知自己的 EVA 受损，还是出去帮助真嗣对抗量产型 EVA，而我却允许了她。我算是什么样的监护人呢？"
+
+"You remember them then?"  
+"那你还记得他们吗？"
+
+"I do. They lived in my apartment for months, eating together, going to school together, fighting together. How could I forget that?"  
+"我当然记得。他们在我的公寓里住了几个月，一起吃饭，一起上学，一起战斗。我怎么可能忘记这些呢？"
+
+Ritsuko stared at Misato for several seconds before finally standing up.  
+律子盯着美里看了好几秒，最后终于站了起来。
+
+"Well, if you can remember all that, then it seems your mind is functioning properly. I don't want to tax you any further though, so I'm gonna give you some sleeping pills to help you rest."  
+“好吧，如果你能记得所有这些，那么看来你的大脑功能正常。不过我不想让你再费神，所以我会给你一些安眠药帮助你休息。”
+
+"I don't want, or need rest. I'm fine," said Misato as she tried to get up.  
+“我不需要，也不想休息。我很好，”美里说着试图起身。
+
+"You do, just like everyone else. I've already asked you enough, so it's time you got some sleep. Even if you're coherent, your body still needs to recover."  
+"你也是，和其他人一样。我已经问过你很多了，现在是你该休息的时候了。即使你意识清醒，你的身体仍然需要恢复。"
+
+"Wait Ritsuko. Answer me this at least. Are they okay, Shinji and Asuka...and is this what I think it is?"  
+"等等，律子。至少回答我这个问题。他们还好吗，真嗣和明日香...这是我想的那样吗？"
+
+Ritsuko eyed her for a second before letting out a sigh.  
+律子看了她一眼，然后叹了口气。
+
+"As to the first question, both Shinji and Asuka are not here, and nor is Rei; all the pilots are missing. And the second question...it is as it seems, the results of Third Impact, or After Impact."  
+"至于第一个问题，真嗣和明日香都不在这里，丽也不在；所有驾驶员都失踪了。而第二个问题……正如表面所示，这是第三次冲击的结果，或者说冲击后的世界。"
+
+"If this is After Impact then, why are we here?"  
+"如果这是冲击后的世界，那我们为什么会在这里？"
+
+Ritsuko shook her head and said, "I don't know, but that may be a question that only Shinji can answer."  
+律子摇了摇头说：“我不知道，但那可能是只有真嗣才能回答的问题。”
+
+Handing her another plastic cup filled with water and a small pill this time, Misato took the pill wordlessly and downed the entire cup of water, falling into a dreamless sleep.  
+这次递给她另一杯装满水的塑料杯和一颗小药丸，Misato 默默地吞下药丸，一口气喝完整杯水，随即陷入无梦的沉睡。
+
+---
+
+Misato woke early the next morning after sleeping the entirety of the previous day away. When she opened her eyes, she could smell the familiar musky odor of tobacco filling her nostrils.  
+Misato 在第二天清晨早早醒来，前一天她几乎睡了一整天。当她睁开眼睛时，她能闻到熟悉的烟草味充斥着她的鼻腔。
+
+Opening her eyes, she saw Kaji sitting beside her in a chair, focusing on what appeared to be a large map detailing all of Tokyo-3.  
+睁开眼睛，她看到 Kaji 坐在她旁边的椅子上，专注地看着一张似乎是详细描绘整个东京-3 的大地图。
+
+"I would have thought that you would have given up that habit considering the situation," said Misato glancing at him.  
+"我本以为考虑到当前的情况，你会戒掉那个习惯。" 美里瞥了他一眼说道。
+
+"It's because we're in this situation that I needed one," replied Kaji. Looking away from the map, he asked her, "Feeling better today?"  
+"正因为身处这种境地，我才更需要它。" 加持回答道。他移开地图，问她，"今天感觉好些了吗？"
+
+"Yeah. Ritsuko was right, sleep was the best thing."  
+"嗯，理津子说得对，睡眠是最好的良药。"
+
+"She's normally right about those kind of things. Hungry?"  
+"她通常对这类事情很准。饿了吗？"
+
+"Starved." "饿坏了。"
+
+Picking something off the ground, Kaji passed her a bag of chips and a bottle of water. Misato seemed rather crestfallen at the small bag of chips.  
+从地上捡起东西，加持递给她一袋薯片和一瓶水。美里对这小袋薯片显得有些失望。
+
+"It's better to start off eating slowly, though we don't have much in the way of supplies in the first place, so this is all you can eat for the moment."  
+"虽然我们本来物资就不多，但最好还是慢慢开始吃，所以现在你只能吃这些了。"
+
+"Have you guys been scavenging the surrounding area?"  
+"你们有没有在周围地区搜寻过物资？"
+
+"Yeah, people have been doing it in shifts."  
+"是的，大家轮流去搜寻。"
+
+"How many people are here right now?"  
+"现在这里有多少人？"
+
+"About one hundred and twenty, though this is only the count as of the morning. More keep returning everyday."  
+"大约一百二十人，不过这只是今早的统计。每天都有更多人回来。"
+
+Misato had about a hundred different questions that she wanted to ask them, but she swallowed for the moment, slowly eating and drinking.  
+美里有一百多个问题想问他们，但她暂时咽了下去，慢慢地吃喝着。
+
+A short time later, Ritsuko ducked through the tent flap, entering the tent. She had large bags under eyes, and looked like she hadn't slept in days.  
+不久之后，律子低头钻进帐篷的帘子，进入了帐篷。她的眼底下有大大的黑眼圈，看起来已经好几天没睡了。
+
+"Something wrong?" asked Kaji.  
+“出什么事了吗？”加持问道。
+
+"Patrols found ten more people about half an hour ago, and I've been running from one tent to the other checking them. I'm exhausted."  
+“巡逻队在半小时前又发现了十个人，我一直在各个帐篷之间奔波检查他们。我累坏了。”
+
+Sitting down on the bed opposite Misato, she took a large gulp of water and looked across to where Misato was laying.  
+坐在对面美里床边的她，大口喝了一口水，然后望向美里躺着的地方。
+
+"You seem better today at least. No disorientation, dizziness, nausea?"  
+“你今天看起来好多了，至少没有迷失方向、头晕或恶心吧？”
+
+"No, I feel better." “没有，我感觉好多了。”
+
+"Good, though I can't say I'm surprised."  
+"不错，虽然我并不惊讶。"
+
+"...Ritsuko?" "...律子？"
+
+"Everybody that has been returning has had the same symptoms. Disorientation, can't speak, and there bodies have atrophied; it's all similar to waking up from a coma, or that we've been in suspended animation. I actually didn't ask you this yesterday Misato, but do you remember dreaming anything?"  
+"所有回来的人都有类似的病症。定向障碍，无法说话，身体也萎缩了；这一切都像是刚从昏迷中醒来，或者我们经历了休眠。昨天我其实没问你，美里，你还记得梦到过什么吗？"
+
+"Yeah, in a way. I felt like I had been dreaming, or that I was waking up from a dream, but I can't remember what it was."  
+“是啊，某种程度上。我感觉自己像是在做梦，或者从梦中醒来，但我记不清梦的内容了。”
+
+"Everybody else has had the same experience, but I suppose I should start bringing you up to speed on a couple things."  
+“其他人也有同样的经历，但我想我应该开始让你了解一些事情。”
+
+Clearing her throat, Ritsuko continued talking.  
+清了清嗓子，律子继续说道。
+
+"It's been six days now since everybody started appearing on the beach, nearly all in groups. Myself and Kaji were in the first and second groups respectively. Everybody that has returned so far have all been Nerv employee. With the new group that just arrived recently, the total number of people here is one hundred and thirty."  
+"自从大家开始出现在海滩上已经过去六天了，几乎所有人都是成群结队地出现。我和卡吉分别在第一和第二批。到目前为止，所有返回的人都是 NERV 的员工。随着最近新一批人的到来，这里总人数已经达到了一百三十人。"
+
+"Is it possible that others have returned before us?"  
+"有没有可能在我们之前已经有人回来了？"
+
+"If they did, they didn't stay in the city. There have been no other signs of humans staying here before we started arriving. No, I'm sure that we are the first. Currently, we have people patrolling the beaches up and down in both directions since this area seems to be centered on where most are arriving. We've been scavenging for food as best as we can, but any perishables have long since deteriorated. I'm guessing that several months have passed since Third Impact happened at the very least, possibly as much as a year."  
+"如果有，他们也没有留在城里。在我们开始抵达之前，没有其他人类在此停留的迹象。不，我确信我们是第一批。目前，我们有人沿着海滩上下两个方向巡逻，因为这个区域似乎是大多数人抵达的中心地带。我们一直在尽力搜寻食物，但任何易腐烂的物品早已腐坏。我猜测，至少在第三次冲击发生后的几个月已经过去了，甚至可能长达一年。"
