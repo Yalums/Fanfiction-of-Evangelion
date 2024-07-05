@@ -26357,3 +26357,614 @@ Sighing deeply into her hair, Shinji, and Asuka as well, fell asleep together, w
 
 **Other than that, look forward to the double update in around two weeks.  
 除此之外，期待大约两周后的双更。**
+
+---
+
+### Chapter 28: Future
+
+**First chapter to come out today. I'll talk about a few things in the next one. Oh, and only one A/N warning. Look for bold lettering as usual.  
+今天发布的第一章。下一章我会谈及几件事。哦，还有一个 A/N 警告。一如既往地寻找粗体字。**
+
+---
+
+When was the last time this had happened? Days? Weeks? Months? Years? What was it truly afterall when it came down to it? What was the significance behind his own existence? Why did he exist? For himself? For her? For a possible future, the time which hadn't come yet?  
+上一次发生这种情况是什么时候？几天前？几周前？几个月前？几年前？当一切归结起来时，这究竟意味着什么？他存在的意义是什么？他为什么存在？为了自己？为了她？为了一个可能的未来，那个尚未到来的时刻？
+
+The sky above his head was blue, so blue that the ocean in which he floated in seemed to be a direct reflection of the sky. Not a single cloud loomed overhead, but the sun beat down on his face anyway. He shielded his eyes, trying to block out the glare, but the sun still somehow managed to pierce through his fingers.  
+他头顶的天空是如此湛蓝，以至于他漂浮其中的海洋仿佛是天空的直接映照。头顶上没有一片云彩，但阳光依旧无情地洒在他的脸上。他遮住眼睛，试图挡住刺眼的光芒，但阳光仍能透过他的指缝。
+
+Sitting up, be began wondering why he was even floating in the water in the first place, especially since he could just as easily walk on the water. Looking down at his own body, he saw that he was naked, but not a single drop of water clung to his skin. In the first place, where was this anyway?  
+坐起身来，他开始疑惑自己为何会漂浮在水中，尤其是他明明可以轻松地在水面上行走。低头看着自己的身体，他发现自己一丝不挂，但皮肤上却没有一滴水珠。话说回来，这里到底是哪里？
+
+He looked around, but as far as the eye could see, the only thing that surrounded him was the blue ocean, and the blue sky above his head. How had he ended up here? He couldn't remember anything before this in the first place, so he was unsure. Should he start walking? Is it possible he isn't the only person here? Maybe if he tried walking, he'd eventually find these answer?  
+他环顾四周，但放眼望去，除了环绕他的蓝色海洋和头顶的蓝天，别无他物。他是如何来到这里的？他连之前的事情都记不清了，所以感到不确定。他应该开始行走吗？这里可能不止他一个人吗？或许他试着走一走，最终能找到这些答案？
+
+He did just that, choosing a direction at random, and started walking. He felt nothing while he walked. The sensation of the water between his toes, the wind which was blowing against his face: it was like his five senses didn't exist. What was the point in even having his eyes open then?  
+他正是这样做的，随意选了个方向，便开始行走。行走间，他感受不到任何东西。脚趾间的水流，迎面吹来的风：仿佛他的五感都不复存在。那么，睁着眼睛又有什么意义呢？
+
+He tried closing them, but for some reason, he could still see in front of him, even though everything had been shrouded in darkness. Even if he couldn't see, couldn't feel, and couldn't hear, he was still moving forward to the future, whatever it entailed.  
+他尝试闭上眼睛，但不知为何，眼前的一切虽被黑暗笼罩，他却依然能看见。即便看不见、感觉不到、听不到，他仍在向未来前进，无论那未来包含着什么。
+
+He had no idea how long he continued walking for, only that the concept of time began alluding him. He didn't know where he had started, and where he had come from. His thoughts were blank, though his feet continued moving forward. The past didn't matter, and had already slipped away from his mind, already having been forgotten. What was laying ahead for him? Was there anything in the first place, or was he just being hopeful?  
+他不知道自己走了多久，只知道时间的概念开始变得模糊。他不记得起点在哪，也不记得来时的路。思绪空白，双脚却依旧前行。过去已无关紧要，早已从记忆中溜走，被遗忘。前方等待着他的是什么？是否真的有东西在等待，还是他只是在抱有希望？
+
+Why hopeful? What did he hope to gain if he continued moving? He didn't know who he was, or even where he was. Hope was a foreign concept to him. What did it mean for him to exist in this empty world? Was it meaningless, his attempts at moving forward? If this was it, then maybe he should just give up, and lie down until death greeted him?  
+为何怀抱希望？如果他继续前行，他希望得到什么？他不知道自己是谁，甚至不知道自己在哪里。希望对他来说是个陌生的概念。在这个空无一物的世界中存在对他意味着什么？他试图前进的努力是否毫无意义？如果这就是全部，那么也许他应该放弃，躺下直到死亡来临？
+
+He kept walking though, some force seeming to drive him forward.  
+然而，他继续走着，某种力量似乎在推动他前进。
+
+The sun never moved, the ocean never changed, and the sky never grew dark. Time was frozen in this plane of existence, except for the young teenager who walked along the waters surface. He was alone in this sea of nothingness. He was a unique individual, unlike anybody else who had ever existed in the world. He was alone.  
+太阳从未移动，海洋从未变化，天空也从未变暗。在这个存在的平面上，时间仿佛凝固了，除了沿着水面行走的年轻少年。他孤独地在这片虚无的海洋中。他是一个独特的个体，与世界上任何其他存在都不同。他是孤独的。
+
+No, not quite alone it seemed.  
+不，似乎并不完全孤单。
+
+In the distance, a figure arose beyond the horizon in which his eyesight could pierce. When he noticed this, his feet quickened, and he began speeding up, racing towards the figure in the distance. The person seemed to have noticed him as well, because they too sped up, running towards him. He had wait and hoped for another person within this world, and he had finally found one. The first emotion he'd ever felt began welling up inside him as he neared the figure.  
+在远方，地平线之外，一个身影逐渐显现，他的视线能够穿透那片天际。当他注意到这一点时，他的脚步加快了，开始加速向那个身影跑去。对方似乎也注意到了他，同样加快了速度，朝他跑来。他一直期待着在这个世界里找到另一个人，而现在他终于找到了。随着他逐渐接近那个身影，他第一次感受到的情感开始在内心涌动。
+
+But something was off. 但有些不对劲。
+
+His pace slowed down to a jog, and eventually to a walk, before arriving directly in front of the other person. He stared at the face so familiar to him, and then slowly raised up his own hand in front of the person. The person did the same, raising his own hand in a parallel motion with the teenager, matching his movements directly towards him, almost mirroring his actions. It wasn't similar to a mirror though, it was a mirror.  
+他的步伐从慢跑逐渐减缓，最终变为步行，直至直接站在另一个人面前。他凝视着那张如此熟悉的面孔，然后缓缓举起自己的手，置于对方眼前。对方也同样举起手，以平行的动作与他相呼应，两人的动作几乎如出一辙，宛如镜像。这并非相似，它就是一面镜子。
+
+The teenage boy was staring back into his own face. Every action he performed, his other self performed as well. He pressed his hand against his other selfs hand, staring at the same actions being taken by his other self. Were there two of him, and this was just some game that some supernatural force was playing with them? Was it possible this was just the end of the world? Or, was this simply a mirror of himself, reflecting everything both negative, and pleasant about him?  
+少年凝视着自己的脸庞，每一个动作，他的镜像都如影随形。他将手掌贴向镜中的手，注视着镜像重复着自己的每一个动作。难道有两个他，这只是某种超自然力量在玩弄他们的游戏吗？这是否预示着世界的终结？或者，这只是他自身的一个镜像，映照出他所有的负面与美好？
+
+What was true, and what wasn't? What was happening? What was the significance towards this? Did it have any meaning in the first place? Another emotion, something which he couldn't understand, or even grasp the concept of starting filling him. Raging anger, boiling from within him started surfacing. Why was this happening to him? He didn't deserve this! How was it that this whole world was so empty? Why was he the only person here!?  
+什么是真实的，什么又是虚幻的？正在发生什么？这一切又意味着什么？它从一开始就有意义吗？另一种情感，一种他无法理解甚至无法把握的概念开始充斥他的内心。狂怒在他体内沸腾，逐渐浮现。为什么这一切会发生在他身上？他不配得到这些！为什么整个世界如此空虚？为什么他是这里唯一的人！？
+
+Then, the reflection of himself in the mirror changed. The face remained the same, but the expression changed to something he couldn't recognize. A shadow sprang out from him, even though the sun's position hadn't moved. A thin sneer appeared on his lips, almost condescending. Finally, the eyes turned a deep blood red, and seemed to be sunken deeper into the skull.  
+随后，镜子中他自己的倒影发生了变化。面孔依旧，但表情变得陌生。一个影子从他身上跃出，尽管太阳的位置并未移动。他的唇边浮现出一抹几乎带有轻蔑意味的冷笑。最终，眼睛变成了深红色，似乎更深地陷入了眼窝。
+
+The teenage boy stared back at this strange change, and felt himself speaking the the first time since he had first conceived thought in this strange world.  
+少年盯着这奇怪的变化，感觉到自己第一次在这个陌生世界中产生了思考后，终于开口说话了。
+
+"Who are you?" "你是谁？"
+
+"I'm you." "我就是你。"
+
+"...No," the teenager said. "Everything about you is different compared to me. I'm not you."  
+"……不，“少年说，”你和我完全不同。我不是你。"
+
+There was a long silence from the other image of him, but finally they said-  
+另一边的影像中，他沉默了许久，但最终开口道——
+
+"No, I don't suppose you are me afterall. We are alike, yet altogether different. I am something that once was and you are something which is. Be that as it may, you have your own worries to deal with, and will have problems which I never faced."  
+“不，我想你终究不是我。我们相似，却又截然不同。我是曾经的存在，而你是现在的存在。尽管如此，你有你自己的烦恼要面对，也将遇到我从未面对过的问题。”
+
+"...What do you mean?" "...你是什么意思？"
+
+"I can't say, and it hasn't been revealed to me in the first place. You should continue to focus on the person you love though. If my decisions had been different, maybe things would have turned out differently than how they're playing out currently...but this may also be for the best."  
+“我说不上来，而且一开始也没人向我透露。不过，你应该继续专注于你所爱的人。如果我的决定有所不同，也许事情的发展会有所不同……但这也可能是最好的结果。”
+
+The teenager was dumbstruck, hardly understand what his other self was talking about. The one clear thing he understood, was that this other him understood things about himself which he didn't understand. This place, why he was here, what his name was: surely this other him knew all these things. He never got a chance to ask him though.  
+那少年目瞪口呆，几乎不明白另一个自己所言何意。他唯一清楚的是，这个与他如出一辙的人，对自己有着连他自己都不甚明了的了悟。这个地方，他为何在此，他的名字是什么：这些事情，另一个他必定全都知道。然而，他从未有机会向他发问。
+
+Pain indescribable suddenly assaulted his right left flank. Slowly, his eyes looked down at the spot between his ribs and hips. Imbedded between these two, was a large knife. Suddenly, the knife was wrenched out of his side, and a large quantity of blood began flowing out. The voice which he had used earlier couldn't even scream, since a hand was now closing over his mouth. Staring back to the reflection of himself, he saw that there was no longer anything there anymore.  
+一股难以言喻的剧痛突然袭击了他的右肋。渐渐地，他的目光落在了肋骨与髋骨之间的位置。一把大刀嵌在这两者之间。突然间，刀被猛地拔出，大量鲜血随之涌出。他先前还能发出的声音，此刻却因一只手捂住了他的嘴而无法尖叫。回望镜中的自己，他发现那里已空无一物。
+
+Hands began tugging at his body, pulling him down, and he sank into ocean beneath his feet. Underneath the water was crystal clear, with the sun still shinning brightly above him, and he was able to see his assailants. They were all faceless humanoid entities, but each one had a sharp weapon, or blunt instrument clasped in their hand. His body was still being tugged down deeper into the ocean, and he felt another emotion welling up inside him. He was fearful.  
+双手开始拉扯他的身体，将他拽入脚下的大海。水下清澈见底，阳光依旧灿烂地照耀着他，他能看见袭击者们。他们都是无面的人形实体，但每人手中都紧握着锋利的武器或钝器。他的身体仍在被拖向海洋深处，一种新的情绪在他内心涌动。他感到恐惧。
+
+He tossed and turned, contorting his body and trying to get away from the shapes that threatened him. They began assaulting him again though, bladed weapons tearing into his skin, ripping apart his flesh, while the blunt weapons cracked his bones. He wanted to scream, but he couldn't. His consciousness was slowly starting to fade. Without ever knowing who he was, what this place was, or what the many things his reflection had told...he was going to die here.  
+他辗转反侧，扭曲身体试图逃离那些威胁他的形状。然而，它们再次开始攻击他，利刃撕裂他的皮肤，撕开他的肉体，而钝器则击碎他的骨头。他想尖叫，却发不出声。他的意识渐渐开始消散。在不了解自己是谁，这个地方是什么，或是他的倒影告诉了他多少事情的情况下...他即将在这里死去。
+
+At that thought, something seemed to click inside of him. Death would be the ending of his existence. Whatever this world entailed, or whoever he was supposed to meet, if he died here, it wouldn't matter. He was afraid of the darkness that would come about after he died, but his fear of his assailants grew distant. He didn't care what it took, but he wanted to live. If he had to crawl across the ground and become something unlike any human before him, he would do so to survive. Whatever it took, or however many lives he destroyed along the way, he didn't care. He had to survive, not only for his own sake, but for her as well.  
+想到这里，他内心似乎有什么被触动了。死亡将是他存在的终结。无论这个世界包含什么，或者他应该遇见谁，如果他死在这里，一切都不重要了。他害怕死后降临的黑暗，但他对袭击者的恐惧逐渐淡去。他不在乎需要付出什么代价，但他渴望活下去。如果他必须在地上爬行，变成前所未有的非人存在，他也会这么做以求生存。无论付出什么代价，或者沿途毁灭多少生命，他都不在乎。他必须活下去，不仅是为了自己，也是为了她。
+
+Something exploded from within him, and the water was awash with the muted scream of these entities. He didn't think of them as humans, because they truly weren't. Scum of the earth, the lowest form of life possible, insects which he trampled over. Even so, blood spurted, bones crunched, limbs were torn asunder, and bodies were disemboweled. He felt it all, even though he didn't physical touch with any part of his body. But he didn't care. He would push through everything, and secure the future for which he longed for.  
+某种力量从他体内爆发，水中充斥着这些生物的沉闷尖叫。他不认为他们是人类，因为他们确实不是。地上的渣滓，可能的最低等生命形式，他践踏的昆虫。即便如此，血液喷涌，骨头碎裂，四肢被撕裂，身体被开膛破肚。他感受到了这一切，尽管他没有身体上的接触。但他不在乎。他会克服一切，确保他渴望的未来。
+
+Even insects can overwhelm the strongest of opponents however, and the teenager was slowly being worm down by the sheer numbers. Millions of them assaulted him, slashing at his body, while others tried to pull him down to the darkness. He was growing tired, and though he no longer felt their attacks, they were still affecting him. He would get close to the surface, and then they would redouble their attacks, and pull him back down. If he could only reach the surface and escape this darkness, he would be safe.  
+即便是昆虫，也能压垮最强大的对手，而这位少年正逐渐被其庞大的数量所消耗。数百万只昆虫向他发起攻击，撕咬他的身体，其他则试图将他拖入黑暗。他越来越疲惫，尽管不再感受到它们的攻击，但这些影响依然存在。他接近水面时，它们会加倍攻击，将他拉回深渊。只要他能到达水面，逃离这片黑暗，就能安全了。
+
+As he stared up to surface of the ocean, he saw a rush of bubbles, and a hand suddenly appearing under the surface. Fighting of his attackers, he gave one final push, swimming with all his might to the surface. The desperately attacked him, but he continued killing them, the ocean slowly changing from a bright blue, to a dark red. His mind didn't even register when he felt to long slashes at his thighs which ripped apart his muscles. He continued swimming towards his salvation.  
+当他凝视着海面时，看到一串气泡急速上升，紧接着一只手突然从水面下伸出。他奋力抵抗攻击者，用尽全力向水面游去。它们疯狂地攻击他，但他继续杀戮，海洋从明亮的蓝色渐渐变为深红色。当他感到大腿被两道长长的划痕撕裂肌肉时，他的意识甚至没有反应过来。他继续向着救赎游去。
+
+Giving one last lunge, he grasped the hand and felt reassurance in the warm palm. The hand softly squeezed his had, letting him know that everything was alright now, and pulled him up to the surface, freeing him from his chains, and guiding him to his future.  
+他最后一次猛冲，抓住了那只手，在温暖的掌心中感到了安慰。那只手轻轻地握了握他的手，让他知道现在一切都好了，然后将他拉上水面，解开了他的枷锁，引领他走向未来。
+
+---
+
+Shinji awoke with a start and sat up, his bare chest glistening with sweat, even though it was fall now. He was breathing heavily, and shivered controllably. He had been dreaming, but it was already starting to slip away. He honestly wasn't even sure if he could call it a dream; it felt like too oddly like one of his visions, though he hadn't had for a long time now, and had honestly thought that those things had passed. Running his hands through his hair, he didn't even notice Asuka sitting beside him with a worried expression on her face.  
+真嗣突然惊醒，坐了起来，尽管已是秋天，他赤裸的胸膛上仍布满了汗水。他呼吸急促，不由自主地颤抖着。他刚才在做梦，但梦境已经开始模糊。他甚至不确定自己能否称之为梦；感觉太奇怪了，更像是一个预知梦，虽然他已经很久没有做过这种梦了，而且真心以为那些事情已经过去了。他用手梳理着头发，甚至没有注意到明日香坐在他旁边，脸上带着担忧的表情。
+
+"You alright Shinji?" she finally spoke.  
+“你还好吗，真嗣？”她终于开口问道。
+
+Glancing beside him, he hadn't noticed that she was awake.  
+瞥了一眼身旁，他才发现她已经醒了。
+
+"Yeah, sorry. Bad dream."  
+“嗯，抱歉。做了个噩梦。”
+
+"I think it was more than just a bad dream. I tried shaking you multiple times, but you just kept tossing and turning and mumbling incoherent things. It wasn't one of your visions, was it?"  
+“我觉得不只是噩梦那么简单。我试着摇醒你好几次，但你一直在翻来覆去，嘴里还含糊不清地说着什么。这不是你的预知梦，对吧？”
+
+"No," said Shinji, shaking his head. "It wasn't a vision, but neither was it an ordinary dream either. I don't know what to make of it, but most of it has already started to slip away."  
+"不，" 真嗣摇着头说，"那不是幻觉，但也并非普通的梦。我不知道该如何理解它，但大部分内容已经开始逐渐淡忘了。"
+
+"Do you want to talk about it?"  
+"你想谈谈吗？"
+
+"No, I wan't to forget about it," sighed Shinji.  
+"不，我想忘记它，" 真嗣叹息道。"
+
+Asuka felt a small smile appear on her lips, and then said, "I think I can help with that."  
+明日香感到一丝微笑浮现在唇边，然后说道：“我想我能帮上忙。”
+
+Shinji hadn't noticed at first, but Asuka was wearing a loose white shirt and panties, but no bra. He felt a reaction from his waist, and soon, they were kissing while tangled in their blankets, Shinji's hands beginning to crawl along her body. They had become much more intimate with each other, and waking up to do these sort of things had become normal, even if the same thing occurred before they went to sleep.  
+真嗣起初并未察觉，但明日香穿着宽松的白衬衫和内裤，却没有戴胸罩。他感到腰部一阵反应，很快，他们就在毯子里缠绵亲吻，真嗣的手开始在她身上游走。他们变得比以前亲密多了，醒来后做这些事情已经成了常态，即使睡前也常常如此。
+
+With both their bodies glistening with sweat now, Shinji rolled off Asuka, and then stood up, leaving the bed. Entering the bathroom, he wiped himself down, and then changed into something more suitable when he felt Asuka wrap her arms around him, pressing her body against his. Even though had just relieved him, he quickly felt himself growing hard, owing to her bare breasts pressing against his back. She hadn't wiped herself off, so she was still slick with sweat, but she seemed to have something else on her mind.  
+两人身上都汗津津的，真嗣从明日香身上翻下来，然后站起身，离开了床。走进浴室，他擦干自己，换上更合适的衣服，这时明日香从背后抱住他，将身体紧贴着他。尽管刚刚才让他释放，但由于她赤裸的胸部紧贴着他的背部，他很快又感到自己硬了起来。她还没擦干自己，所以身上还是汗涔涔的，但她似乎在想着别的事情。
+
+"How do you feel now?" asked Asuka.  
+"现在感觉如何？" 明日香问道。
+
+Shinji couldn't help but smile as he looked at the mirror, both his and Asuka's faces displayed there, hers resting against his shoulder.  
+真嗣看着镜子，忍不住笑了，镜中映出他和明日香的脸，她的头靠在他的肩上。
+
+"A lot better," he answered truthfully.  
+"好多了，" 他如实回答。
+
+Asuka gave a slight smirk, knowing that he wasn't just talking about the dream he had woken up to. Kissing him quickly on the cheek, she started wiping herself down, and changing into her own clothes. Shinji couldn't help but have his eyes glance over to her while he brushed his teeth. No matter how many times he got to kiss her, or touch her breasts, he always wanted more.  
+明日香微微一笑，她知道他说的不仅仅是刚刚醒来的那个梦。她迅速在他脸颊上轻吻一下，然后开始擦拭身体，换上自己的衣服。真嗣刷牙时忍不住瞥向她。无论亲吻她多少次，或是触摸她的胸部，他总是渴望更多。
+
+While Asuka finished dressing, Shinji went downstairs and started making a simple breakfast. Shinji and Asuka could only assume that with the changing of the season to fall, that roughly two years had passed since they had both woken up in Tokyo-3. In reality, it was October now, but neither of them knew this. Still, two years, and they had vastly matured, and had grown intimate with one another.  
+当明日香换好衣服时，真嗣下楼开始准备简单的早餐。真嗣和明日香只能推测，随着季节转变为秋天，大约两年已经过去了，自从他们在东京-3 醒来。实际上，现在已经十月了，但他们并不知情。尽管如此，两年的时间，他们已经大大成熟，彼此之间也变得亲密无间。
+
+While Shinji prepared dinner, he felt himself looking back on these two years, and everything that had happened between them. Some of it he had forgotten, and some of it he would always remember, but a long time had passed since he had met Asuka, at least, this is how he felt.  
+真嗣准备晚餐时，他发现自己回想起这两年来的点点滴滴，以及他们之间发生的一切。有些事情他已经忘记，有些则会永远铭记，但自从遇见明日香以来，已经过去了很长时间，至少他是这么感觉的。
+
+While waiting for the water to boil, he leaned back in his chair, looking up the sky above his head. The sky was blue, and he was briefly reminded of his dream. It was still fuzzy, but bits and pieces he could still remember, though not all of it. It unnerved him somehow though. He couldn't explain it, but he felt like he should take caution to whatever it had meant.  
+在等待水烧开的时候，他靠在椅背上，抬头望着头顶的蓝天。天空是蓝色的，这让他短暂地想起了自己的梦。梦境依旧模糊，但有些片段他还能记得，尽管不是全部。不知为何，这让他有些不安。他说不清原因，但感觉自己应该对梦中的含义保持警惕。
+
+"Nearly done?" came Asuka's voice as she opened the sliding door.  
+“快好了吗？”明日香的声音从推拉门后传来。
+
+"I've been sorta taking my time," shrugged Shinji.  
+“我有点在慢慢来，”真嗣耸了耸肩。
+
+"Then I suppose you wont mind if I do this," said Asuka as she sat down on Shinji's lap. Almost immediately, Asuka felt something poking against her butt. Well, at least one part of him was honest.  
+"那么我想你不会介意我这么做，" 明日香说着坐在了真嗣的腿上。几乎立刻，明日香感觉到有什么东西顶着她的臀部。好吧，至少他的一部分是诚实的。
+
+"Asuka, with you sitting here, it only makes it even more difficult to prepare breakfast."  
+"明日香，你坐在这里，只会让准备早餐变得更困难。"
+
+"So that means you don't like it?"  
+"这么说你不喜欢？"
+
+"...No...quite the opposite really," mumbled Shinji rather inaudibly.  
+"...不...恰恰相反，真的。" 真嗣咕哝着，声音几乎听不见。
+
+Asuka chuckled lightly at that, but did leave his lap, sitting on the chair beside him. No matter how close they became, Asuka still enjoyed teasing him occasionally, though Shinji was much better about coping with it. Though, not to mention that Asuka had her fair share of teasing as well, and by now, Shinji knew all the spots along her body to make her squirm. She was much better at controlling her desires than she used to be however, and she was no longer attached to a bottle, though she did still drink sometimes. In fact, the one time when Asuka and Shinji both got a bit tipsy together, they had spent nearly two hours wrapped in each other arms, and had only gone to sleep after the alcohol began wearing off. They had both been careful to not drink so much that they blacked out, so they both remembered that night.  
+对此，明日香轻声笑了笑，但还是从他的腿上起身，坐到了他旁边的椅子上。尽管他们关系越来越亲密，明日香偶尔还是喜欢逗逗他，不过真嗣应对得已经好多了。不过，值得一提的是，明日香也有自己的一套逗弄方式，而如今，真嗣已经知道她身体上哪些地方能让她扭动。然而，她控制欲望的能力比以前强多了，也不再依赖酒瓶，尽管偶尔还是会喝点。事实上，有一次明日香和真嗣都喝得有点醉意，他们紧紧相拥了近两个小时，直到酒精开始消退才入睡。他们都很小心，没有喝到失去意识，所以都记得那个夜晚。
+
+They chatted amiably with each other while waiting for breakfast to be done, but Asuka thought that Shinji seemed a bit preoccupied, and he would lose track of the conversation they were having. Whatever his dream was, it looked like it was still bothering him.  
+他们一边等待早餐，一边愉快地聊着天，但明日香觉得真嗣似乎有些心不在焉，他会时不时跟不上他们的对话。看来，他的梦境还在困扰着他。
+
+"Hey Shinji?" asked Asuka suddenly, cutting him off from what he just been saying.  
+"嘿，真嗣？" 明日香突然问道，打断了他刚刚说的话。
+
+"What?" "什么？"
+
+"You sure you don't want to talk about that dream you had?"  
+"你确定不想谈谈你做的那个梦吗？"
+
+Shinji blinked once, before letting out a shrug, and then scratched the back of his head nervously.  
+真嗣眨了眨眼，然后耸了耸肩，接着紧张地挠了挠后脑勺。
+
+"I really can't hide anything from you, can I Asuka..."  
+"我真是瞒不过你啊，明日香..."
+
+"I've seen this same incident too many times to count now, so it's not surprising that I wouldn't recognize you're thinking deeply about something. Besides, if it's troubling you this much, then I think you should talk about it."  
+"这种事我已经见过无数次了，所以不难看出你在深思熟虑。而且，如果这件事让你如此困扰，我觉得你应该说出来。"
+
+Shinji looked back at her for several seconds, before glancing up to the blue sky above his head, eerily similar to the one from his dream, even though it was fall now.  
+真嗣回头看了她几秒钟，然后抬头望向头顶的蓝天，与梦境中的景象惊人地相似，尽管现在已是秋天。
+
+"You're right, as usual," Shinji finally said. "I don't know what to make of it is the problem though. I feel like there's something there which I need to understand, but I don't know what that is. Plus, I can only remember so much of it, which is like most dreams I suppose."  
+“你总是对的，”真嗣终于说道，“问题是我不知道该如何理解它。我感觉那里有我需要理解的东西，但我不知道那是什么。而且，我只能记得其中的一部分，我想大多数梦境都是这样吧。”
+
+With that said, Shinji started telling Asuka everything he could remember from the dream. The blue sky and blue ocean were the most distinct, and his own self which was walking into the distant horizon. He wasn't sure whether there was anything before this, but he felt like he had walked for a long while. Afterwards, things started to become fuzzy. He knew there was something important in the middle, and there was an outline of a face, but it wouldn't become clear. Then, he remembered sinking into the water, and hands trying to pull him down to the depths. Lastly, he remembered seeing in a hand submerged in the water from the surface, and how he desperately grabbed ahold of that hand, and then woke up.  
+说完这些，真嗣开始向明日香讲述他能记得的梦境内容。最清晰的是那片蓝天和碧海，以及走向遥远地平线的自己。他不确信之前是否还有其他内容，但感觉自己似乎走了很久。之后，事情开始变得模糊。他知道中间有些重要的东西，有一张脸的轮廓，但就是无法清晰起来。然后，他记得自己沉入了水中，有双手试图将他拖向深渊。最后，他记得看到一只手从水面上沉下去，他拼命抓住那只手，然后就醒了。”
+
+Asuka was silent after he had finished talking, thinking about what he said. She honestly wasn't sure what to make of it. It was to vague in the first place, but Asuka has to admit that she could see why Shinji was worried about it. There was something that felt ominous about it.  
+碇真嗣说完后，明日香沉默了，思考着他所说的话。她真的不确定该如何理解。一开始就太过模糊，但明日香不得不承认，她能理解为什么真嗣会为此担忧。这件事总感觉有些不祥。
+
+"Is that all you can remember about it?" Asked Asuka coming out of her thoughts.  
+“你就只记得这些吗？”明日香从思绪中回过神来问道。
+
+"Yeah," nodded Shinji. "I wish I knew what had happened in the middle. I have a vague understanding that I spoke to someone, or something, but I don't know what it was."  
+“嗯，”真嗣点头道，“我希望我能记得中间发生了什么。我隐约记得我和某人或某物交谈过，但我不知道那是什么。”
+
+The more he thought about it though, the more it reminded him about a vision he had had well over a year ago, his last vision, if his dream wasn't considered one. That one had been confusing as well, but they both shared similarities with the faceless entities. This time though, they were causing him harm. Were the two connected somehow?  
+然而，他越是深思，就越发觉得这与一年多前他曾有过的一次预见相似，那也是他的最后一次预见，如果他的梦境不算在内的话。那次预见同样令人困惑，但两者都与那些无面实体有着相似之处。不过这次，它们正在对他造成伤害。这两者之间是否存在某种联系呢？
+
+"Is it possible this is nothing but a bad dream you just had?" asked Asuka.  
+“这会不会只是你刚刚做的一个噩梦？”明日香问道。
+
+"Under normal circumstances, I might say yes, but I'm not normal either, so it's possible it was a vision. It isn't the first time this has happened, but this felt much more a like a dream."  
+“在正常情况下，我可能会说是，但我也不正常，所以这可能是预见。这不是第一次发生，但这次感觉更像是一个梦。”
+
+"What are you talking about?"  
+"你在说什么呢？"
+
+"I told you about it didn't I, about the dream I had after we moved into our old home in Tokyo-2?"  
+"我不是告诉过你吗，关于我们搬进东京-2 的老家后我做的那个梦？"
+
+"Did you? I guess I forgot."  
+"是吗？我大概忘了。"
+
+"Well, it was a dream, at least I think it was, but I talked with my self that can control an AT-field. I feel like like something similar happened with this dream, but I can't remember what it was."  
+"嗯，那至少是个梦，我想是的，但我与能控制 AT 力场的自己交谈了。我感觉这个梦似曾相识，但就是记不清具体是什么了。"
+
+"I guess I kinda remember you telling me about that, but it was also so long ago. What's your point though?"  
+"我好像有点记得你跟我说过这事，但那也是很久以前了。不过，你想表达什么呢？"
+
+Shinji didn't reply. He honestly wasn't even sure why this was bothering him so much. If he could only remember all the details, but dreams never worked like that.  
+真嗣没有回答。他其实也不确定为什么这件事让他如此困扰。如果能记起所有细节就好了，但梦境从来都不是那样运作的。
+
+"Are you still practicing?" asked Asuka.  
+"你还在练习吗？" 明日香问道。
+
+Shinji was surprised that she had brought this up. She obviously knew that he had been, but he had recently in the past few months stopped. He didn't know why, but he still couldn't control it exactly as he wished, and the ability to unconsciously use it without his right hand hadn't happened yet. However, the intimacy that he now had with Asuka was also something that had pushed everything else away. He still had to chop wood, but he found this as a chore, and after he was done, always came back home.  
+真嗣对她的提及感到惊讶。她显然知道他一直在练习，但最近几个月他已经停止了。他不知道为什么，但他仍然无法完全按照自己的意愿控制它，而且无意识地不用右手使用它的能力还没有发生。然而，他现在与明日香之间的亲密关系也是将其他一切都推开的原因。他仍然需要砍柴，但他觉得这是一项苦差事，而且砍完后总是回家。
+
+"No I'm not," said Shinji truthfully. "After I finish chopping wood, I always come back."  
+"不，我没有，" 真嗣诚实地回答。"砍完柴后，我总是回家。"
+
+Asuka watched him, worried that Shinji was thinking about this far too much. Slowly, she leaned close to him, and then rested her hand against his. Shinji looked over at her, recognizing the expression on her face as one of worry. The warmth from Asuka's hand slowly enveloped him,  
+明日香注视着他，担心真嗣对此事考虑得太过深入。她缓缓地向他靠近，然后将手轻轻搭在他的手上。真嗣转头看向她，认出她脸上的表情是担忧。明日香手心的温暖渐渐包围了他，
+
+reminding him that he wasn't alone in this. Grasping her hand tightly, he drew his face closer to her, placing his lips against hers.  
+让他想起在这件事上他并不孤单。他紧紧握住她的手，将脸贴近她，将唇贴在她的唇上。
+
+Shinji had intended it as a brief thing, but Asuka met his kiss in turn, returning it, and inserting her tongue into his mouth. They kissed like this deeply, until Asuka broke off suddenly and stood up. Her hand was still grasped in Shinji's, and she began steering him back inside the house, and then guided him to the couch, were the fell in each other's arms, continuing to kiss.  
+真嗣本打算只是短暂的一吻，但明日香回应了他的吻，回吻着他，并将舌头伸入他的口中。他们深情地这样吻着，直到明日香突然停下来，站起身。她的手仍被真嗣握着，她开始引导他回到屋内，然后带他到沙发旁，两人相拥倒下，继续亲吻。
+
+Shinji needed this right now, banishing the thoughts he had earlier into oblivion. He became enraptured with Asuka as he continued kissing her. His hands began exploring the body which he knew so well, but never got tired of. He began feeling something pressing against his jeans, and knew by the slight smirk on Asuka's lips that she knew this as well.  
+真嗣此刻正需要这个，将之前的思绪抛诸脑后。他继续亲吻着明日香，完全沉浸其中。他的双手开始探索那具他再熟悉不过的身体，却从未感到厌倦。他感觉到有什么东西抵在了他的牛仔裤上，从明日香嘴角微微的笑意中，他知道她也察觉到了。
+
+**(A/N: Follow page or two contains sexual content, but no actual intercourse. Summary at next bold lettering.)  
+(注：接下来几页包含性内容，但没有实际性行为。详情见下文粗体字部分。)**
+
+With her laying on top of him, she slowly sat up on his waist, and then removed her shirt, revealing the white bra underneath. As she went to undo the clasp at her back though, Shinji sat up and wrapped his arms around her back. Pushing her hands to the side, he himself undid the clasp, forcing the bra to fall from her chest, her breasts spilling out in front of him. Asuka was surprised at his sudden daring, but she had little time to think about this, as she let out a small moan when Shinji's hands enveloped her breasts.  
+她躺在他身上，缓缓地坐在他的腰间，然后脱掉了上衣，露出下面的白色胸罩。正当她准备解开背后的扣子时，真嗣坐了起来，双臂环抱住她的后背。他将她的手推到一旁，亲自解开了扣子，胸罩随之从她胸前滑落，双峰展现在他眼前。明日香对他的突然大胆感到惊讶，但还没来得及多想，真嗣的双手已覆上她的乳房，让她不禁轻声呻吟。
+
+As he had done many times before this, he began massaging them, pinching Asuka's erect nipples, and wrapping his lips around them. He knew all of Asuka's weak points, and where and when to prod them. Her body squirmed with pleasure, and he wondered whether she was near her climax. His own erection was pressing against his jeans so painfully, that he thought might rupture.  
+像往常一样，他开始按摩它们，捏住明日香的挺立乳头，并用嘴唇包裹住它们。他熟知明日香的所有弱点，知道何时何地该触碰。她的身体因快感而扭动，他不禁猜测她是否即将达到高潮。自己的勃起正痛苦地顶着牛仔裤，他甚至担心会因此破裂。
+
+Asuka had become more resilient to his attacks however after months of this, and she fought back. Pressing her hands against his chest, she pushed him onto his back, and Shinji was forced to relinquish his grip on Asuka's breasts. Asuka began grinding against his waist, and this time it was Shinji's turn to let out a small groan. She did something unexpected however, and started fumbling at the button fastening his jeans to his waist. This was way beyond Shinji's expectations, and he was about to voice his complainants, when Asuka unbuttoned his pants, and slid them halfway down his thigh. Predictably, his erection sprang up immediately, threatening to break free of his boxers.  
+然而，经过几个月的磨练，明日香对这种攻击变得更加坚韧，并开始反击。她用手按住他的胸膛，将他推倒，迫使真嗣松开了对明日香胸部的掌握。明日香开始在他的腰间磨蹭，这次轮到真嗣发出轻微的呻吟。但随后她做出了一个出乎意料的举动，开始摸索着解开他牛仔裤的扣子。这完全超出了真嗣的预期，正当他准备表达不满时，明日香解开了他的裤子，将其拉到一半，露出了他的大腿。不出所料，他的勃起立刻弹了出来，似乎要挣脱内裤的束缚。
+
+Asuka grew hesitant however. She was just going with the normal motions, and her own emotions, but she felt an odd sensation in her stomach as she stared at the object pressing against Shinji's boxers. She was exited, but she want sure what she wanted to do now. Had she gone to far with this? Should she just stop? Did she want to in the first place?  
+然而，明日香开始犹豫了。她只是按照平常的动作和自己的情绪行事，但当她盯着顶在真嗣内裤上的物体时，她感到一种奇怪的感觉在胃里翻腾。她兴奋，但又不太确定自己现在想做什么。她是不是做得太过火了？应该就此打住吗？她一开始就真的想这么做吗？
+
+"Asuka?" asked Shinji, wondering what she was thinking about it.  
+“明日香？”真嗣问道，想知道她在想什么。
+
+Asuka didn't look at him, but slowly started repositioning herself. Lifting herself up, she moved over Shinji's waist, and sank down, pressing her hips against his. Shinji's expression immediacy changed from confusion to bliss. Asuka didn't noticed though, focused on what she was doing. She started moving her hips back and forth against Shinji's waist. She had done this many times before, but that was when Shinji was wearing jeans. She could feel his thing pressing against the spot between her legs. She could almost feel it pulsating, and felt her underwear start to grow slicker.  
+明日香没有看他，而是慢慢地开始调整自己的位置。她抬起身子，跨过真嗣的腰，然后沉下身，将臀部紧贴着他的。真嗣的表情立刻从困惑变成了愉悦。但明日香没有注意到，她专注于自己的动作。她开始前后移动臀部，摩擦着真嗣的腰。她以前做过很多次，但那时真嗣穿着牛仔裤。她能感觉到他的那个东西顶在双腿之间的位置。她几乎能感觉到它在跳动，感觉到自己的内裤开始变得湿润。
+
+Asuka knew how dangerous this was, but felt she no longer cared. While she was feeling good, and she knew that Shinji was as well, she wanted more.  
+明日香知道这有多危险，但她觉得她已经不在乎了。当她感觉良好，并且知道真嗣也一样时，她想要更多。
+
+Asuka stopped suddenly, which displeased Shinji, since he had almost been there. She stood up however, and for a moment, Shinji thought that Asuka had reached her limit and was done. She began unbuttoning her pants however, and Shinji could help but stutter at that. In a few moments, Asuka was standing in front of him, bare breasted, in nothing but her white underwear. Shinji wasn't sure where he should look, and he couldn't help but feel a faint blush spread across his cheeks. Asuka herself was blushing, but she seemed firm in her decision. Once again, she climbed on Shinji's waist, and mounted him.  
+明日香突然停了下来，这让真嗣有些不悦，因为他差点就达到了。然而，她站了起来，有那么一刻，真嗣以为明日香已经到了极限，准备结束。但她开始解开裤子的扣子，真嗣不禁结巴起来。片刻之间，明日香站在他面前，赤裸上身，只穿着白色的内衣。真嗣不确定该往哪里看，他忍不住感到脸颊微微泛红。明日香自己也在脸红，但她似乎坚定了自己的决定。她再次爬上真嗣的腰间，跨坐在他身上。
+
+Everything prior to this had been incredible, but Shinji like this was they first time he felt real pleasure. Try as he might, he wasn't able to hold himself together, and as Asuka started moving her hips against his groin, any thought of denying her left his brain. His body started thrusting on its own, his hips pressing against her hips, and her privates pressing against his. The softness of her flesh was unbelievable as it pressed against him, and Shinji felt himself reaching the end.  
+在此之前的一切都令人难以置信，但像这样与真嗣在一起，是他第一次感受到真正的快乐。尽管他尽力克制，却无法保持镇定，当明日香开始用她的臀部摩擦他的胯部时，任何拒绝她的念头都从他的脑海中消失了。他的身体开始自发地挺动，臀部紧贴着她的臀部，她的私密处紧压着他的。她肉体的柔软程度令人难以置信，当它紧贴着他时，真嗣感到自己即将达到高潮。
+
+Asuka had difficulty keeping herself sane when Shinji started moving as well. Her whole body was nearly convulsing as her flesh wrapped around his. She had no idea this could feel so good, and this was only a taste of what it would truly feel like. Asuka wasn't sure whether her body could handle it. She had heard that the first time always hurt, but this was the complete opposite of that. If this was just what pressing each other's bodies together felt like, she wondered what the real thing would feel like.  
+当真嗣也开始动起来时，明日香几乎难以保持理智。她的整个身体几乎在抽搐，她的肉体紧紧包裹着他。她不知道这感觉能如此美妙，而这只是真正感觉的一丝滋味。明日香不确定自己的身体是否能承受得住。她听说过第一次总是会痛，但这完全相反。如果仅仅是身体相贴就能有这种感觉，她不禁好奇真正的事情会是什么感觉。
+
+Asuka was quickly sidetracked however, when Shinji sat up, wrapped his arms around her, and kissed her roughly, nearly smashing his lips against hers. Asuka wholeheartedly welcomed this kiss, and kissed him back ferociously, entwining her tongue with his. Both their bodies were sweating, and Asuka's underwear in particular was so wet that it was staining Shinji's boxers. The feel of his erection rubbing against her soft flesh was sending Asuka into a downward spiral of ecstasy and pleasure.  
+然而，当真嗣坐起身，双臂环抱住明日香，粗暴地吻她，几乎将嘴唇撞在一起时，明日香很快就被转移了注意力。她全心全意地接受了这一吻，并凶猛地回吻他，舌头与他紧紧缠绕。两人的身体都在出汗，尤其是明日香的内裤湿得厉害，沾湿了真嗣的平角裤。他的勃起摩擦着她柔软的肌肤，让明日香陷入了一阵狂喜和快感的漩涡。
+
+Both could feel everything welling up inside of them however, and Asuka felt herself reaching her climax. She held herself back though, not wanting this to end just yet. Shinji started attacking her breasts again though as they kissed, pinching her erect nipples, and Asuka arched her back suddenly, her body grinding against his, as her whole body jerked, reaching her climax. This was far too much for Shinji though, and before he knew what was happening, he too reach the end, his body giving one final thrust against Asuka's, before he collapsed on top of her.  
+然而，两人都能感觉到内心的涌动，明日香感到自己即将达到高潮。但她克制住了，不想就这样结束。然而，真嗣在接吻时又开始攻击她的乳房，捏住她挺立的乳头，明日香突然弓起背，身体紧贴着他摩擦，全身一震，达到了高潮。这对真嗣来说太过强烈，还没等他反应过来，他也到达了终点，身体最后一次顶撞明日香，然后瘫倒在她身上。
+
+**(A/N: Not much different in this than previous warning in chapter before this. Main change is they both strip down to there underwear, and grind against each other until they both climax.)  
+(A/N: 与上一章的警告相比，这一章并无太大差异。主要变化是他们俩都脱到只剩内衣，然后互相摩擦直到高潮。)**
+
+Both were panting heavily, their faces red, and their bodies slick with sweat, not to mention the state of both their underwear. Asuka felt like her whole head spinning; she had never felt like this before. Whatever she had ever possibly imagined was far beyond compare to what had just happened. She didn't want to move, and could still feel Shinji's thing pressing against her, but she also felt uncomfortable about how moist she was down there.  
+两人都喘着粗气，脸颊通红，浑身是汗，更不用说他们的内衣状态了。明日香感觉自己的头在旋转；她从未有过这样的感觉。无论她曾经想象过什么，都远不及刚刚发生的事情。她不想动，仍能感觉到真嗣的东西压着她，但她同时也感到下身湿漉漉的不舒服。
+
+"Hey Shinji?" she asked. “嘿，真嗣？”她问道。
+
+Shinji gave a low grunt, showing that he was listening to her, but in mood to communicate right now. He was laying on top of her, his head snuggled between her breasts, and didn't seem to want to move.  
+真嗣低声咕哝了一下，表明他在听她说话，但目前没有交流的兴致。他躺在她身上，头埋在她的双峰之间，似乎并不想动。
+
+"Is it all right if I get up?" Asuka asked.  
+“我可以起来吗？”明日香问道。
+
+"...I want to continue laying like this," he replied lazily.  
+“……我想继续这样躺着，”他懒洋洋地回答。
+
+Asuka felt a small smile appear on her hips, and then wrapped her arms around his head, holding him tenderly against her.  
+明日香感到一丝微笑浮现在她的唇边，随后她张开双臂环绕住他的头，温柔地拥他入怀。
+
+"Okay, if that's what you want."  
+“好吧，如果你想要那样。”
+
+But as Asuka continued laying there holding Shinji against her body, she heard him start breathing heavily, and realized that he had fallen asleep.  
+但当明日香继续躺在那里，紧紧抱着真嗣贴在自己身上时，她听到他的呼吸变得沉重，意识到他已经睡着了。
+
+"Really, sometimes he is just too carefree," mumbled Asuka with a loving smile. Well, at least this way he wasn't worrying about that dream anymore. Asuka could at least remain here with him while he slept peacefully.  
+“真的，有时候他真是太无忧无虑了。”明日香带着宠溺的微笑喃喃自语。好吧，至少这样一来，他不再为那个梦烦恼了。明日香至少可以留在这里，陪着他安然入睡。
+
+Kissing him once on his forehead, Asuka leaned back on the couch, staring at the ceiling, and began slowly reminiscing all the times they had shares together until now.  
+明日香在他的额头上轻轻一吻，然后靠回沙发上，凝视着天花板，开始慢慢回忆起他们至今共同度过的所有时光。
+
+---
+
+Shinji dreamed once again, but it wasn't something hurtful or unpleasant; he was making love to Asuka. As dreams were want to do however, his dream began change. The bed they were laying on disappeared, the feel of his body pressing against Asuka's disappeared, and the taste of her lips disappeared. What had happened moments ago, now disappeared from his memory, replaced by darkness all around him. The darkness began to melt away however, and was replaced by a grey sky. Buildings began springing up all around him, and he slowly began to recognize the landscape, even if he had only stayed in the city a short while before its destruction. It was Tokyo-3.  
+真嗣再次梦见了，但这次并不是什么痛苦或不愉快的事情；他在梦中与明日香缠绵。然而，正如梦境常有的那样，他的梦开始发生变化。他们躺着的床消失了，身体紧贴的感觉消失了，她唇间的味道也消失了。片刻前发生的一切，如今从他的记忆中消失，取而代之的是四周的黑暗。然而，黑暗开始消融，被一片灰暗的天空所取代。建筑物开始在他周围涌现，他渐渐开始认出这片景象，尽管他只在城市被毁前短暂停留过。这里是第三新东京市。
+
+As his initial confusion wore off, Shinji began walking around the city. It was exactly as he remembered it, with a few minor details which his mind conjured up on the fly. As time passed though, he realized that the entire city was devoid of other humans. What had once been a bustling city, the busiest in Japan, had now become a ghost town. Where was everybody? Where had they gone? Why did he feel so lonely?  
+随着最初的困惑逐渐消散，真嗣开始在城市中漫步。一切都如他记忆中的模样，只是脑海中迅速浮现出一些细微的变化。然而，随着时间的推移，他意识到整个城市空无一人。曾经是日本最繁忙的城市，如今却变成了一座鬼城。大家都去哪儿了？他们去了哪里？为什么他感到如此孤独？
+
+He ascended a hill, walking up the length of asphalt. When he reached the top, he saw a figure in the distance. He squinted his eyes, trying to distinguish the outline of the face. He thought he saw a smile appear briefly, but then the figure disappeared into a side alley. Shinji didn't know who this person was, or why they had smiled at him in such a friendly manner, but he decided to give chase.  
+他爬上一座小山，沿着沥青路面向上走。到达山顶时，他看到远处有一个人影。他眯起眼睛，试图辨认出那人的轮廓。他以为自己看到了一个短暂的微笑，但随后那个人影消失在一条侧巷中。真嗣不知道这个人是谁，也不知道他们为何会以如此友好的方式对他微笑，但他决定追上去。
+
+Racing down the alleyway where he had seen them disappear into, he saw the person standing at the other end waving at him. Shinji started to open his mouth to speak to them, but they disappeared from his sight again, hooking a right onto the street. Closing his mouth and forcing himself forward, he ran down the alleyway, and then turned right as they had.  
+他冲进那人消失的巷子，看到他们在巷子另一端向他挥手。真嗣正要开口说话，但他们再次从他视线中消失，向右拐进了街道。他闭上嘴，强迫自己向前跑去，穿过巷子，然后像他们一样向右转。
+
+As Shinji came around the corner though, he stopped in his tracks. He was back at the bottom of the hill, and the figure was standing above him in the same position they had initially been, the same smile on their face. Shinji couldn't help but grimace inwardly, feeling like this person was toying with him. Steeling himself, he jumped off the ground at a sprint, just as the person disappeared from his view once again.  
+然而，当真嗣转过拐角时，他猛地停下了脚步。他又回到了山脚下，那个身影依旧站在他上方，保持着最初的姿态，脸上挂着同样的微笑。真嗣不禁暗自皱眉，感觉这个人像是在戏弄他。他鼓起勇气，猛地从地上跃起，全速冲刺，但那人又一次从他的视线中消失了。
+
+Shinji had no idea how many iterations of this transpired, but he was caught in an endless loop. Even if he turned left at the end of the alleyway, he returned to the hill. If he turned around while facing the hill, he would simply be facing it again. If he tried running backwards through the alleyway, he was standing on top of the hill, and the figure would be at the bottom, waving at him. After so many times of this happening, Shinji gave up, and sat down in the middle of the road facing the hill.  
+真嗣不知道这种情况重复了多少次，但他陷入了无尽的循环。即使他在小巷尽头向左转，也会回到山脚下。如果他面对山丘转身，他会再次面对它。如果他试图倒退着穿过小巷，他会站在山顶上，而那个身影会在山脚下向他挥手。经历了这么多次之后，真嗣放弃了，坐在路中央，面对着山丘。
+
+Staring up at the hill, he watched the smile disappear from the persons face briefly, but then reappear with a slight smirk, disappearing into the alleyway. After many moments passed where it became apparent that Shinji wouldn't follow, the person reappeared. A frown was now plastered on their face, not pleased with Shinji's unwillingness to give chase. They sat down, hoping that he would find new resolve, but still, Shinji didn't move. If all they did was run away, then it was altogether pointless to give chase.  
+他抬头望着山坡，看到那人的笑容短暂消失，随即又带着一丝讥笑重新浮现，消失在巷子里。过了许久，显然真嗣没有追上来，那人又出现了。此刻他们的脸上满是皱眉，对真嗣不愿追赶感到不满。他们坐了下来，希望真嗣能重拾决心，但真嗣依旧一动不动。如果他们只是逃跑，那么追赶就毫无意义了。
+
+When Shinji was wishing this farce would just end however, the figure began walking down the hill towards him. Shinji didn't budge, thinking that if he made any sudden movements they'd run from him again. Slowly, the face of the person came into view, but Shinji could honestly say he had no idea who they were. But something inside of him, something he couldn't place, felt familiar to him. The person was human in form, but neither gender could Shinji attribute to them. They were an enigma to him.  
+当真嗣希望这场闹剧快点结束时，那身影却开始从山坡上向他走来。真嗣没有动，心想如果自己有任何突然的动作，他们又会逃离。渐渐地，那人的面容清晰起来，但真嗣实在认不出是谁。但内心深处，某种他无法言明的感觉，却让他觉得熟悉。那人形似人类，但真嗣无法判断其性别。对他来说，他们是个谜。
+
+The person, male or female, sat down beside him though, and let a high voice reminiscent of that of a female, so Shinji decide to refer to this person as 'her' instead of 'it.' However, he was still nervous about scaring her away, so he kept his mouth closed in the meantime.  
+那个人，无论男女，坐在了他旁边，用一种高亢的声音，让人联想到女性的嗓音，因此真嗣决定称这位为‘她’而非‘它’。然而，他仍担心会吓跑她，所以暂时保持沉默。
+
+"Ah, I haven't had that much fun in a while. You have no idea how boring things can get here."  
+“啊，我已经很久没有这么开心过了。你不知道这里有多无聊。”
+
+She seemed to be expecting him to say something to her, but still Shinji didn't speak. She frowned at him, and then said, "What, did you not enjoy that? You really know how to ruin the fun out of things...Shinji."  
+她似乎期待着他说些什么，但真嗣依旧沉默。她对他皱了皱眉，然后说道：“怎么，你不喜欢吗？你真是懂得如何破坏气氛……真嗣。”
+
+Shinji's eyes wavered to her at the sound of his own name. He had sorta been expecting this, but it didn't make any easier to swallow.  
+听到自己的名字，真嗣的目光不由得转向她。他多少预料到了这一刻，但并未因此感到轻松半分。
+
+"Go on. Talk to me. I won't bite. Ask me anything you want and I'll do my best to answer it."  
+“继续，跟我聊聊。我不会咬人的。你想问什么就问吧，我会尽力回答。”
+
+"...Okay, then who are you I suppose would be my first question?"  
+“……好吧，那我想我的第一个问题是，你是谁？”
+
+"Hmm, well unfortunately, I can't answer that, and you wouldn't believe me anyway. Next."  
+"嗯，很遗憾，我无法回答那个问题，而且无论如何你也不会相信我的。下一个。"
+
+"Then what is this place?"  
+"那么，这是什么地方？"
+
+"Only you would know that Shinji. What is this place to you?"  
+"只有你会知道，真嗣。这个地方对你来说意味着什么？"
+
+"Tokyo-3, or as I remember it from before Third Impact."  
+"东京-3，或者如我在第三次冲击前所记得的那样。"
+
+"Third Impact huh," she mumbled, seeming lost in her own thoughts.  
+"第三次冲击啊，"她喃喃自语，似乎陷入了自己的思绪中。"
+
+Shinji watched her for several seconds, wondering why this person felt so familiar to him, but her next question confused him.  
+真嗣注视了她几秒钟，想知道为什么这个人让他感觉如此熟悉，但她的下一个问题却让他困惑。
+
+"Shinji, do you ever think about what happened in the past, or what's happening in the present, or what may or may not happen in the future?"  
+"真嗣，你会不会思考过去发生了什么，现在正在发生什么，或者未来可能或不可能发生的事情？"
+
+Shinji wasn't sure how to reply to this. The past was the past, and while he may cherish things from the past, it has already passed, and so he moved on. The present was what he thought about the most, the here and now which affected him. The future was something he tried not to dwell on. Nobody could predict the future, not with one hundred percent accuracy at least. You could try and prepare for it, but fate had a way of sending you curve balls so that it was difficult to react to.  
+真嗣不确定该如何回答这个问题。过去已经过去，尽管他可能会珍视过去的某些事物，但它已经消逝，所以他继续前行。他最常思考的是现在，即此刻，这直接影响着他。至于未来，他尽量不去深究。没有人能百分百准确地预测未来。你可以尝试为之准备，但命运总有办法给你出其不意的打击，让你难以应对。
+
+"Well, I kinda see where you're coming from, but you should think about the future more," she said as though she has read Shinji's mind.  
+"嗯，我大概明白你的想法，但你还是应该多考虑一下未来，" 她仿佛读懂了真嗣的心思般说道。
+
+"But you can't predict it, so why bothering worrying about it?"  
+"但你无法预知未来，何必为此烦恼呢？"
+
+"It's not just you though that will be affected by the future, but her as well. What about Asuka?"  
+"不只是你会受未来影响，她也会。那明日香呢？"
+
+As she said this, Shinji remembered what had been happening before he had been thrust into this strange world. He had forgotten about her, and he felt ashamed because of this. Asuka was to him, as Eve was to Adam, an existence impossible to separate himself from.  
+当她说这话时，真嗣想起了被卷入这个奇异世界之前发生的事。他忘记了她，为此感到羞愧。对真嗣而言，明日香就像亚当的夏娃，是一个无法割舍的存在。
+
+"See, you have to think about the future that doesn't just affect yourself, but the whole picture. What sort of future do you want for yourself and Asuka? Do you believe you can continue living as you are. How long did it take for the food to run out in the first store? How far will you have to start driving when the next place is no longer possible. What if something happens to Asuka and you aren't there? You're right, the future isn't one hundred percent accurate, even for yourself, but you can certainly prepare for it."  
+"你看，你得考虑一个不仅影响你自己，还关乎全局的未来。你想要为自己和明日香创造什么样的未来？你认为你能继续像现在这样生活下去吗？第一次商店的食物耗尽花了多长时间？当下一个地方不再可行时，你得开多远的车？如果明日香出了什么事而你不在她身边怎么办？你说得对，未来并非百分百准确，即使是对你自己而言，但你绝对可以为此做好准备。"
+
+"I don't know what you mean by that though. What am I preparing for?"  
+"我不明白你说的准备是什么意思。我到底在准备什么？"
+
+She looked at him rather sadly at first as though she pitied him, but then said, "I think you may in a far back corner of your mind already know Shinji, even if you try to reject it. But I've already said far too much on the subject. So I think it's about time you woke up."  
+她起初悲伤地看着他，仿佛在怜悯他，然后说道：“我想你内心深处可能已经知道了，真嗣，即使你试图否认。但我已经在这个话题上说得太多。所以我想是时候你该醒醒了。”
+
+Shinji did just that, and felt the dream beginning to dissolve around him, even though he was the first to disappear as he woke up. The woman, if that's truly what she was, continued sitting in the middle of the road as the buildings began to vanish around her. There was only so much she could do for them before things were forced to work as they would. Time would be a very precious thing for them as they would eventually realize.  
+碇真嗣确实这么做了，感觉到梦境开始在他周围消散，尽管他是第一个在醒来时消失的。那个女人，如果她真的是个女人的话，继续坐在路中央，周围的建筑开始消失。在他们被迫接受事物本来的运作方式之前，她能做的只有这么多。对他们来说，时间将是一种非常宝贵的东西，他们最终会意识到这一点。
+
+As the world continued disappearing around her, she too disappeared, vanishing into the deep confines of Shinji's conscience.  
+随着世界在她周围继续消失，她也消失了，消失在碇真嗣意识的深处。
+
+---
+
+When Shinji woke up, he at first thought he was still dreaming. The darkness around him was so deep that it took his eyes a moment to adjust, but this was normal for somehow just waking up as well in pitch blackness.  
+当碇真嗣醒来时，他起初以为自己还在做梦。周围的黑暗如此深沉，以至于他的眼睛需要片刻来适应，但对于刚刚在漆黑中醒来的人来说，这也是正常的。
+
+He was still laying on the couch, but his head was resting on a pillow. Sitting up he glanced around the living room, before spotting a shirt, jeans, and underwear that had been left there for him. He then remembered what had transpired between himself and Asuka, wondering how he could have slept until it was dark out. Stripping himself down, he changed into the fresh clothes right there in the living room, and then went in search of Asuka. One quick glance around the kitchen showed that she wasn't there, or outside, so he assumed that she was upstairs.  
+他依旧躺在沙发上，头枕着一个枕头。坐起身来，他环顾了一下客厅，随即发现了一套为他准备的衬衫、牛仔裤和内裤。这时，他记起了与明日香之间发生的事情，疑惑自己怎会一觉睡到天黑。他脱下身上的衣物，就在客厅里换上了干净的衣服，然后开始寻找明日香。匆匆扫视厨房一圈，发现她不在那里，也不在户外，于是他推测她应该在楼上。
+
+He found her as he expected, laying in bed, and reading by candlelight. When Asuka saw him she put down the book, smirking slightly at him.  
+正如他所料，他找到了她，她正躺在床上，借着烛光阅读。明日香看到他时，放下书本，微微对他露出了一丝笑意。
+
+"Sleep long enough? Did you recuperate?"  
+“睡够了？恢复得怎么样？”
+
+Shinji felt himself blush lightly at that remark, knowing what she meant.  
+听到那句话，真嗣感觉自己的脸微微泛红，他明白她的意思。
+
+"What have you been doing this whole time?"  
+“这段时间你都在做什么？”
+
+"Not much. Lazing around the house, reading, cooked dinner for myself, though there is still some left if you want it cold. Oh, and keeping an eye on you."  
+“没做什么。在家闲晃，看看书，给自己做了晚饭，不过还剩一些，如果你想吃冷的话。哦，还有，一直在关注你。”
+
+"Keeping an eye on me?" asked Shinji, puzzled.  
+“在监视我吗？”真嗣疑惑地问道。
+
+"You had another dream, didn't you?"  
+“你又做梦了，对吧？”
+
+Shinji didn't say anything; Asuka could just read him to well. Not having any reason to not tell her though, Shinji began speaking. This dream was much clearer than the one he has woken up to, so he was able to tell Asuka in great detail about it, though he left out the early part of his dream. Asuka even laughed lightly when he talked about chasing this strange person, but she grew quite as he reached the end. When he finished, she was frowning slightly.  
+真嗣没有说话；明日香对他了解得太透彻了。不过，既然没有理由不告诉她，真嗣便开始讲述。这个梦比他醒来时的那个清晰得多，所以他能够详细地向明日香描述，尽管他省略了梦的前半部分。当他说到追逐那个奇怪的人时，明日香甚至轻声笑了起来，但当他讲到结尾时，她变得沉默了。当他讲完后，她微微皱起了眉头。
+
+"And you put stock in this?" asked Asuka.  
+"你就这么相信这个？" 明日香问道。
+
+"I don't know, it's something to think about. Besides Asuka, what should our future be? We haven't talked about it since we've been here, and two years have passed since we woke up in Tokyo-3. Can we realistically continue living here in the first place?"  
+"我不确定，但这是个值得思考的问题。再说明日香，我们的未来应该是什么样的？自从我们来到这里，就再也没有讨论过这个问题，而我们醒来已经两年了。我们真的能继续在这里生活下去吗？"
+
+"This is our home, we can't just leave."  
+"这里是我们的家，我们不能就这样离开。"
+
+"The house in Tokyo-2 was our home as well, but we left there."  
+"东京-2 的那栋房子也是我们的家，但我们离开了那里。"
+
+"That was different, and we've been here for more than just two months Can you really just pick up everything and move our lives once again, or ever few years?"  
+"那不一样，我们在这里已经不止两个月了。你真的能再次收拾一切，再次搬动我们的生活，或者每隔几年就这样吗？"
+
+"No, I don't think I could," said Shinji truthfully.  
+""不，我想我做不到，"" 真嗣诚实地回答。
+
+"Then why bother bringing it up?"  
+"那为什么还要提起呢？"
+
+Shinji didn't say anything. In reality, he wasn't talking about moving to another house, but something else which could drastically change their lives. They were in this together, and Shinji wasn't going to let anything happen to Asuka, who he loved.  
+真嗣没有说话。实际上，他说的不是搬到另一个房子，而是其他可能彻底改变他们生活的事情。他们是一起的，真嗣不会让任何事情发生在他们所爱的明日香身上。
+
+"Now if you're done with the dumb questions, I'm going to bed. I stayed up waiting for you, but am now tired."  
+"既然你无聊的问题问完了，我要去睡觉了。我熬夜等你，但现在累了。"
+
+Shinji didn't think Asuka was mad at him, but annoyed instead. Shinji watched her adjust herself, and then lay down on the pillow. Shinji wasn't tired yet, so he left the room, wondering what he actually wanted with Asuka.  
+真嗣不认为明日香在生他的气，只是有些烦躁。他看着她调整姿势，然后躺在了枕头上。真嗣还不困，于是他离开了房间，心里琢磨着自己到底对明日香有什么想法。
+
+Asuka didn't immediately go to sleep though, and lay for a while with her face pressed against the pillow. The future: it was something that she tried not to think about. She had no misconception that her and Shinji would ever grow apart, but their were certain things that troubled her, entirely different from Shinji's own worries. She wanted to stay here with him though, and did not want to move. She has grown too accustomed with this place to want to leave it. Not to mention, her feelings for Shinji had been made whole while living in this house, even if she didn't voice them.  
+然而，明日香并没有立刻入睡，而是脸贴着枕头躺了一会儿。未来：这是她尽量不去想的事情。她并不认为她和真嗣会渐行渐远，但有些事情困扰着她，与真嗣的担忧完全不同。尽管如此，她想留在这里和他在一起，不想搬走。她已经习惯了这个地方，不想离开。更不用说，住在这所房子里，她对真嗣的感情变得更加完整，即使她没有说出口。
+
+'What do I want?' wondered Asuka. In a far corner of her heart, she thought she knew the answer, but things were too soon.  
+“我想要什么？”明日香心想。在她内心深处的一个角落，她觉得自己知道答案，但一切还为时过早。
+
+Rolling onto her back, she did her best to fall asleep, while not trying to think about the possible futures which awaited them.  
+她翻身仰躺，尽力让自己入睡，同时不去想那些可能等待着他们的未来。
+
+---
+
+Shinji didn't know how it had happened or what drove him to make such a decision in the first place, but he was weaving between the stumps of trees as he drove towards the latest group of trees he had started felling. Why he had decided to practice in the dead of night without any sort of light source, even a flashlight, he didn't know. The more he thought about the future though, the more he began to dwell on the possibilities. In particular, the vision he had just after they moved into their house. Some things he had seen had already happened, while other may not, or ever would. But, the words he had been told about preparation came back to him.  
+真嗣不知道这一切是如何发生的，也不知道最初是什么驱使他做出这样的决定，但他正穿梭在树桩之间，驾车前往他最近开始砍伐的一片树木。他不知道为什么会选择在深夜练习，没有任何光源，甚至连手电筒也不用。然而，他越是思考未来，就越开始沉思各种可能性。特别是他们搬进新家后不久他做的一个梦。有些事情已经发生了，而其他的可能不会发生，或者永远不会。但是，关于准备的那番话又浮现在他的脑海中。
+
+Stepping out of truck, he looked up into the clearing he had made. The moon was thankfully shining down right now, but this bright light may not last long. He had never done this while it was dark out, so he was feeling slightly apprehension.  
+他走出卡车，抬头望向自己开辟的空地。幸好月亮此刻正照耀着，但这明亮的月光可能不会持续太久。他从未在黑暗中做过这件事，所以感到一丝不安。
+
+'Well, may as well get started,' thought Shinji, and moments later, he projected his AT-field with a swing of his hand. It felt somehow refreshing to be doing this again, though he couldn't explain why.  
+'好吧，还是开始吧，' 真嗣心想，随即挥手展开了他的 AT 力场。再次做这件事感觉有些神清气爽，尽管他说不出为什么。
+
+He began pushing himself further as he fell back into the familiar motions. It was a simple thing now for him to move through the air as he controlled his AT-field, using it as a springboard. He even stared enjoying the feel of the cool air rushing against his face as he traveled through the air, his body silhouetted in the night sky thanks to the moons light. He was really just becoming familiar with this again, and knew that nothing substantial would come out of tonight, but it was a start. However long it would take him, he would become as proficient with his AT-field as he possibly could.  
+他开始更加努力地推动自己，重新适应那些熟悉的动作。现在对他来说，利用 AT 力场作为跳板在空中移动已经变得轻而易举。他甚至开始享受起穿越空中时迎面而来的凉爽空气，月光下他的身影在夜空中显得格外清晰。他正在重新熟悉这一切，知道今晚不会有什么实质性的成果，但这是一个开始。无论需要多长时间，他都会尽可能熟练地掌握自己的 AT 力场。
+
+Taking a brief break, he leaned against his trucks tailgate, a bottle of water beside him that had been left inside the cab. He felt far better now that he was actually doing something, but there was the problem with Asuka. He didn't want to worry her about his own thoughts on the future, or what could happen, but there was still the matter of where they stood. They had come close multiple times to participating in the act, but there were still things that hadn't been said. Before that could happen, Shinji wanted any problems cleared up between them, even if they both knew how the other felt. Still, Shinji wanted to hear those three words from Asuka own lips, no matter how long it would take her to utter them.  
+他短暂地休息了一下，靠在自己的卡车后挡板上，旁边放着一瓶留在驾驶室里的水。现在他真的在做些什么，感觉好多了，但关于明日香的问题依然存在。他不想让她担心自己对未来的想法或可能发生的事情，但他们之间的关系仍未明确。他们多次接近于发生关系，但有些话还未说出口。在这一切发生之前，真嗣希望他们之间的问题能得到解决，即使他们都知道对方的感受。尽管如此，真嗣还是想从明日香口中听到那三个字，无论她需要多长时间才能说出来。
+
+Shinji continued practicing through a large part of the night since he had ended up dreaming most of the day away, and it was well after midnight when he finally made his way back to the house. He hoped that he hadn't woken Asuka up when drove into the driveway, but when he softly tiptoed his way down the hallway and into the bedroom, he was glad to see that she was still sleeping.  
+真嗣一直练习到深夜，因为他白天大部分时间都在睡觉，当他终于回到房子时已经是深夜了。他希望开车进车道时没有吵醒明日香，但当他轻轻地踮着脚走过走廊进入卧室时，他很高兴看到她还在睡觉。
+
+Slowly stripping off his own clothes, he gently untucked the blankets from his side of the bed, and slid under the covers. Resting his head down on the pillow, he let out a relieved sigh, prepared to fall asleep.  
+他缓缓地脱下自己的衣服，轻轻地从床的自己这边解开毯子，滑进被窝。将头靠在枕头上，他发出一声释然的叹息，准备入睡。
+
+"I was wondering how long you'd be gone for."  
+“我在想你还要多久才回来。”
+
+Shinji's body jerked in surprise, not thinking that Asuka had been awake. He had certainly heard her low breathing, but he had assumed that she was asleep. Turning towards her, he saw that Asuka was leaning on her side, and looking back at him, a slight frown on her face.  
+真嗣的身体因惊讶而一震，没想到明日香还醒着。他确实听到了她低沉的呼吸声，但他以为她已经睡着了。转头看向她，只见明日香侧身躺着，回望着他，脸上带着一丝不悦。
+
+"...You haven't been awake this entire time have you?" Shinji asked after gathering himself.  
+"...你一直都没醒着，对吧？" 真嗣在整理好自己后问道。
+
+"No. I've been waking up automatically every few hours though, and always checked to see if you were here. I think not having you beside me made it more difficult to sleep."  
+"没有。不过我每隔几个小时就会自动醒来，每次都会检查你是否在这里。我想没有你在身边，更难入睡了。"
+
+This was an incredibly honest thing for Asuka to say, something which she wouldn't have been able to say in the past, but it was the truth.  
+这对明日香来说是非常坦诚的话，放在过去她是说不出口的，但这是事实。
+
+"Sorry, if I would have known that, I would have been back sooner."  
+"对不起，如果我早知道，我会早点回来的。"
+
+"No, I don't mind. I'm sure you have you're own things to think about," shrugged Asuka. "I assume that you were practicing?"  
+"不，我不介意。我相信你也有自己的事情要考虑，" 明日香耸耸肩说。"我猜你是在练习吧？"
+
+"Yeah," said Shinji. "Whether it's important or not, I feel I should continue."  
+"嗯，" 真嗣说。"不管重不重要，我觉得我应该继续下去。"
+
+"Shinji, is there something you aren't telling me?" asked Asuka suddenly.  
+"真嗣，你是不是有什么事瞒着我？" 明日香突然问道。
+
+Was there? Shinji didn't know. He had no proof for what he thought may happen, only a strange gut feeling, but that was all he was going off right now. If this was it though, then he felt no reason in alarming Asuka. It was something that he felt he could only deal with in the first place, and didn't want to worry her.  
+真的有吗？真嗣自己也不确定。他没有任何证据证明自己预感的事情会发生，只有一种莫名的直觉，但目前他只能依靠这个。如果这就是全部，那么他觉得没有必要让明日香担心。这是他认为自己首先能处理的事情，不想让她担心。
+
+"No, everything is fine," stated Shinji.  
+"没有，一切都很好，" 真嗣回答道。
+
+Asuka didn't look like she bought this, but she let it slide for now. Moving close to him, she rested her head against his chest and wrapped her arms around him.  
+明日香看起来并不完全相信，但她暂时放过了这个话题。她靠近他，将头靠在他的胸前，双臂环绕着他。
+
+"Hey...how tired are you right now?" asked Asuka slowly.  
+“嘿……你现在有多累？”明日香缓缓问道。
+
+"Talking to you has woken me up a bit. Though why?"  
+“和你聊天让我清醒了一些。不过为什么问这个？”
+
+"No reason really," said Asuka with a smile, as she leaned towards his face, pressing her lips against his. While not expecting this, Shinji kissed her back slowly, his lips melting against hers. While he didn't feel he could go for a whole round of intimacy, just kissing her like this was fine, and Asuka didn't seem to want any more than this. It wasn't even a deep kiss, but something tender shared between them while laying beside each other.  
+"没什么特别的理由，" 明日香微笑着说，她倾身靠近他的脸，双唇轻触他的。虽然出乎意料，真嗣还是慢慢地回吻了她，两人的唇瓣渐渐融合。虽然他觉得无法进行更深层次的亲密，就这样吻着她已经足够，而明日香似乎也并不想要更多。这甚至不是一个深吻，而是躺在彼此身旁时分享的一份温柔。
+
+"I feel better now," said Asuka after several moments passed.  
+"我现在感觉好多了，" 明日香在片刻之后说道。
+
+Shinji didn't say anything, but slowly placed his arms around Asuka's shoulder, drawing her close to him. He felt elated for some reason, but also felt sleep slowly coming to call him away.  
+真嗣没有说话，只是慢慢地将手臂环绕在明日香的肩上，将她拉近自己。他不知为何感到欣喜，但同时也感觉到睡意渐渐袭来。
+
+"Hey Shinji, we should do something tomorrow to celebrate the fact that we've been together for two years now," said Asuka still trying to make conversation  
+"嘿，真嗣，明天我们应该做点什么来庆祝我们在一起已经两年了，" 明日香还在努力找话题
+
+"Hmm, I'll leave it up to you then," said Shinji as he closed his eyes.  
+"嗯，那就交给你决定吧，" 真嗣说着闭上了眼睛。
+
+"What, we're in this together. You need to help out as well."  
+"什么，我们是一起的。你也需要帮忙出主意。"
+
+But she didn't get a reply from him; Shinji had already fallen asleep reminding Asuka of the earlier incident. She hoped that he wouldn't be dreaming again, since she had had enough of that nonsense already.  
+但她没有收到他的回复；真嗣已经睡着了，这让明日香想起了之前的事件。她希望他不会再做梦了，因为她已经受够了那些胡言乱语。
+
+"...lo...ve..." "...爱..."
+
+Asuka's head whipped up to stare at Shinji's face, seeing his mouth open ever so slightly. She thought she heard him say something rather unbelievable, but she must have been mistaken.  
+明日香猛地抬头盯着真嗣的脸，看到他的嘴微微张开。她以为自己听到了一些难以置信的话，但她一定是听错了。
+
+'If you say something like that just as you fall asleep, how do you think it's gonna make me feel,' thought Asuka. She was surprised that her heart was beating faster just hearing that word, but it wasn't like Shinji was specifically saying it to her. He may have just been thinking about food that he loved, or a book, or-  
+'如果你在刚睡着时说那样的话，你觉得我会怎么想，'明日香心想。她惊讶地发现，仅仅听到那个词，她的心跳就加速了，但这并不意味着真嗣是特意对她说的。他可能只是在想他喜欢的食物，或者一本书，或者——
+
+Asuka shook her head quickly. If she started dwelling on this, she would never get to sleep.  
+明日香迅速摇了摇头。如果她开始深究这个，她永远也睡不着了。
+
+Breaking away from Shinji, she moved to her own side of the bed, and tried to ignore his light breathing, or the mumbled word that she had heard. Try as she might, she wasn't able to ignore this however, and spent most of the remaining hours until sunrise dwelling on this word, as well as what she wanted for the future.  
+她挣脱真嗣的怀抱，移到床的另一侧，试图忽略他轻柔的呼吸声，或是她听到的那个含糊的词。尽管她尽力了，却无法忽视这一点，于是在日出前的剩余时间里，她大部分时间都在思考这个词，以及她对未来的期望。
+
+---
+
+### 
