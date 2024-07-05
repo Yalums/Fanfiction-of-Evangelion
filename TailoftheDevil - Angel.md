@@ -3216,3 +3216,1166 @@ Review if you enjoyed it or found my fictional ramblings confusing as hell! xD
 如果你喜欢它或觉得我的虚构胡言乱语令人困惑至极，请留下评论！xD_
 
 ---
+### Chapter 12: Shadows
+
+School was a relatively normal affair. Or at least, it would have been, had Shinji not been constantly glancing over his shoulder, mumbling something like _'He's still standing there...'_ over and over again. Asuka stared at the boy's back in front of her, wondering if he had finally snapped. He had screamed most of their neighborhood awake earlier, not to mention the unexplained 'nightmare' he'd had and the way he had...  
+学校生活相对正常。或者说，如果没有真嗣不停地回头张望，嘴里还喃喃自语着‘他还在那里站着……’之类的话，本该是正常的。明日香盯着坐在她前面的男孩的背影，怀疑他是不是终于崩溃了。他之前尖叫声把整个街区的人都吵醒了，更别提他那莫名其妙的‘噩梦’和他那副样子……
+
+Asuka blushed furiously as she remembered how tightly Shinji had been holding her earlier. She would have preferred a slightly more romantic situation, but her curiosity was starting to get the better of her. Why had he been crying? Why had he been acting like she had been killed or something?  
+明日香想起真嗣之前紧紧抱着她的情景，脸颊顿时涨得通红。她本希望是个稍微浪漫点的场景，但她的好奇心开始占了上风。他为什么在哭？为什么表现得好像她已经死了似的？
+
+By the window, Rei Ayanami was having similar thoughts, albeit with some jealousy of not having received a hug herself. Spinning her lead pencil in her hand, her crimson eyes glared at Shinji's back.  
+窗边的绫波零也在思考类似的事情，尽管她心中有些嫉妒自己没有得到一个拥抱。她手中旋转着铅笔，赤红的眼眸盯着真嗣的背影。
+
+There! He did it again. Looking over his shoulder, not at her, but at something in the back of the class, his eyes quivering as they found what they were looking for. Those same eyes quickly darted towards her, meeting her own, before quickly turning back to his desk, back hunched, sweating profusely.  
+看！他又来了。他回头望去，不是看她，而是盯着教室后排的某个东西，眼神颤抖着找到了目标。那双眼睛迅速转向她，与她的目光相遇，然后迅速转回桌面，弯腰驼背，满头大汗。
+
+What on Earth had Shinji Ikari so spooked?  
+究竟是什么让碇真嗣如此惊慌？
+
+Not being able to bear it any longer, both Rei and Asuka had frogmarched Shinji to the roof as soon as the lunch break bell had tolled, with Mana, Toji, Kensuke and Hikari following suit.  
+再也无法忍受下去，午餐铃声一响，丽和明日香就强行把真嗣押到了屋顶，而真希、渡志、健介和光也紧随其后。
+
+"Shin-man, you feeling okay?" Toji, ever-so-delicate in these situations, opened the interrogation as directly as possible. But to no avail.  
+“真君，你感觉还好吗？”在这种场合总是格外细腻的渡志，尽可能直接地开始了询问。但毫无效果。
+
+""I'm fine, I'm okay, **_I'm not crazy._**"  
+“我没事，我很好，我没疯。”
+
+"Shinji, no one's calling you crazy. Yet." Asuka was really beginning to consider calling the mad scientists Shinji had for parents, but felt it was best to wait just a little longer before calling in Shinji's funny farm family. The feeling was replaced with the idea that she should call in the big guns with all haste when she caught him looking at what must have been a strange looking patch of oxygen floating over her shoulder.  
+"真嗣，没人说你疯了。至少现在还没有。" 明日香真的开始考虑给真嗣那对疯狂科学家父母打电话了，但她觉得最好还是再等一会儿再叫真嗣那帮古怪的家人来。当她看到他盯着她肩膀上方某个奇怪的漂浮氧气团时，这种感觉被一种迫切需要立即动用一切手段的想法所取代。
+
+"Shinji, what in god's name are you looking at?" She groaned as she physically turned around to see what it was. But all she could see was the remainder of the roof, overlooking the school sport's field.  
+"真嗣，你到底在看什么？" 她呻吟着，转身去看那是什么。但她只能看到剩下的屋顶，俯瞰着学校的运动场。
+
+_"Wait a minute..."_ She squinted. Something was... bending light? Or at least, that was the only way she could accurately describe it. Something was weird with the air in the direction Shinji was looking at. Was she going crazy too?  
+"等等……" 她眯起眼睛。有什么东西在……弯曲光线？或者至少，这是她能准确描述的唯一方式。真嗣所看的方向，空气有些奇怪。难道她也要疯了吗？
+
+She was suddenly distracted by Rei standing up violently behind her. Her bracelet arm was outreached and pointing to the same patch of weirdness Asuka had been looking at.  
+她突然被身后的丽猛地站起来的动作分了心。她的手镯手臂伸展开来，指向了与明日香所注视的同一片诡异区域。
+
+_**"WHO ARE YOU?! SHOW YOURSELF!"**_ Everyone in the surrounding area jumped at Rei's sudden outburst. Hikari, who hadn't yet noticed the oddity in the air around them, giggled slightly.  
+"你是谁？！现身吧！"周围的人都因丽的突然大喊而吓了一跳。尚未注意到周围空气中异样的光，轻声笑了起来。
+
+"Rei, not you too. There's nobody the-..." Hikari's voice caught in her throat as she turned to face what everyone else was suddenly looking at.  
+"丽，连你也这样。那里没有人——..."光的声音卡在了喉咙里，当她转身面对其他人突然注视的东西时。
+
+And saw _Ghost_ Shinji, looking as maniacal as ever, grinning to the crowd of astounded teenagers. Save regular Shinji, who looked ready to climb over the roof's fencing and launch himself into oblivion.  
+只见鬼面真嗣一如既往地狂态毕露，对着一群目瞪口呆的青少年咧嘴而笑。除了普通版的真嗣，他看起来已经准备好翻越屋顶的围栏，一头扎进虚无之中。
+
+"What..." Asuka began. “什…” 明日香开口道。
+
+"...the actual..." Toji continued.  
+“…么鬼…” 东治接着说。
+
+"...fuck." Rei finished, eyes wide in shock. Asuka tore her eyes away from the spectral version of Shinji for a moment to glare at the blunette.  
+"...操。" 丽结束道，眼中满是震惊。明日香从幽灵般的真嗣身上移开目光，瞪向那位蓝红发色的女孩。
+
+"Since when did you learn how to curse?"  
+"你什么时候学会骂人的？"
+
+_"I must admit, I'm just as surprised."_ Shinji's ghostly twin laughed, the same mirthless and almost evil laugh the original had heard before. _"The Ayanami in my world would have never done something like that."_  
+"我必须承认，我同样感到惊讶。" 真嗣的幽灵双胞胎笑道，那笑声同样毫无欢乐，甚至带着几分邪恶，正如原版真嗣之前所听到的那样。"我那个世界的绫波绝不会做出这种事。"
+
+"Your world?" Asuka whispered back, not sure she had understood what she had just heard. The Shinji she was now describing as _Shadow Shinji_ just laughed at her words, raising a hand.  
+"你的世界？" 明日香低声回应，不确定自己是否听懂了刚才的话。她现在所描述的影之真嗣只是对着她的话嗤笑一声，举起一只手。
+
+"NO, DON'T DO IT!" Shinji screamed, standing up, attempting to run towards the ghost.  
+"不，不要这么做！" 真嗣尖叫着，站起身来，试图向幽灵跑去。
+
+But he never made it. _Shadow_ Shinji had changed their world into the one from his dream, and once again the world was bathed in a crimson sky and destroyed remnants of what had once been society.  
+但他终究未能抵达。影之真嗣已将他们的世界变成了他梦境中的模样，又一次，世界被浸染在猩红的天空下，曾经的社会遗迹如今只剩残垣断壁。
+
+_"I told you before."_ Shinji faced his shadow, whose grin had turned into a deadly serious expression. _"You are my only hope. Save this world."_  
+"我之前就告诉过你。" 真嗣面对着他的影子，那笑容已变得极其严肃。"你是我的唯一希望。拯救这个世界。"
+
+"And I still don't have a clue how!" Shinji whimpered as he took a step back.  
+"我还是不知道该怎么做！" 真嗣颤抖着后退了一步。
+
+_"And that's why I have brought your friends along. A certain someone once told me..."_ Shadow Shinji glanced over at Rei. _"You are not alone."_  
+"这就是为什么我带上了你的朋友们。某个人曾经告诉我……" 影子真嗣瞥了一眼绫波。"你并不孤单。"
+
+---
+
+"So you're telling me..." Asuka repeated for the umpteenth time. "That this is something like a parallel world to our own."  
+"所以你是在告诉我..." 明日香不知第几次重复道，"这是一个类似于我们世界的平行世界。"
+
+"With Evangelions..." Mana, her eyes stretched open wide, still hadn't recovered from the fact that her childhood-induced story about giant robots fighting weird aliens was a reality in this world.  
+"还有使徒..." 玛娜瞪大了眼睛，仍然无法从她童年时编造的关于巨型机器人与奇怪外星人战斗的故事在这个世界成为现实的事实中恢复过来。
+
+"And that everyone is dead, except they're all floating in that ball of souls..." Asuka continued, pointing towards the sky, where there was indeed an ethereal sphere the size of a huge moon swirling not far from the planet's surface.  
+"而且除了他们都漂浮在那颗灵魂球里之外，其他人都死了..." 明日香继续说道，指向天空，那里确实有一个巨大的月亮般大小的灵性球体，不远处环绕着行星表面旋转。
+
+"To top it all off, we're going to visit my corpse, after having just seen Ayanami's..." Asuka looked back at Rei with some degree of pity. She looked visibly traumatized and had thrown up outside the 'Entry Plug' after visiting her dead counterpart in this world. It hadn't given Asuka any confidence about how she was going to react herself, and she wasn't sure she really wanted to check out how her bones looked on the inside.  
+“更糟糕的是，我们还要去看我的尸体，刚刚才见过绫波的……” 明日香回头看向绫波，眼中带着几分同情。她看起来明显受到了创伤，参观完这个世界的自己后，在‘插入栓’外呕吐不止。这让明日香对自己会作何反应毫无信心，她不确定自己是否真的想看到自己的骨骼内部是什么样子。
+
+The trip to the remains of the Geofront was equally as spooky, with the whole group silent as they rode the tram to the underground. For his part, Shinji was surprised there actually _was_ still power for them to ride it. The familiar view of Unit 02's rotting corpse was back, a sight he was never going to get used to.  
+前往地底都市遗迹的旅程同样阴森，一行人在电车上沉默不语。就他而言，真嗣惊讶地发现电车居然还有电力供应。熟悉的二号机腐烂残骸再次映入眼帘，这一幕他永远无法习惯。
+
+"I still don't understand what you think we can do." Shinji said softly as he gazed over at the dead robot. His eyes briefly drifted over the second Entry Plug, their destination. His shadow smiled grimly.  
+“我还是不明白你认为我们能做什么。” 真嗣轻声说道，目光投向那台废弃的机器人。他的视线短暂掠过第二个插入栓，那是他们的目的地。他的影子苦涩地笑了笑。
+
+_"You'll see when we get there."  
+“到了你就知道了。”_
+
+They got there after several more minutes, and found themselves standing outside the Entry Plug. After several more minutes of deep breaths and panic, Asuka finally climbed into the hatch.  
+又过了几分钟，他们到达了那里，发现自己站在插入栓外。经过几分钟的深呼吸和恐慌，明日香终于爬进了舱口。
+
+An agonizing silence followed. Nobody else had dared go into the plug with her, wanting to respect her time alone with her deceased self. Shinji kept glancing over at his shadow self, who was looking oddly... concentrated on the plug in front of him. As though he was waiting for something.  
+随后是一阵令人痛苦的沉默。没有人敢和她一起进入插入栓，大家都想尊重她与已故的自己独处的时光。真嗣不时瞥向自己的影子，他正奇怪地……专注地盯着眼前的插入栓。仿佛在等待着什么。
+
+His patience had paid off. A scream echoed from inside the plug, reverberating through the chilled air of the ruined Geofront.  
+他的耐心终于得到了回报。一声尖叫从插入栓内部传出，回荡在废墟般的 Geofront 冰冷的空气中。
+
+"ASUKA!" Shinji ran to the plug's hatch, letting himself inside to save her.  
+“明日香！” 真嗣奔向插入栓的舱门，让自己进入其中去救她。
+
+What he saw stopped him in his tracks. The Asuka from his world was there, looking horrified as she pointed towards a second Asuka, clad in the crimson Plug Suit bearing Unit 02's insignia. And more importantly...  
+他所见到的景象让他停下了脚步。他世界的明日香就在那里，惊恐地指着另一个明日香，后者身着红色插入栓服，上面印有二号机的标志。更重要的是……
+
+This Asuka was no longer a corpse. She was a living, breathing, and very pissed Asuka who no longer looked nothing like a skeleton.  
+这个明日香不再是尸体。她是一个活生生的、呼吸着的，而且非常愤怒的明日香，不再像一具骷髅。
+
+_The dead had been resurrected.  
+死者已被复活。_
+
+---
+
+**_"WHAT THE FUCK DO YOU THINK YOU'RE DOING, THIRD CHILD!?"  
+“你他妈的以为自己在干什么，第三适格者？！”_**
+
+The newly resurrected Asuka had living Shinji raised in the air by his shirt collar. Struggling for breath was about the best he could do as the raging girl continued to scream bloody murder at him.  
+新复活的明日香将活着的真嗣揪着衣领提了起来。他挣扎着呼吸，已是所能做到的极限，而狂怒的女孩继续对他尖声咒骂。
+
+_**"THE WORLD'S DEAD BECAUSE OF YOU!"  
+“世界因你而灭亡！”**_
+
+The screaming continued, shaking the living Shinji not only physically, but mentally.  
+尖叫声持续不断，不仅在肉体上，也在精神上震撼着活着的真嗣。
+
+_**"WHY!? WHY DID YOU DO IT!?"  
+"为什么！？你为什么要这么做！？"**_
+
+He could hear years of anguish and sorrow from the girl in front of him. Her eyes were wild with fury, and he was starting to worry that this Asuka was genuinely going to kill him.  
+他能听到面前女孩多年来的痛苦和悲伤。她的眼睛因愤怒而狂野，他开始担心这个明日香真的会杀了他。
+
+The rest of the gang piled in to separate the soon-to-be murder attempt, with Toji and Kensuke having to physically restrain the out-of-control redhead. Even with Toji's athletic build, he was still having trouble holding her still.  
+其他团伙成员涌进来试图阻止即将发生的谋杀企图，东治和真希波不得不 physically 制住失控的红发女孩。即使东治有着运动员的体格，他仍然很难让她静止不动。
+
+"Suzuhara!? You're supposed to be dead!" Her eyes bloodshot with fury, her rage quickly began to subside when this world's Asuka took a look around at the people in her vicinity.  
+"铃原!? 你不是应该死了吗！" 她的眼睛因愤怒而布满血丝，但当这个世界的明日香环顾四周的人群时，她的怒气迅速开始消退。
+
+"Hikari...?" The class president nodded nervously.  
+"光...?" 班长紧张地点了点头。
+
+"Aida?" Kensuke also nodded.  
+"相田？" 健介也点了点头。
+
+"How... are you...?" Raising her hands in front of her, she continued, her voice trembling. "How am I...?"  
+"你...还好吗...？" 她双手举在身前，声音颤抖着继续说道。"我...还好吗？"
+
+_"You've been resurrected. You are the first to come back."  
+"你被复活了。你是第一个回来的。"_
+
+Rage flashed through her eyes once again as this world's Asuka heard Shinji's voice. But when she turned to face the source, her rage once again vanished when she noticed it came not from the living, but from the ghost.  
+当这个世界的小 Asuka 听到 Shinji 的声音时，她的眼中再次闪过愤怒。但当她转身面对声源时，发现那声音并非来自活人，而是来自幽灵，她的怒气再次消散了。
+
+"What...?" She began, looking between the two Shinji's. "Why are there two of you? And why is one of you... dead?" Her gaze fixated itself on the ghostly Shinji.  
+"什么...？" 她开始说道，目光在两个真嗣之间来回扫视。"为什么会有两个你？而且其中一个你... 是死的？" 她的视线定格在幽灵般的真嗣身上。
+
+"Tell me everything." "告诉我一切。"
+
+---
+
+"So you're telling me..."  
+"所以你是在告诉我..."
+
+Déjà vu hit the group strong as the newly reborn, crimson-clad Asuka repeated for the umpteenth time. "That they're from something like a parallel world to our own?"  
+似曾相识的感觉强烈地袭来，身着鲜红战衣、新生的明日香又一次重复道：“他们来自与我们平行的世界？”
+
+"Is that how I honestly sound to other people?" The Asuka wearing her school uniform had her face in her hands as the group continued their trek back to the remains of Unit-00. Rei was glued to Shinji's arm, understandably panicking at the thought of having to go visit her corpse one more time.  
+“我真的听起来是这样吗？”穿着校服的明日香双手捂脸，一行人继续向零号机残骸走去。绫波紧贴着真嗣的手臂，想到还要再次面对自己的尸体，不禁惊慌失措。
+
+The idea was, just as they had done with Asuka, they were going to try and revive the Rei Ayanami from this world. However, according to the semi-living residents of this world, they needed to take utmost caution with this revival.  
+他们的计划是，就像对待明日香那样，尝试复活这个世界的绫波丽。然而，根据这个世界的半生居民所说，这次复活需要极其谨慎。
+
+One wrong move, and they could resurrect a hostile Angel.  
+一步走错，他们就可能唤醒一个敌对的使徒。
+
+The group as a whole were still a little unfamiliar with the concept of what these 'Angels' were, but something that sounded like a godsent alien bent on world destruction didn't sound like something they wanted to awaken anytime soon. Silence fell on the group as they continued walking, well aware that they could be walking towards their own doom.  
+整个团队对这些‘使徒’的概念仍有些陌生，但听起来像是致力于世界毁灭的神赐外星生物，他们可不想在近期唤醒。随着他们继续前行，沉默笼罩着团队，他们深知自己可能正走向末日。
+
+"And what about you?" The plugsuit-wearing Asuka asked her otherworld counterpart, who looked almost frightened of her destroyed world variant.  
+“那你呢？”穿着驾驶服的明日香问她的异世界同位体，后者看起来几乎被她那被毁灭世界的变体吓坏了。
+
+"W-what!?" "什-什么！？"
+
+"I'm asking about your world." The two sides of the mirror had fallen back from the main group and were talking quietly amongst themselves. For her part, the Asuka who was alien to this world was still processing the fact that she was essentially talking to herself, realizing that she had no idea how to talk to a reflection that had clearly seen some traumatic stuff.  
+""我在问你那个世界的事。"" 镜子两边的两人已经从主群中退开，正低声交谈着。对她而言，这个世界的明日香仍在消化自己实际上是在与自己对话的事实，意识到她完全不知道如何与一个显然经历过创伤的倒影交谈。
+
+"My world? What about it?"  
+"我的世界？它怎么了？"
+
+"How are things any different from here?" Her doppelgänger waved her arm around, indicating the destruction around them. "How is your world different from a world that died fighting alien messengers of God?"  
+"这里的情况有什么不同吗？" 她的分身挥动手臂，指向周围的破坏景象。"你的世界与一个在对抗外星神使的战斗中灭亡的世界有何不同？"
+
+It took a while to formulate a response. She had no idea where to begin. How were the two worlds any different? The problem was basically everything was different.  
+她花了些时间来组织回答。她不知道从何说起。这两个世界有何不同？问题在于基本上所有事物都不同。
+
+"In my world... For the moment at least, everything is peaceful."  
+"在我的世界... 至少目前，一切都是和平的。"
+
+There were no Angels. Evangelions were apparently Mana's childhood-induced recipe for some crazy manga. Their godhand-powered bracelets were a thing, but she had still yet to master how to use it completely.  
+没有天使存在。显然，《福音战士》是 Mana 童年幻想中对某部疯狂漫画的创作。那些由神之手力量驱动的手环确实存在，但她尚未完全掌握如何运用它们。
+
+"The only thing I've had to worry about lately is some clandestine organization that apparently wants to steal the power of the bracelets. We have no idea what they want with them, but apparently you can take over the world or something if you know how to use them..." Asuka said sheepishly. She was almost ashamed at how little she actually knew about what they were up against.  
+“最近我唯一需要担心的是某个秘密组织，他们似乎想窃取手环的力量。我们完全不知道他们要这些手环做什么，但据说如果你懂得如何使用它们，就能征服世界之类的……” 明日香有些尴尬地说道。她几乎为自己对即将面对的敌人知之甚少而感到羞愧。
+
+"Who's trying to take them?"  
+“谁在试图夺取它们？”
+
+"Uhhh..." What were they called again?  
+"呃..." 他们叫什么来着？
+
+Mana had been a spy for them. Shinji's parents knew about them. It was on the tip of her tongue, but...  
+Mana 曾经是他们的间谍。真嗣的父母知道他们。那个名字就在嘴边，但...
+
+"Shinji!" She called out to live version, but both Shinji's turned around.  
+"真嗣！" 她对着活生生的真嗣喊道，但两个真嗣都转过身来。
+
+"What?" They said in unison.  
+"什么？" 他们异口同声地说。
+
+"Uhh, okay so this question is directed to the Shinji with a pulse, but what was the name of that creepy organization that wants to steal the bracelets?"  
+"呃，好吧，这个问题是针对有脉搏的真嗣的，但那个想要偷手环的诡异组织的名字是什么？"
+
+_Shadow_ Shinji had the audacity to look slightly offended, but the living Shinji just scratched his head. Mana fidgeted next to him, looking awkward as she remembered her previous employers.  
+暗影真嗣竟然显得有些被冒犯，但活生生的真嗣只是挠了挠头。麻那在他旁边不安地扭动着，回想起她以前的雇主，显得有些尴尬。
+
+"I think..." Shinji concentrated as he thought back to his 'interrogation' of Mana. "Weren't they called..." His eyes lit up as he remembered the elusive name.  
+"我觉得..." 真嗣集中精神，回想起他对玛娜的'审问'。"他们不是被称作..." 他的眼睛一亮，想起了那个难以捉摸的名字。
+
+"Seele?" "Seele？"
+
+The temperature of the atmosphere dropped rapidly. The second the last syllable left Shinji's mouth, both the Asuka and Shinji from this world looked ready for murder.  
+气氛温度骤降。最后一个音节从真嗣口中脱出的一刹那，这个世界的明日香和真嗣都露出了杀意。
+
+_**"ARE YOU FUCKING KIDDING ME!? SEELE!?"  
+"你他妈的在逗我吗！？Seele！？"**_
+
+_"This is bad."_ _Shadow_ Shinji looked at the living replica's with a deadly serious expression.  
+"情况不妙。" Shadow Shinji 严肃地看着那些活生生的复制品。
+
+_"If there's an incarnation of Seele in your world, we need to move fast."  
+"如果你的世界里存在 Seele 的化身，我们必须迅速行动。"_
+
+"Seele helped turned this world into the sea of crap it is. I don't care what world you're from, but Seele are bad news." The plugsuit Asuka grabbed the shoulders of her schoolgirl reflection, shaking them violently. "We need to do something to stop this from happening again!"  
+“Seele 把这个世界变成了它现在的烂摊子。不管你来自哪个世界，Seele 都不是什么好东西。”穿着驾驶服的明日香抓住了她的学生装倒影的肩膀，猛烈地摇晃着。“我们必须做点什么，阻止这一切再次发生！”
+
+The group fell silent once more after the outburst over Seele. They had made it out of the Geofront, and were slowly walking over the destruction of Tokyo-3 to where the remains of Unit-00 lay. Along the way, destroyed world's Asuka and Shinji explained the machinations of Seele, Gendo Ikari, the Angels and the Evangelions as briefly as they could.  
+在关于 Seele 的爆发后，众人再次陷入了沉默。他们已经逃离了 Geofront，正缓缓走过被毁的第三新东京市，前往零号机残骸所在的地方。途中，来自毁灭世界的明日香和真嗣尽可能简短地解释了 Seele、碇源堂、使徒和 EVA 的阴谋。
+
+To those from the peaceful world, it sounded worse than hell on Earth.  
+对于来自和平世界的人来说，这听起来比地狱还要糟糕。
+
+The brief history lesson was beginning to conclude when Unit-00 came into view once again. Rei whimpered at the sight of the intimidating Evangelion, clinging at Shinji's arm. He was sure his circulation was going to stop at any second with Rei's iron grip.  
+历史课的简短讲解即将结束时，零号机再次映入眼帘。看到那令人畏惧的福音战士，绫波轻声呜咽，紧紧抓住真嗣的手臂。他确信，绫波那铁钳般的握力随时会让他的血液循环停止。
+
+The two Asuka's were at the back of the group once again, mumbling about the differences between the two world's.  
+两个明日香再次落在了队伍的后面，低声讨论着两个世界之间的差异。
+
+"Wait, Rei and the idiot are technically engaged!? And that girl... Mana was it? She used to be a spy for Seele, but now work's for Shinji's parents as a bracelet-user and a double-agent to spy on Seele?" Plugsuit Asuka smiled grimly.  
+“等等，绫波和那个白痴居然订婚了？！还有那个女孩……是叫麻奈吗？她曾是 Seele 的间谍，但现在为真嗣的父母工作，作为手环使用者和双重间谍监视 Seele？”穿着插头服的明日香苦笑了一下。
+
+"She sounds like Kaji. And you're saying she likes Shinji too?"  
+"她听起来像加持先生。你是说她喜欢真嗣吗？"
+
+"Yup." "嗯哼。"
+
+"And what about you?" Her plugsuit reflection asked nonchalantly.  
+"那你呢？" 她插座服的倒影漫不经心地问道。
+
+"Did your Shinji ever manage to topple the 'impenetrable wall of Jericho'?"  
+"你的真嗣有没有成功推倒那座'坚不可摧的耶利哥墙'？"
+
+"What in the world are you talking about!?" Asuka hissed at her irritating counterpart. She could hear hints of a sexual innuendo with the 'Jericho' spiel, and god knew her nerves weren't ready to begin thinking of how good Shinji might be in bed, her imagination immediately conjuring a muscular, shirtless Shinji with strong arms that wrapped around her like silk, pressing against her whilst they-  
+"你到底在说什么鬼话！？" 明日香对她那烦人的对手低声咆哮。她能听出'耶利哥'这番话中隐含的性暗示，而天知道她的神经还没准备好开始想象真嗣在床上的表现，她的想象力立刻勾勒出一个肌肉发达、赤裸上身的真嗣，强壮的手臂像丝绸一样环绕着她，紧贴着她，而他们——
+
+_"Oh my god, **STOP!**"_ Asuka internally screamed at her wildly out-of-control imagination.  
+"哦天哪，停下！" 明日香在内心对着她那失控的想象力尖叫。
+
+"Do you love him?" "你爱他吗？"
+
+Looking ahead at where the living and Ghost Shinji were, walking towards their depressing destination, Asuka smiled at herself as she found her eyes fixated on the back of living Shinji's head.  
+望着前方活生生的真嗣和幽灵真嗣走向那令人沮丧的目的地，明日香自嘲地笑了笑，发现自己目光紧盯着活生生的真嗣的后脑勺。
+
+"Yeah, I do." "嗯，我爱他。"
+
+The Asuka of this world smiled too, albeit a smile that looked almost sorrowful, as her line of sight found the back of Shadow Shinji's head.  
+这个世界的明日香也笑了，尽管那笑容几乎带着一丝哀伤，她的视线找到了影子真嗣的后脑勺。
+
+"That sounds kinda nice."  
+“听起来挺不错的。”
+
+---
+
+Unlike when Asuka went to revive her other self, there was no feasible way the traumatized Rei was getting back into the Entry Plug by herself. Shinji went in first, holding Rei's hand. As irritated by the idea as she was, Asuka allowed it to happen, realizing they wouldn't get anywhere otherwise.  
+与明日香去唤醒另一个自己时不同，受创的丽自己回到插入栓是不可能的。真嗣先进入，握着丽的手。尽管对此想法感到不悦，明日香还是默许了，意识到否则他们将无法前进。
+
+Plugsuit Asuka glared angrily as Ghost Shinji, as though he had done something equally offensive. For his part, he just looked fairly confused.  
+驾驶服的明日香愤怒地瞪着幽灵真嗣，仿佛他也做了什么同样冒犯的事。而他本人则显得相当困惑。
+
+"No no no no..." Rei was wide-eyed in fear, crying behind Shinji as she looked at the skeletal remains of this world's version of herself, looking the same as the day Shinji first laid eyes on the corpse in the fetal position.  
+“不不不不……” 绫波一脸惊恐，躲在真嗣身后哭泣，望着这个世界的自己那具骸骨，模样与真嗣初次见到那具蜷缩成胎儿姿势的尸体时如出一辙。
+
+"I can't... I can't look at her... No, please, I need to get out of here..."  
+“我做不到……我无法直视她……不，求你了，我必须离开这里……”
+
+"It'll be fine Rei." Holding her hand tightly, Shinji silently begged the girl to stop crushing his arm, before he seriously considered amputating it. "I'm right here, it's going to be okay."  
+"没事的，丽。" 真嗣紧紧握住她的手，默默祈求女孩不要再捏碎他的手臂，他甚至认真考虑过截肢。"我就在这里，一切都会好起来的。"
+
+Crimson eyes looked up at him fearfully. Rei nodded silently as she raised her bracelet arm, pointing it towards the corpse. Shinji could hear the cerulean blue bracelet rattling with nerves as Rei held it towards her target. Wrapping an arm around her shoulder, Shinji felt the frightened girl calm down a little. Inhaling deeply, Rei held her breath for a moment, before exhaling her nerves, a sliver of determination returning to her eyes.  
+绯红的眼眸带着恐惧望向他。丽默默点头，举起戴着手环的手臂，指向那具尸体。真嗣能听到那蔚蓝色的手环因紧张而颤动。他环抱住她的肩膀，感觉到受惊的女孩稍稍平静了一些。深吸一口气，丽屏息片刻，然后吐出紧张，眼中恢复了一丝坚定。
+
+"Resurrection!" "复活吧！"
+
+An eerily green glow surrounded the skeletal form of Rei Ayanami. Bones creaked, organs and skin rapidly regrew, all whilst the skeleton was pulled out of it's fetal position and into a sitting position on the Entry Plug's control seat. It was slightly gruesome to watch, but it was like watching a person melting in reverse. Bright blue hair regrew rapidly, and as a noticeable difference to Shinji, was growing way past Rei's normal hair length. It fell long, way past shoulder-length, and stopped at what he guessed would reach her lower back if she stood up.  
+一种诡异的绿色光芒环绕着绫波零的骸骨形态。骨骼吱嘎作响，器官和皮肤迅速重生，与此同时，骸骨从胎儿般的蜷缩姿势被拉起，坐到了插入栓的控制座椅上。这一幕略显恐怖，但就像是在观看一个人在逆向融化。明亮的蓝发迅速重生，与真嗣不同的是，头发长度远超绫波平常的发长。它垂落得很长，远远超过了肩部，他猜测如果她站起来，会触及到她的腰部以下。
+
+The frightened Rei had been watching in terror-stricken awe up until this point, when the skin on her face starting regrowing, and the corpse's eyes popped back into the sockets with sickening, slimy sound. Shinji's ears had started to ring with Rei suddenly screaming at the horrifying image.  
+惊恐的绫波一直目瞪口呆地观看到这一刻，当她脸上的皮肤开始重生，那具尸体的眼睛令人作呕地、黏糊糊地弹回眼窝时，真嗣的耳朵被绫波突然的尖叫声震得嗡嗡作响。
+
+But as quickly as it had all started, it was over. A fully-restored, plugsuit-clad Rei Ayanami from the destroyed world was sat in her chair, eyes closed but breathing.  
+但这一切发生得快，结束得也快。一个完全恢复的、穿着驾驶服的绫波零，来自那个被毁灭的世界，坐在她的椅子上，双眼紧闭但呼吸平稳。
+
+At Rei's scream, the rest of the group had clambered onto the Entry Plug and were now peering into the darkened depths.  
+听到丽的尖叫声，其余的队员们纷纷爬进了插入栓，现在正探头向黑暗深处张望。
+
+"Rei! Are you ok...ay..." Asuka started to shout into the plug, but stopped when she noticed the restored girl in the chair.  
+“丽！你还好...好吧...”明日香开始对着插入栓大喊，但当她注意到椅子上恢复的女孩时，她停了下来。
+
+"I... think so..." It hadn't been the Rei she was used to talking. The newly resurrected Rei had just awoken, rubbing her head as though some nameless pain was annoying her.  
+“我... 我觉得还好...”这不是她习惯交谈的那个丽。新复活的丽刚刚醒来，揉着头，似乎有些莫名的疼痛在困扰着她。
+
+And then she opened her eyes. Everyone present gasped in surprise as they noticed something else different to this version of Rei Ayanami. Her eyes were no longer the penetrating crimson they had been before.  
+然后她睁开了眼睛。在场的人无不惊讶地发现，这个版本的绫波零有些不同。她的眼睛不再是之前那种深邃的猩红色。
+
+Unit-00's Rei Ayanami, had bright green eyes. Eyes that looked around the plug around her, and in a scared voice, quietly whispered.  
+零号机中的绫波零，拥有明亮的绿色眼睛。她的目光环视着周围的驾驶舱，然后用一种害怕的语气，轻声低语。
+
+"Who are you?" “你是谁？”
+
+---
+
+_Been busy with that wonderful means of survival I call a 'day-job' lately, but been writing this one on and off for a couple weeks.  
+最近忙于我称之为‘日间工作’的生存手段，但断断续续地写了几个星期。  
+Honestly, the hardest bit of writing it was figuring out how to refer to the multiple versions of Shinji and Asuka.  
+老实说，最难的部分是弄清楚如何称呼多个版本的真嗣和明日香。_
+
+_You've got the peaceful world's varients, wielding bracelets, and then you've got the destroyed world's, Evangelion-piloting varients.  
+你有和平世界的变体，戴着手镯，然后还有被毁灭世界的，驾驶 EVA 的变体。  
+If anyone has better ideas, I'd love to hear them, because I went with whatever was rolling out of my brain at the time xD  
+如果有人有更好的主意，我很乐意听听，因为我当时只是随脑子里冒出的念头行事 xD_
+
+_Keep an eye on the Facebook page too (link in profile).  
+也请关注一下 Facebook 页面（链接在个人资料中）。  
+Should be some exciting stuff appearing there pretty soon!  
+应该很快就会有一些令人兴奋的内容出现在那里！_
+
+---
+### Chapter 13: Advent Children  
+第十三章：降临之子  
+
+"W-what?" "什-什么？"
+
+Asuka's stuttered response to their situation at large reflected what the group as a whole was thinking, regardless of what world they were from.  
+对于当前的处境，明日香结结巴巴的回答反映了整个团队的想法，无论他们来自哪个世界。
+
+This new Rei was an enigma.  
+这个新的绫波丽是个谜。
+
+At first, it appeared that her eyes were the only thing that were different, as well as the mountain of hair she had grown since her rebirth. But it rapidly became certain that there was a whole lot more going on behind those new leaf-colored irises. The only thing she seemed to remember for certain was her name.  
+起初，似乎只有她的眼睛与众不同，还有她重生后长出的那一头浓密秀发。但很快，人们便确信在那双新叶般翠绿的瞳孔背后，隐藏着更多不为人知的秘密。她唯一能确切记得的，只有自己的名字。
+
+She had no idea who the 'strange' people surrounding her were. She also didn't have a clue why she was sat in an odd pod-like object, wearing a peculiar skin-tight suit.  
+她对周围这些自称‘陌生人’的家伙一无所知。同样，她也不明白自己为何会坐在一个奇异的豆荚状物体中，身着一件怪异的紧身衣。
+
+She was even more confused by the girl clinging onto a certain somebody's arm that looked just like her.  
+更让她困惑的是，有个女孩紧抓着某人的手臂，而那女孩的模样竟与她如出一辙。
+
+Standing up, albeit a little wobbly, this world's Rei wombled over to the frightened Rei holding onto Shinji for dear life, and glared at her. The new Rei's extra-length hair curled around her body and fell in front of her face, which she fruitlessly tried to blow out of her field of vision.  
+尽管有些摇晃，这个世界的丽还是站了起来，蹒跚地走向紧紧抱着真嗣、惊恐万分的丽，并瞪着她。新来的丽那异常长的头发环绕着她的身体，垂在脸前，她徒劳地试图吹开挡住视线的发丝。
+
+"Who are you?" “你是谁？”
+
+"I-I was k-k-kind of hoping I could ask you that..." Crimson-eyed Rei sort of whimpered into Shinji's back, the latter of whom was wondering if this wasn't all some insane hallucination.  
+“我……我本来想问你这个的……”红眼丽有些颤抖地对着真嗣的背低声说道，后者则在想这是不是一场疯狂的幻觉。
+
+"What is your name?" “你叫什么名字？”
+
+"R-rei... Ayanami" "零...绫波"
+
+"But... _I'm_ Rei Ayanami!"  
+"但是...我是绫波零！"
+
+As the two Rei's argued over who the real Rei was, _Ghost_ Shinji and Crimson Asuka were having a heated debate over the memory-loss of their once fellow pilot.  
+当两位零争论谁才是真正的零时，幽灵真嗣和深红明日香正就他们曾经的战友失去记忆一事展开激烈的辩论。
+
+_"Maybe it's amnesia?"_ _Shadow_ Shinji looked at the girl he had risked his life for countless times thoughtfully.  
+“也许是失忆？”暗影真嗣若有所思地看着那个他曾无数次舍命相救的女孩。
+
+"And amnesia somehow knocked the red right out of her eyes huh?"  
+“失忆还能把她的红眼珠子给弄没了？”
+
+_"You got any better ideas Asuka?"_ Shinji of the Dead glared at his former pilot-mate, who shot him an even more venomous glare right back.  
+“你有更好的主意吗，明日香？”亡灵真嗣瞪着他的前驾驶员伙伴，后者回以更加恶毒的瞪视。
+
+"Lilith is dead. You remember Lilith right? That godforsaken Angel we apparently had locked up in the basement at NERV?"  
+"莉莉丝已经死了。你还记得莉莉丝吧？那个我们本以为被关在 NERV 地下室的该死的天使？"
+
+_"You and Rei died before you guys even knew about Lilith, how do you know about that?"_ Crimson Asuka groaned before pointing towards the sphere of faintly screaming crazy that floated above their heads.  
+""你们俩在知道莉莉丝之前就已经死了，你怎么会知道这些？"" 赤红的明日香呻吟着，然后指向悬浮在他们头顶上那个隐约发出疯狂尖叫的球体。
+
+"Instrumentality. Or at least, the part of it that almost worked."  
+"人类补完计划。或者至少，是差点成功的那个部分。"
+
+_"Oh..." "哦..."_
+
+"Is that, _'Oh, that Instrumentality, the one where humanity's every secret is laid bare to everyone_ _else'_ kind of 'Oh...'?"  
+"是那种，‘哦，那个人类补完计划，就是把人类的每一个秘密都暴露给其他人’的那种‘哦...’吗？"
+
+_"Ah..." Ghost_ Shinji didn't look too happy with what that apparently meant. Not that it meant much of anything to the rest of the group.  
+""啊..."" 幽灵真嗣看起来对这个含义并不太高兴。不过这对其他人来说也没什么意义。
+
+"And you know what, whilst we're on the subject, I saw all kinds of other worlds where we were fighting Angels and crap. There was this one world where you were standing over me whilst I was comatose in a hospital bed..."  
+"你知道吗，既然我们谈到了这个话题，我看到了各种各样其他的世界，我们在那里与天使和垃圾战斗。有一个世界，你站在我旁边，而我昏迷在医院病床上..."
+
+_**"DON'T SAY ANOTHER WORD ASUKA!"  
+"别再说了，明日香！"**_
+
+**"DON'T TELL ME WHAT TO DO THIRD CHILD!"** After her roar of fury that silenced the whole group, Asuka continued bitterly.  
+""别命令我，第三适格者！"" 在她愤怒的咆哮让整个小组都安静下来后，明日香继续苦涩地说道。
+
+"Who even does that? Who faps to an unconscious girl in a hospital bed, seriously?"  
+"谁会那么做？对着医院床上昏迷的女孩自慰，真的有人会这样吗？"
+
+**"YOU DID WHAT!?"** It was the other Asuka's turn to scream, picking up the living Shinji by his shirt collar, shaking him around like a leaf in a hurricane. **"WHAT THE HELL DID YOU DO TO ME WHILST I WAS ASLEEP YOU FAPPY BASTARD!?"**  
+"你干了什么！？" 轮到另一个明日香尖叫了，她抓起活着的 Shinji 的衣领，像飓风中的树叶一样摇晃他。"我睡着的时候你对我做了什么，你这个自慰的混蛋！？"
+
+"I...didn't...do...anything." Shinji managed to choke out whilst being subject once again to another angry Asuka's screaming two feet off the ground.  
+"我...没...做...任何事。" Shinji 在被另一个愤怒的明日香再次尖叫着举到离地两英尺的地方时，勉强挤出了这句话。"
+
+_"And not to mention..."_ _Ghost_ Shinji said adamantly. _"This was a Shinji who existed in another world. Neither him..."_ He pointed to his other self currently getting asphyxiated. _"Nor me did anything like that! We're innocent!"_  
+"而且更不用说..." 幽灵真嗣坚定地说道。"这是一个存在于另一个世界的真嗣。无论是他..." 他指向正在被勒得窒息的另一个自己。"还是我，都没有做过那种事！我们是清白的！"
+
+Crimson Asuka shot the ghost a livid look that would shake hell to it's very foundations.  
+绯红明日香向幽灵投去一个足以撼动地狱根基的愤怒眼神。
+
+"You. Destroyed. The. World." She was seething with every syllable. The people around her were genuinely surprised she wasn't spitting fire. "If you weren't already dead, I'd kill you myself, here and now!"  
+"你。毁灭。了。世界。" 她每个音节都带着怒火。周围的人真切地惊讶她没有喷出火焰。"如果你还没死，我现在就亲手杀了你，就在这里！"
+
+"And...you do...all that weird stuff...to me...when _I'm_ sleeping..." Meanwhile, living Shinji, on the verge of oxygen-deprived unconsciousness, blurted out something that caused the whole group to rapidly change their attention to the other fight.  
+“而...你对我...做了那些奇怪的事...当我睡着的时候...”与此同时，现实中的真嗣因缺氧即将昏迷，脱口而出的话让整个团队迅速将注意力转向了另一场战斗。
+
+_"You..."_ Now it was _Ghost_ Shinji's turn to look creeped out. "You utter hypocrite..."  
+“你...”现在轮到幽灵真嗣露出惊恐的表情了。“你这个彻头彻尾的伪君子...”
+
+With a face as rougé as her plugsuit, Crimson Asuka was at a loss for words. She just looked at her otherworld counterpart with a horrified expression. She only had one, despair-filled word to give.  
+面色如她驾驶服般粗糙的赤红明日香，一时语塞。她只是惊恐地看着另一个世界的自己。她只能用一个充满绝望的字眼回应。
+
+_"Why...?" “为什么...？”_
+
+"_THAT'S NOT... THAT'S... ARRGGHHHHHHH!_" With her scream gurgling in frustration in her throat, the other Asuka dropped the near-dead Shinji unceremoniously on the ground, and started to back away from Mana and red-eyed Rei, both pointing charged bracelets at her.  
+“那不是...那不是...啊啊啊啊啊啊！”随着一声因沮丧而哽咽的尖叫，另一个明日香粗鲁地将濒死的真嗣扔在地上，开始从手持充电手环的 Mana 和红眼丽两人面前退开。
+
+"Today's been an odd kind of day, huh guys?" Hikari had been mostly silent for the whole trip. But with her first bit of dialogue since they left the school roof, Toji and Kensuke agreed. It had certainly been an odd kind of day.  
+“今天真是奇怪的一天，对吧，伙计们？”从离开学校屋顶后，光一直保持沉默。但当她第一次开口时，冬二和健司都表示同意。这确实是非常奇怪的一天。
+
+---
+
+"So the plan is, we go back to our world, find out as much as we can about the bracelets, Seele, and anything we could potentially use to fix this world." Shinji said as his ghostly counterpart nodded.  
+“所以计划是，我们回到我们的世界，尽可能多地了解关于手镯、Seele 以及任何可能用来修复这个世界的信息。”真嗣说道，他的幽灵分身点了点头。
+
+_"We can't do anything here at the moment. The Angels no longer exist and have no reason to attack even if they did. Rei's new look seems to lend some credence to that theory." Ghost_ Shinji looked at the new Rei. _"Though I would like to know where her memories ran off to."_  
+“我们目前在这里无事可做。使徒已不复存在，即使它们还在，也没有理由攻击。丽的新形象似乎印证了这一理论。”幽灵真嗣看着新的丽，“不过我想知道她的记忆跑到哪里去了。”
+
+The group assembled together, getting ready for departure. Shinji, looking a little worse for wear after Asuka's rough treatment, was looking forward to going home. He really didn't like the death-riddled atmosphere of this world.  
+众人集结完毕，准备启程。经历了明日香粗暴对待的真嗣显得有些憔悴，他期待着回家。他实在不喜欢这个充满死亡气息的世界氛围。
+
+Raising his hand, _Ghost_ Shinji began to talk as his world started to fade away to black.  
+他举起手，幽灵真嗣开始说话，与此同时，他的世界逐渐淡入黑暗。
+
+_"Looking forward to our new life together."_ His maniacal grin was back, bringing with it some unpleasant thoughts.  
+“期待我们共同的新生活。”他那疯狂的笑容再次浮现，随之而来的是一些令人不快的念头。
+
+"What did he mean by..." Before he could finish, Shinji found himself sitting on the roof of the school once again. It was night time, so they must have been in the otherworld for a lot longer then they all realized.  
+“他那句话是什么意思……”还没等他说完，真嗣发现自己又一次坐在了学校的屋顶上。此时已是夜晚，这意味着他们在异世界度过的时间比他们意识到的要长得多。
+
+"We've missed all our afternoon classes!?" Hikari shrieked when she realised what time it was. "My perfect attendance record, gone..."  
+“我们错过了下午所有的课！？”光意识到时间后尖叫起来，“我的全勤记录，没了……”
+
+While the class president cursed the ghost for his awful sense of timing, the rest of the group began to head home, thoroughly exhausted after the events of the day.  
+当班长咒骂着幽灵糟糕的时间感时，其他人都开始回家了，经过一天的事件后，他们已经筋疲力尽。
+
+Not a word was said as they all left the building. Quick goodbyes were shared as Kensuke, Hikari who was still sobbing, and Toji, attempting to comfort the girl left to go their separate ways home.  
+他们离开大楼时，没有一个人说话。简短地道别后，真希、仍在啜泣的光，以及试图安慰她的冬二，各自踏上了回家的路。
+
+Which left the awkward atmosphere shared by Asuka, Shinji, Rei and Mana as they slowly walked the familiar route back to their abode. It was only when Misato's apartment building started coming into view that Asuka suddenly spoke up.  
+这让明日香、真嗣、丽和玛娜之间弥漫着尴尬的气氛，他们缓缓沿着熟悉的路线走回住处。直到美里公寓的楼宇开始映入眼帘，明日香才突然开口。
+
+"Well, at least you aren't crazy!"  
+“好吧，至少你没疯！”
+
+The others turned to look at her, deadpan expressions everywhere.  
+其他人转头看向她，脸上尽是面无表情。
+
+"What?" "什么？"
+
+"Shinji, the second you get home you need to summon and install a lock for your door."  
+"真嗣，你一回家就得召唤并安装一个门锁。"
+
+"I'm starting to think a lock isn't going to be enough Rei."  
+"我开始觉得光有锁可能不够，绫波。"
+
+"She has a bracelet too. A molester with the powers of a deity... That's terrifying when you think about it."  
+"她也有一个手镯。一个拥有神力的骚扰者...想想就可怕。"
+
+**"WHAT THE HELL!?"** Asuka yelled furiously at the rest of them. **"I'D NEVER DO SOMETHING LIKE THAT!"**  
+"搞什么鬼！？" 明日香愤怒地对其他人吼道，"我绝不会做那种事！"
+
+"I dunno... History's telling us that you're lying and horny as hell."  
+"我不确定...历史告诉我们，你在撒谎，而且欲望强烈得要命。"
+
+"I could say the same to you Mana Kirishima!"  
+"我也可以这么对你说，Mana 雾岛！"
+
+"She could turn herself invisible, create a portal in her room that opens up in his, hypnotise him into sharing her wildest fetishes... _gehehehe_..." Rei had started to drool with a goofy grin as she counted all the things that could be done with the powers they all shared.  
+"她可以让自己隐形，在房间里开一个通往他那里的传送门，催眠他分享她最狂野的癖好...嘿嘿嘿..." Rei 开始流着口水，带着傻笑，一一列举他们共享的超能力能做的事情。
+
+"You could turn him into a girl for a day... Shapeshift him into any form you could think of... Drown his body in chocolate..." Mana wore an identical expression to Rei as Shinji began running for the questionable sanctity of his room.  
+"你可以让他变成女孩一天...随心所欲地变形他...用巧克力淹没他的身体..." Mana 的表情和 Rei 如出一辙，而 Shinji 则开始向着他房间那可疑的避难所狂奔。
+
+"You three are freaking me out! You're all perverted!"  
+"你们三个真是吓到我了！一个个都这么变态！"
+
+Making it up to the apartment door a few minutes later, Shinji stopped to catch his breath before he opened the way into his veritable prison. Getting his keycard out of his bag, he hastily swiped it, intending to lock himself in his room and reinforce it as much as possible as the receiver beeped and a green light shone into his eyes, allowing him access.  
+几分钟后，终于爬到公寓门口，真嗣停下来喘口气，然后才打开通往他那名副其实的牢笼的门。他从包里拿出钥匙卡，急忙刷了一下，打算把自己锁在房间里，尽可能加固防御，随着接收器发出哔声，绿灯照进他的眼睛，门开了。
+
+Taking three steps into his home, he dropped everything he was holding as he saw the only thing that could possibly make his day a hell of a lot worse.  
+走进家门三步，他丢下了手里的一切，因为他看到了唯一能让今天变得更糟糕的东西。
+
+"Shinji, how the hell have you gotten so much faster..." Asuka huffed and wheezed as she made it to the door behind him. Looking up at the sight that Shinji saw, she wanted to scream agony to the center of the world.  
+"真嗣，你怎么可能变得这么快..." 明日香喘着粗气，终于追到了他身后的门口。抬头看到真嗣所见的景象，她真想向世界中心发出痛苦的尖叫。
+
+_"Welcome home guys, you sure are late!"  
+"欢迎回家，你们确实回来得晚了！"_
+
+_Ghost_ Shinji, Crimson Asuka, who was wearing what looked like the original's yellow sundress that was surely appropriated from the fuming girl's wardrobe and green-eyed Rei, wearing what looked like Asuka's short, black skirt and white tank top that also appeared to come from the same source, were all sitting on the couch watching what looked like a magical girl anime on TV.  
+幽灵真嗣、绯红明日香，她穿着一件看起来像是原版明日香的黄色太阳裙，肯定是出自那位愤怒女孩的衣橱，还有绿眼的丽，穿着明日香那条短黑色裙子和白色背心，同样似乎来自同一个来源，他们全都坐在沙发上，看着电视上播放的魔法少女动漫。
+
+The scene was wrapped up nicely by a clearly insane looking Misato sitting at the kitchen table, which was overladen with various types of strong spirits. A bottle of tequila was open and half-empty as the crazed woman looked at the front door, smiling with what looked like the intention that she wanted to eat them alive.  
+场景被一个明显看起来精神错乱的美里紧紧包裹着，她坐在餐桌旁，桌上堆满了各种烈酒。一瓶龙舌兰酒已经打开，半空着，这个疯狂的女人盯着前门，微笑着，似乎想要把他们生吞活剥。
+
+"Guyz! Can you *_hic*_ tell the school tomorrow... that I'z taking a sick day? Or..." She finished the glass of straight tequila in her hand in one gulp. "geurhhh... or a *_hic_* mental health day?"  
+“伙计们！你们能*打嗝*告诉学校明天...我请病假吗？或者...”她一口气喝完了手中的那杯纯龙舌兰酒。“呃...或者*打嗝*心理健康假？”
+
+"Um... Misato, we can explain..." Shinji sheepishly tried to reassure the clearly shaken Misato, whilst wondering where on earth he would begin with this latest series of events.  
+“嗯...美里，我们可以解释...”真嗣怯生生地试图安抚明显受到惊吓的美里，同时疑惑着该如何开始解释这一连串的最新事件。
+
+"No need! Those three told me everything!" She wobbled an arm towards the inhabitants of her couch.  
+"不用了！那三个人已经告诉我一切了！" 她摇晃着胳膊指向沙发上的居民们。
+
+"Two Ashuka's, a Rei that had a major makeover where she traded all her memories and a dead Shinji that destroyed another world! With alienz and shtuff!" She burped as she poured herself another strong drink in front of the aghast Shinji, whilst the couch-side Asuka snickered.  
+"两个明日香，一个经历了大改造的绫波，她用所有记忆做了交换，还有一个毁灭了另一个世界的死去的真嗣！还有外星人和各种东西！" 她一边为目瞪口呆的真嗣面前倒了一杯烈酒，一边打着嗝，而沙发旁的明日香则窃笑不已。
+
+"Some things never change."  
+"有些事情永远不会改变。"
+
+"Wait til Mama Ikari finds out about thiz! She's gonna blow a musket! Cheers!" Misato giggled as she raised her glass in the air, before promptly passing out on the table, the contents of her glass spilling out all over the table.  
+"等妈妈碇源堂发现这事！她会气得七窍生烟！干杯！" 美里咯咯笑着举起酒杯，随即一头栽倒在桌上，杯中酒洒得满桌都是。
+
+The night was only beginning, but Shinji realized he might need a day off school tomorrow too, if only to have any chance in hell of sorting out all the mess that had happened tonight.  
+夜幕才刚刚拉开，但真嗣意识到，如果明天还想有机会理清今晚的烂摊子，他可能也得请一天假。
+
+But when he finally managed to clear Misato and her assortment of strong alcohol off the table and get her into bed, the others had all already gone to bed, doppelgängers with their respective originals, and had the terrifying prospect of having to sleep in a room with a ghost standing watch over him all night.  
+但当他终于设法将美里和她那一堆烈酒从桌上清理干净并安顿她上床时，其他人早已各自与分身一同入睡，而他则面临着与一个整夜守在房间里的幽灵共眠的可怕前景。
+
+"Please don't do anything strange to me."  
+"请不要对我做奇怪的事。"
+
+_"I would never dream of it."_ His ghost snickered as he lay on the floor. Something in his voice told Shinji he wasn't to be trusted.  
+""我绝不会有那种念头。"" 他的幽灵躺在地板上窃笑。他声音里的某种东西告诉真嗣，他不可信任。
+
+Needless to say, the living schoolboy never got a wink of sleep that night.  
+不用说，那个活着的学童那晚彻夜未眠。
+
+---
+
+_I've started posting this story over at Sufficient Velocity too! Search for Angel [NGE] or 'TailoftheDevil'. Story name and username respectively. The layout on SV makes it easier if you guys want to talk about the story or get some input on certain things about it.  
+我也已经在 Sufficient Velocity 上发布了这个故事！搜索 Angel [NGE]或'TailoftheDevil'即可找到。分别是故事名称和用户名。SV 上的布局更便于大家讨论故事或就某些内容提出意见。_
+
+_Thanks again! 再次感谢！_
+
+---
+### Chapter 14: Asuka Vamp Omake  
+第十四章：明日香吸血鬼番外  
+
+_Several beers and a bottle of red wine, then this happened.  
+几杯啤酒和一瓶红酒下肚，然后就发生了这事。  
+I have no regrets. 我毫不后悔。_
+
+---
+
+It had got to the point that they were sick of their regular nightly entertainment. Between them, Shinji and Asuka had somehow managed to binge every optical-disc based movie in the house, watched almost the entire catalog that Netflix and the other entertainment services had to offer them and Japanese reality TV was something they had never had the energy to bother with.  
+事情已经到了他们厌倦了常规夜间娱乐的地步。在真嗣和明日香之间，他们不知怎么地竟然把家里所有光盘电影都看完了，几乎看遍了 Netflix 和其他娱乐服务提供的全部内容，而日本真人秀则是他们从未有精力去关注的。
+
+At his suggestion they could watch an anime or something, Asuka rolled her eyes and started thumbing through their DVD collection. She enjoyed certain anime but everything she could remember they'd ever bought a physical copy for had been over-watched to death.  
+在他提议看一部动漫或其他什么的时候，明日香翻了个白眼，开始翻阅他们的 DVD 收藏。她喜欢某些动漫，但她记得他们买过的所有实体副本都已经看得烂熟了。
+
+"How do you feel about an older series?"  
+“你觉得老一点的系列怎么样？”
+
+"If it's _Angel Beats_, no. I can't remember the last time I cried that hard at an anime."  
+"如果是《Angel Beats》的话，不。我都不记得上次看动漫哭得那么惨是什么时候了。"
+
+"Jesus almighty, help this boy put his balls back in before I permanently confiscate his man card..."  
+"天哪，帮这小子把他的蛋蛋放回去吧，不然我可要永久没收他的男人卡了……"
+
+"You were crying too Asuka! And don't get me started on what you were like with _Clannad_."  
+"你也在哭啊，明日香！还有别提你看《CLANNAD》时那副样子了。"
+
+She popped one of the discs out of the case and slid it into their player sitting comfortably under the TV.  
+她从盒子里弹出一张光盘，轻轻地放入电视机下方的播放器中。
+
+"This coming from the guy who wept uncontrollably at _Your Lie in April_."  
+“这话居然出自那个看《四月是你的谎言》哭得稀里哗啦的家伙。”
+
+"It's a tragic story involving musicians. _I play the damn cello_. I felt that one on a spiritual level."  
+“那是个关于音乐家的悲剧故事。我拉大提琴的，那感觉真是触及灵魂。”
+
+"What an idiot..." She sighed as she hunted for the remote. As she looked under the couch for the whereabouts of the essential device, the main menu for the series popped up on the screen, revealing her chosen title for the evening.  
+"真是个傻瓜..." 她叹了口气，四处寻找遥控器。当她在沙发下寻找这个必需品时，屏幕上弹出了该系列的主菜单，揭示了她当晚选择的标题。
+
+"Wait, why this?" Shinji eyed the name dancing in front of him on the screen. He definitely liked the series, but what worried him was that Asuka didn't show much interest in it the last time they'd watched it. Or so he had thought.  
+"等等，为什么是这个？" 真嗣盯着屏幕上跳动的名字。他确实喜欢这个系列，但让他担心的是，上次他们一起看的时候，明日香似乎并没有表现出太多兴趣。至少他是这么认为的。
+
+"I guess I'm in the mood for it."  
+"我想我现在正想看这个。"
+
+"Mood for what?" "什么的心情？"
+
+She turned round, showing Shinji the sneaky expression in her eyes.  
+她转过身来，眼中闪烁着狡黠的光芒，让真嗣看得一清二楚。
+
+_"Vampires." "吸血鬼。"_
+
+---
+
+"You say vampires, but..." They'd just finished episode three of _Bakemonogatari_. It was certainly a story about vampires, but it was also about a ton of other supernatural oddities, the latest being a story about the ghost of a young girl.  
+"你说吸血鬼，但是..." 他们刚看完《化物语》的第三集。这确实是一个关于吸血鬼的故事，但也涉及了一大堆其他超自然怪谈，最近的一集讲的是一个年轻女孩的幽灵。
+
+Something was up. He could tell that Asuka wasn't paying attention to the series at all without even looking at her.  
+有些不对劲。他甚至不用看就能感觉到，明日香根本没在关注这部系列。  
+But when he did decide to finally glance at her, watching an anime suddenly became the furthest thing from his mind.  
+但当他最终决定瞥她一眼时，看动漫突然成了他最不关心的事。
+
+Asuka Langley Soryu, his resident pain-in-the-butt and childhood friend/hot roommate, was wearing a black one-piece, slightly translucent dress that barely had the decency to cover a minuscule amount of thigh. Kneesocks of an equally dark color filled in starting from her toes, and she had what looked like arm warmers made of a translucent, thin material on her arms. Her hair was the color of the night, her eyes had enough mascara to make a gothic visual-kei-lolita proud and most importantly...  
+惣流·明日香·兰格雷，他那既麻烦又青梅竹马/火辣室友，正穿着一件黑色连体裙，这件略带透明的裙子勉强算是遮住了她那微乎其微的大腿。同样深色的膝袜从脚尖开始包裹，而她手臂上似乎是透明薄材质的臂套。她的发色如夜幕般深沉，眼妆浓重得足以让一位哥特视觉系洛丽塔自豪，而最重要的是……
+
+He could see what looked like _fangs_ in her mouth.  
+他能看到她嘴里似乎露出了尖牙。  
+The same mouth that was grinning, whilst those eyes were staring at him, _hungrily_.  
+那张嘴正咧着笑，而那双眼睛则饥渴地盯着他。
+
+"A-Asuka...? Are you doo-doo-doo-doo-doo-doin-... _What are you doing!?_" Shinji tried his best to keep his words straight whilst simultaneously backing away from what he hadn't yet decided could be his hottest nightmare ever.  
+"A-明日香...? 你...嘟-嘟-嘟-嘟-嘟-嘟-在...你在做什么!?" 真嗣尽力保持语句连贯，同时从他尚未确定是否是他最热烈的噩梦的东西中退缩。
+
+"Do you prefer this kind of vampire, _Shinjiiii~?_" Asuka purred as she closed the distance between them with a pounce, pinning his arms against the couch. He could feel himself losing his grip on a lot of things, such as sanity, reason and oddly enough, his chastity seemed to be slipping away, getting ready to depart forever.  
+"你喜欢这种吸血鬼吗，真嗣~?" 明日香低声呢喃，一跃而起缩短了他们之间的距离，将他的手臂按在沙发上。他感到自己正在失去许多东西，比如理智、理由，奇怪的是，他的贞操似乎也在悄然溜走，准备永远离去。
+
+"Th-this is a blatant... abuse of your bracelet... Ah-Asuka..."  
+"这-这是对你手镯的...公然...滥用...啊-明日香..."
+
+"Are you seriously complaining about having a hot vampire girl on top of you?"  
+"你真的在抱怨有个性感的吸血鬼女孩压在你身上吗？"
+
+_"I-I'm... trying to..." "我...我...正在努力..."_
+
+"So you want me to stop?"  
+"所以你是想让我停下来？"
+
+Shinji's only response was a muffled whimper as he felt Asuka trace circles on his neck seductively.  
+真嗣唯一的回应是一声闷闷的呜咽，他感觉到明日香在他脖子上挑逗地画着圈。
+
+"I'm not hearing a no." Her voice was whispering into his ear, as Shinji suddenly felt like a puddle of hormones melting into the couch's soft fabric underneath him.  
+“我没听到拒绝哦。”她的声音轻柔地在他耳边响起，真嗣突然觉得自己像是一滩荷尔蒙，融化在身下柔软的沙发里。
+
+"And I'm not hearing you repenting for your transgressions either!"  
+“你也没有为你的过错忏悔的意思！”
+
+"And what do I need to repent for?" She gently nibbled the lobe of his ear with one of those godforsakenly-sexy fangs. "I'm not known for my good deeds. And I don't intend to become an angel anytime soon either."  
+"我需要忏悔什么？" 她用那该死的性感尖牙轻轻咬住他的耳垂。"我可不是以善行著称的。而且我也不打算很快变成天使。"
+
+With no time left before lines were crossed, Shinji had to come up with a plan. And the only one that seemed to filter through his brain...  
+在界限即将被跨越之前，没有时间了，真嗣必须想出一个计划。而唯一似乎能从他脑海中浮现的……
+
+...had seemed like a good one at the time.  
+……在当时似乎是个好主意。
+
+"Are you-... wait, _what?!_" Asuka looked at the glowing boy underneath her, his bracelet glowing. Her eyes stung from the bright light a little, but as soon as it had appeared, it faded away. Leaving behind...  
+"你...等等，什么？！" 明日香看着身下发光的男孩，他的手镯在发光。她的眼睛因强光而有些刺痛，但光芒一闪即逝，留下的是...
+
+_"S-shi...n...ji?" "真...希...吗？"_
+
+Asuka wasn't sure anymore. The Shinji Ikari she had been straddling until moments ago... _was now a_ _**girl**__?_  
+明日香不确定了。直到片刻前她还骑在身上的碇真嗣...现在变成了一个女孩？
+
+'She' had long, black hair and was wearing the same school uniform the girls would wear going to their school. Her body was slender, and she was about the same as Asuka in the breasts department. But this girl had Shinji's face. And somehow, it suited better than when it had been on a boy's body!  
+"“她”有着一头乌黑的长发，身穿与女孩们上学时相同的校服。她的身材苗条，胸部大小与明日香相仿。但这位女孩却有着真嗣的脸庞。不知为何，这张脸放在她身上比在男孩身上更合适！
+
+"I mean, hey! If you gotta cockblock somebody, you might as well get rid of the coc-... turn into the opposite of a guy..." Shinji, with a considerably more feminine voice, said sheepishly.  
+“我是说，嘿！如果你想阻止某人，你不妨……摆脱那……变成一个与男性相反的人……”真嗣用明显更女性化的声音尴尬地说道。
+
+"I-... what?!" Asuka did not have a clue how to deal with this. A sentiment felt by the rest of her housemates who had just chosen that exact moment to return home.  
+“我……什么？！”明日香完全不知道该如何应对这种情况。她的室友们也刚刚在那一刻回到了家，同样感到困惑。
+
+"So I'm going to need you two..." Misato, wide-eyed and very much bushy-tailed, directed her dialogue to the equally shocked Rei and Mana standing at her sides. "To tell me if you see a vampiric Asuka, straddling what looks to be a genderbent Shinji?"  
+"所以，我需要你们两个..." 美里瞪大了眼睛，精神抖擞地对同样震惊的丽和玛娜说道。"告诉我，如果你们看到一个吸血鬼化的明日香，骑在一个性别转换的 Shinji 身上？"
+
+"Misato..." "美里..."
+
+"Yes, Rei?" "是的，丽？"
+
+"Could you admin-lock their bracelets?"  
+"你能把他们的手环管理锁定吗？"
+
+The deed was done. And for the rest of the weekend, Asuka remained a vampire in her goth outfit, whilst Shinji spent the remainder of his free days without a certain little friend of his.  
+事情就这样完成了。整个周末，明日香依旧是一身哥特装扮的吸血鬼，而真嗣则在没有某个小家伙陪伴的情况下度过了剩余的自由时光。
+
+...Not that it seemed to faze the three girls in the slightest.  
+...似乎这对三位女孩丝毫没有影响。
+
+If anything... 如果有什么的话...
+
+Their pursuit of him was a horrifyingly lot more aggressive than usual.  
+他们对他的追逐比平时要可怕得多，更加咄咄逼人。
+
+---
+
+_I feel like I can blame Halloween for this one. I want to try drawing the scene out too.  
+我觉得这次可以怪万圣节。我也想试着把这一幕画出来。  
+Because gothic vampire Asuka needs to be drawn.  
+因为哥特吸血鬼式样的明日香需要被描绘出来。_
+
+_Also posted on Sufficient Velocity.  
+同时发布于 Sufficient Velocity。  
+__Search:_ TailoftheDevil _or_ Angel [Evangelion]  
+搜索关键词：TailoftheDevil 或 Angel [EVA]
+
+_I've created a forum where we can discuss how Angel is progressing, any mistakes or plotholes you as the audience have spotted, as well as character discussions for the major players. Check it out via the link on my profile.  
+我创建了一个论坛，我们可以在那里讨论 Angel 的进展，你们作为观众发现的任何错误或情节漏洞，以及主要角色的讨论。通过我的个人资料上的链接查看。_
+
+---
+### Chapter 15: Breathless
+第十五章：屏息
+
+School was... different. Everyday there had been something new to keep the gossip flowing like a giggling hurricane through the lively corridors. It usually centered on a certain classroom, with four certain individuals targeted in the crosshair. Today, there was none of the usual gossip.  
+学校变得...不同了。每天都有新鲜事让八卦像咯咯笑的飓风一样在热闹的走廊里流传。通常这些八卦都围绕着某个教室，针对四个特定的人。但今天，没有往常的流言蜚语。
+
+Only shock and disbelief.  
+只有震惊和难以置信。
+
+Some students were questioning their sanity. Others were asking their teachers, who failed to come up with any reasonable answers, just as clueless as those in their care. One such teacher was in a similar position, albeit incredibly hungover.  
+有些学生开始质疑自己的理智。其他人则向老师求助，但老师们同样无法给出任何合理的解释，与他们所照顾的学生一样茫然。其中一位老师也处于类似的困境，尽管她宿醉未醒。
+
+Misato Katsuragi stood behind her desk, sighing. Shinji's apparently brilliant scientist parents had no answers for her, likewise with Asuka's mom. Her own, usually perceptive brain, had nothing, no logical explanation for the unusual apparition of trouble that had overtaken her apartment the night before. It only provided disturbing thoughts about what the future might hold for their everyday lives.  
+葛城美里站在讲台后，叹了口气。真嗣那对显然才华横溢的科学家父母无法给她答案，同样地，明日香的母亲也是如此。她自己通常敏锐的头脑也一片空白，对于昨晚突如其来的麻烦现象，没有任何逻辑上的解释。这只能让她对未来日常生活的可能走向感到不安。
+
+"Alright, come in guys. Let's make this as painless as possible, _if at all possible..._"  
+“好了，大家进来吧。让我们尽可能让这一切不那么痛苦，如果可能的话……”
+
+The door to the classroom slid open. Nobody in the class needed to guess who was going to walk through it. Everybody had already watched, open-mouthed as the Asuka and Rei, followed along by a strangely exhausted looking Shinji, had come to school that morning, with an identical looking set of Asuka and Rei.  
+教室的门缓缓滑开。班上无人需要猜测谁将步入其中。今早，众人已目瞪口呆地看着明日香和绫波，身后跟着一脸疲惫的 Shinji，带着一对与她们如出一辙的明日香和绫波来到学校。
+
+But to the sharp-eyed amongst the students at the school, it was plain as day that something was majorly different about the newest additions to their class.  
+但对于那些眼光锐利的同学来说，很明显，新加入班级的这两位有着重大的不同。
+
+"Hello. My name is Rei Ayanami." The red-eyed Rei snorted from her chair as her imposter with the long, cerulean hair attempted an introduction. Narrowing her eyes at the rude interruption, the leaf-eyed Rei continued. "I understand that this situation might well be confusing for everyone, but it is my hope that we can all get along."  
+“大家好，我叫绫波零。”红眼绫波从椅子上发出一声嗤笑，而她那位长发蔚蓝的冒牌货试图自我介绍。绿眼绫波眯起眼睛，对这不礼貌的打断表示不满，继续说道：“我明白这情况可能让大家感到困惑，但我希望我们能和睦相处。”
+
+"Understandably, names are likely to get confusing during my time here, so for the moment, you may call me Rei II-..."  
+“可以理解，在我在这里的这段时间，名字可能会让人混淆，所以目前，你可以叫我丽二……”
+
+"Are you actually being serious, First Child!? _Rei_ _**II**__?_ HA!"  
+“你是在认真说吗，第一适格者！？丽二？哈哈！”
+
+The as-of-yet introduced Asuka clone laughed mirthlessly, an evil sound that chilled the spine of everyone sat down in their chairs. This Asuka was nothing like the one they knew and loved in class. They could feel it from the crazy look in her eyes, the maniacal tone to her spoken words, and her brutish actions that promised a swift and painful retribution to all that crossed her.  
+这个尚未正式介绍的明日香克隆人冷笑一声，那邪恶的声音让坐在椅子上的每个人都感到脊背发凉。这个明日香与他们在班级里熟悉并喜爱的那个截然不同。从她疯狂的眼神、狂妄的语调以及预示着对所有冒犯者迅速而痛苦报复的粗暴行为中，他们都能感受到这一点。
+
+The Asuka they had known for so long did have a temper, and a scary one at that.  
+他们所熟知的那个明日香确实脾气火爆，而且相当吓人。
+
+But their Asuka had never shown the bloodlust that this crazy version clearly had in her eyes. Apart from the fact that this Asuka had her hair in a ponytail, and was missing the bracelet, everybody in the class would have been able to tell the differences between them, even if they had matching hairstyles and accessories.  
+但他们的明日香从未显露出这个疯狂版本眼中明显的嗜血欲望。除了这个明日香把头发扎成了马尾，并且少了那只手镯之外，班上每个人都能看出她们之间的差异，即使她们的发型和配饰一模一样。
+
+"Let me make it **very** clear to you shitheads. **I** am not **her.**" Pointing at her cowering self who was content to lower herself as far as her chair allowed, the crazy Asuka continued, bitter anger injecting into every word.  
+“让我跟你们这群混蛋说清楚。我不是她。”疯狂的明日香指着蜷缩在椅子上尽量降低自己存在的自己，继续说道，每个字都充满了苦涩的愤怒。
+
+"I come from a place, a **world**, far away and as close to hell as you can possibly imagine. I've fought messengers of God that threatened to turn everything everybody ever loved into skidmarks on the road. The Tokyo-3 in my world, alongside the world in general, is a fucking ruin, all thanks to a group of old fucktard Illuminati wannabes, a complete and utter dipshit that looks just like **him**-..." She spat the last word out with venom as she pointed at Shinji who was also trying to take cover under the limited defences of his desk. "And his fuckheaded, abhorred, genocidal _arschloch_ of a father!"  
+"我来自一个遥远的世界，一个接近地狱边缘的地方。我曾与那些威胁要将所有人所爱的一切化为道路上的污迹的神之使者战斗。我所在世界的东京-3，以及整个世界，都因一群自以为是的旧时代阴谋家，一个彻头彻尾的蠢货——" 她带着毒辣的语气指向试图躲在桌子有限防御下的真嗣，"还有他那令人憎恶、灭绝人性的混账父亲！"她最后那个词几乎是吐出来的。"
+
+Silence was deafening in the class of wide-eyed students. Even Toji, Hikari and Kensuke, who had travelled to the aforementioned hellish Otherworld, were speechless at the pure rage being thrown at them from the redheaded inferno of hate shouting from the front of the classroom.  
+教室里一片寂静，学生们瞪大了眼睛。即便是曾经去过那个地狱般异世界的东治、光和健介，也被眼前这位红发怒火中烧的女子从教室前方投来的纯粹愤怒所震撼，无言以对。
+
+"I'm here, because there is no where else for me to go. I'm not here by choice, I don't like any of this, I don't like **any** of you, **ESPECIALLY YOU!**" She screamed once again at the poor boy who was beginning to wish his desk would eat him whole. "And I don't intend to make this easy for any of you. Don't talk to me, don't come near me. I **will** kill you, and fucking **eat** what's left of your remains in front of your loved ones. And if the situation absolutely **demands** that you need to initiate a conversation with me..." Asuka glared at the class as a whole, making sure everyone could see that her eyes were daring them to question her, an evil smile dancing on her face as she felt the inferiority radiate from them.  
+"我在这里，因为无处可去。我不是自愿来的，我不喜欢这一切，我不喜欢你们任何人，尤其是你！" 她再次对着那个可怜的男孩尖叫，他开始希望自己的桌子能把他整个吞掉。"我不会让你们任何人好过的。别跟我说话，别靠近我。我会杀了你，然后在你的亲人面前吃掉你剩下的残骸。如果情况绝对需要你来跟我搭话……" 明日香瞪着全班，确保每个人都能看到她的眼神在挑衅他们，质疑她的勇气，她脸上带着邪恶的微笑，感受着他们散发出的自卑感。
+
+"Call me _Crimson_." "叫我深红。"
+
+Rei II, as she so helpfully decided to designate herself, took two slight sidesteps away from the incarnation of the devil herself, wondering if this Asuka had always been so volatile, back when she had a working memory of who she was.  
+丽二，她自作主张地这样称呼自己，轻轻地向旁边挪了两步，远离那个恶魔的化身，心里疑惑这个明日香是否一直如此暴躁，在她还有记忆的时候。
+
+"Out of all the names she could have picked, she chose the most agonizingly awkward one of them all?" The Asuka still peeking over her desk in fear whispered with a groan, before her eyes opened wide, just about managing to dodge a chalkboard eraser thrown with enough strength to easily knock her out.  
+“在所有可能的名字中，她偏偏选了最让人尴尬到极点的那一个？”躲在桌子后面、仍心有余悸的明日香低声抱怨道，随即她的眼睛瞪得溜圆，险险躲过了一个力道足以将她击晕的黑板擦。
+
+"You wanna say that again, _imposter!?_ Next time I hear any sass, I'll use your pretty little face as **fucking** toilet paper!"  
+“你想再说一遍吗，冒牌货！？下次再听到你顶嘴，我就把你那张漂亮的小脸当厕纸用！”
+
+Silence once again drowned the atmosphere, suffocating everyone to the point that nobody could physically move a muscle out of fear. Asuka from the Otherworld, or _Crimson_ as she decided she wanted to be known as, had made it irrevocably clear who ruled the classroom. The pecking order was now firmly established. And to the remainder of the class who hadn't gone to the Otherworld, were truly and utterly convinced, that this girl was an utterly deranged _psychopath_.  
+沉默再次笼罩了整个教室，恐惧到让人连动一根手指都做不到。来自异世界的明日香，或者她决定自称的红莲，已经无可置疑地表明了谁是教室的主宰。等级秩序已然确立。而对于那些未曾去过异世界的同学来说，他们彻底相信了这个女孩是个彻头彻尾的疯子。
+
+Misato laughed nervously as the brutal self-introduction drew to a close.  
+美里紧张地笑了笑，随着那残酷的自我介绍结束。
+
+"S-so does anybody have any... questions?"  
+“那……有人有什么……问题吗？”
+
+---
+
+The Artificial Research Laboratory had countless rooms used for experiments of various kinds. Rooms for research, development, virtual deification, a command centre in times of crisis and arguably the most important room to one of the prominent scientists in charge, an indoor hot spring.  
+人工研究实验室拥有无数用于各种实验的房间。有研究室、开发室、虚拟神化室、危机时的指挥中心，以及对其中一位主要科学家来说可能最重要的房间——室内温泉。
+
+It was in one of the research rooms that Yui and Gendo Ikari, alongside Kyoko Zeppelin Soryu, were sat around a table, armed with a forest's worth of paper strewn about in an unorganized mess, and laptops that connected to various feeds and databases. One of the laptops showed a security camera installed in Shinji's classroom, displaying the aftermath of Crimson's introduction. For some peculiar reason, the one girl who could make even the gods cower in their boots had decided to sit in the desk next to the one boy she had all but declared war on, ejecting the previous occupant by force. For the first time, Yui was glad Mana was sitting on the chair on Shinji's other side. At least she could protect him if Crimson decided she felt like snapping and eating her son alive.  
+在一间研究室内，Yui 和 Gendo Ikari 以及 Kyoko Zeppelin Soryu 围坐在一张桌子旁，桌上散落着如森林般密集的纸张，杂乱无章，还有连接着各种数据源和数据库的笔记本电脑。其中一台笔记本显示着安装在真嗣教室内的监控摄像头画面，记录了 Crimson 出现后的情景。出于某种奇特的原因，那个能让众神都胆寒的女孩决定坐在了那个她几乎已宣战过的男孩旁边的座位上，强行驱逐了原主人。这是 Yui 第一次庆幸 Mana 坐在真嗣另一侧的椅子上。至少，如果 Crimson 突然想发飙并吞噬她的儿子，Mana 能保护他。
+
+"So."
+
+The silence that had plagued the room after watching the abrasive transfer student was gently shattered by Kyoko, stretching her arms and clicking her back with a satisfied groan.  
+在目睹了那位强势转学生的行为后，房间内笼罩的沉默被 Kyoko 轻轻打破，她伸展双臂，满意地发出一声呻吟，活动着背部。
+
+"What have we learned today?"  
+“今天我们学到了什么？”
+
+"My son attracts some weird people..." Gendo grumbled as he continued to watch the feed, just as worried for his son's safety as his wife. His eyes flickered briefly to the blonde doctor who had just sent him a withering glare and an irritated growl.  
+"我儿子总是吸引一些奇怪的人..." 碇源堂咕哝着，继续观察着画面，对儿子的安全和妻子一样担忧。他的目光短暂地扫过那位刚刚向他投来严厉目光和不满低吼的金发医生。
+
+"My Asuka is not weird."  
+"我的明日香才不奇怪。"
+
+"No, but that one is."  
+"不，但那个确实是。"
+
+"Granted, she's a little... _angrier_ than the Asuka I conceived. But she's still Asuka. An Asuka who once had a mother by my name in that world. A mother who she lost at a young age, in an incident that can only be described as horrifying..." Kyoko looked downcast for all but a second, but bounced back almost as fast, smiling radiantly.  
+"确实，她比我想象中的明日香要...更愤怒一些。但她依然是明日香。在那个世界里，曾有一个我这样的母亲。一个在她年幼时便不幸失去的母亲，那场事故只能用骇人听闻来形容..." 绫子看起来有些沮丧，但仅仅一瞬，她又迅速恢复了过来，笑容灿烂。
+
+"I want to protect _that_ Asuka, just as much as _my_ Asuka. They're both my little Asuka's."  
+"我想保护那个明日香，就像保护我的明日香一样。她们都是我的小明日香。"
+
+Yui smiled at the bubbly scientist. Just where did she get that optimism from? Even with the risk that Crimson might reject her maternal approach to the situation, that still wasn't enough to deter the smiling Kyoko.  
+唯对这位乐观的科学家微笑。她的乐观究竟从何而来？即使知道深红可能会拒绝她的母性关怀，这依然不足以阻止笑容满面的绫子。
+
+"It's admirable, without a doubt, but be careful this Asuka doesn't try to kill you."  
+"毫无疑问，这很令人钦佩，但小心这个明日香不会试图杀了你。"
+
+"Bah, it'll be fine! One day, they'll be just like sisters!"  
+"哼，没事的！总有一天，她们会像亲姐妹一样！"
+
+"I'd be a bit worried if Shinji had a sister who screamed she was going to wipe her arse with his face..." Gendo mumbled warily. Both females in the room glared at him.  
+""如果真嗣有个妹妹嚷嚷着要用他的脸擦屁股，我倒是有点担心..."" 源堂谨慎地咕哝道。房间里的两个女性都瞪了他一眼。
+
+"We're trying to have a heartwarming moment here and you're ruining it."  
+"我们正试图营造一个温馨的时刻，而你却在破坏它。"
+
+"Sorry Yui..." "对不起，唯..."
+
+Turning her glare away from her husband back to the mountain of research in front of them, Yui groaned as she folded her arms on the table and rested her head on top. Nothing made sense to her anymore. Shinji and his friends had somehow been dragged into a world that could only be described as a parallel universe. After coming back, all of them had been shocked by the three teenagers that had followed them.  
+她将怒视从丈夫身上移开，转回面前堆积如山的研究资料，唯叹了口气，双臂交叉放在桌上，头枕在上面。一切都变得难以理解。真嗣和他的朋友们不知怎么被卷入了一个只能称为平行世界的地方。回来后，他们都对跟随他们的三个青少年感到震惊。
+
+One was a literal phantom. Another was perpetually angry and clearly traumatized. And the last was an amnesiac. Three very different versions of the children they knew and loved. And to top it all off, the story of their world, their _pasts_, was almost nothing like the reality they all lived in.  
+一个是真正的幽灵。另一个则永远愤怒且明显受到创伤。最后那个则是失忆者。这三个孩子，他们所熟知并深爱的孩子们，如今却是如此迥异。更糟糕的是，他们世界的故事，他们的过去，几乎与他们所生活的现实毫无相似之处。
+
+"A world where 'Angels' came to destroy humanity, and children defended mankind by piloting abominable weapons that were to be used as a catalyst to end the world. I can't even begin to imagine the kinds of horrors those three have been witness to." It was a world Yui wanted no part of.  
+“一个世界，‘天使’降临来毁灭人类，而孩子们驾驶着本应用作世界末日催化剂的可憎武器来保卫人类。我甚至无法想象那三个人见证了什么样的恐怖。”这个世界，Yui 一点也不想参与。
+
+But a part of her, deep down, wanted to do something. Anything. Anything that might fix the damage that had occurred in that hell. At the very least, she wanted the three broken children that had dropped in from another world to lead something of a normal life, and maybe even repair _some_ of the damage that had been inflicted on their psyche. But where would they even begin?  
+但内心深处，她的一部分想要做些什么。任何事情。任何可能修复那个地狱所造成伤害的事情。至少，她希望那三个从另一个世界掉落的破碎孩子能过上某种正常的生活，甚至可能修复一些对他们心灵造成的伤害。但他们该从哪里开始呢？
+
+Asuka's mother had committed suicide, almost taking her daughter with her. Rei had been a hybrid-Angel who apparently had some of Yui's own DNA in her genetic makeup. Now she was almost stripped of her memories, but may or may not be a wholesome human. And Shinji had been forced to pilot a monster against his will by his own father, a man who sounded nothing like the one who sat next to her. A man who had attempted to orchestrate the near-genocide of mankind for a chance to reunite with the mother who had sold her own soul to a machine and left her son in a cruel, dark world, alone.  
+明日香的母亲自杀了，几乎把女儿也带走了。绫波曾是混合型使徒，显然她的基因里含有一些碇唯的 DNA。如今她的记忆几乎被抹去，但或许仍是一个纯洁的人类。而真嗣被迫违背自己的意愿驾驶着怪物，他的父亲，一个听起来与坐在她旁边的人截然不同的男人，曾试图策划几乎灭绝人类的行动，只为有机会与那个卖掉自己灵魂给机器、将儿子留在残酷黑暗世界中的母亲重聚。
+
+Not to mention Shinji was technically dead. A problem that would normally be impossible to solve. Yui wouldn't have even thought it possible the power of the bracelets would be able to resurrect the dead.  
+更不用说真嗣在技术上已经死了。这是一个通常无法解决的问题。碇唯甚至不会想到手环的力量能够复活死者。
+
+Yet, when the group came back from their field trip, her son and friends had explained how the bracelets had resurrected the Otherworld's Asuka and Rei, from skeletons no less. Reviving the phantom Shinji might be possible, but something was keeping the frustrated scientist wary of the spectre that resembled her son. An aura that told her in a little voice that, even though he was technically the same little boy as the one she had given birth too, something was off.  
+然而，当这群孩子从实地考察回来后，她的儿子和朋友们讲述了那些手环是如何让异世界的明日香和丽从骸骨中复活的。复活幽灵真嗣或许有可能，但某种东西让这位沮丧的科学家对那个酷似她儿子的幽灵保持警惕。一种气息告诉她，尽管从技术上讲，他和她所生的那个小男孩是同一个人，但有些不对劲。
+
+_He could not be trusted.  
+他不可信任。_
+
+---
+
+Lunch had come to the whispering classroom. Normally that entailed a cacophony of students moving about, giggles and conversations about god only knew what, and the smells of various home-cooked or cafeteria-appropriated meals.  
+午餐时间悄然而至，教室里低语声此起彼伏。通常这意味着学生们四处走动，笑声和关于天知道什么的交谈，以及各种自制或食堂特色餐点的香味。
+
+Today, the classroom was a graveyard, save for eight people. The majority of the class had decided a tactical retreat was in order to escape the stifling atmosphere of the class, leaving the infamous students a whole class to themselves.  
+今天，教室宛如一片墓地，除了八个人外空无一人。大多数同学为了逃避班级里令人窒息的氛围，选择了战术性撤退，留下那些臭名昭著的学生独享整个教室。
+
+Whilst Kensuke, Toji and Hikari were talking to, or rather, trying to mediate a heated discussion between the two Rei's, Shinji, Asuka and Mana were eating their food peacefully.  
+与此同时， Kensuke、Toji 和 Hikari 正在与，或者更确切地说，试图调解两位 Rei 之间的激烈争论，而 Shinji、Asuka 和 Mana 则安静地享用着他们的食物。
+
+Or as peacefully as it could be next to the girl who had threatened classroom genocide only a few hours beforehand.  
+或者说，在几个小时前扬言要进行教室大屠杀的女孩旁边，这已经算是相当平静的了。
+
+Perceptive to his new neighbour, Shinji had quickly realized that she wasn't eating anything. Partly because she had all but refused his offer of a bento box in the morning. Various sounds of hunger were making themselves known coming from the angry, or angrier version of Asuka, which seemed to only fuel her bitter expression as she glared at seemingly nothing in front of her.  
+对于新邻居的敏锐观察，真嗣很快就意识到她什么都没吃。部分原因是她几乎拒绝了早上他递给她的便当盒。各种饥饿的声音从愤怒或更愤怒的明日香那里传来，这似乎只是加剧了她对眼前看似无物怒目而视的苦涩表情。
+
+"Here." Shinji took the lunch he had brought to school anyway, and placed it in front of the stewing teenager, hoping to any of the gods advocating peace in the world that she wouldn't take the thing and throw it in his eyes.  
+“给。”真嗣把他带到学校的午餐放在了闷闷不乐的少女面前，希望世界上任何一位倡导和平的神明能保佑她不会拿起那东西扔进他的眼睛。
+
+"I told you I didn't need it." He had been expecting a shout, but Crimson spoke in a low voice that didn't seem as angry as it had before. Sighing, he fished a spare set of chopsticks out of a case he kept in his bag, and placed them in front of her.  
+“我说过我不需要。”他本以为会听到一声大喊，但明日香用一种比之前不那么愤怒的低沉声音说道。叹了口气，他从书包里的小盒子里拿出一套备用的筷子，放在她面前。
+
+"Just... look. I can hear your stomach grumbling, and when was the last time you actually ate solid food? You've technically been dead for a while, eat this and you'll feel right as rain."  
+"就... 看看。我能听到你的肚子在咕咕叫，你上次吃固体食物是什么时候？你理论上已经死了好一阵子了，吃点这个，你会感觉好得像雨后的彩虹。"
+
+Doubting that his food actually had the stuffing to live up to his claims, Crimson took the bento box anyway, looking away from him.  
+尽管怀疑他的食物是否真有他说的那么神奇，Crimson 还是接过了便当盒，目光从他身上移开。
+
+"Whatever. If it shuts you up for five minutes, I'll eat your stupid food. Free food always tastes the best after all." Her face was tinged red. It didn't matter what universe they were in, some things really didn't change. And at least this version Shinji hadn't tried to destroy the world...  
+"随便吧。如果这能让你安静五分钟，我就吃你这愚蠢的食物。毕竟，免费的食物总是最美味。" 她的脸微微泛红。无论在哪个宇宙，有些事情真的不会改变。而且至少这个版本的 Shinji 没有试图毁灭世界...
+
+Shaking her head before any embarrassing thoughts came to mind, she put a mouthful of the fried chicken and rice into her mouth.  
+她摇了摇头，赶在任何尴尬的念头浮现之前，将一口炸鸡和米饭送入口中。
+
+She had forgotten how good his food actually tasted. True to his words, it _**had**_ been a long time since she'd eaten anything solid. And his cooking was even better than the Shinji's she had shared a world with.  
+她忘记了他的食物实际上有多美味。正如他所说，她已经很久没有吃过任何固体食物了。而且他的厨艺甚至比她曾共处的那个世界的真嗣还要好。
+
+_"Probably because this Shinji isn't crippled with any of the destabilizing issues he had."_ Crimson thought to herself, not realizing she was devouring the food like a wild animal. Heck, even an animal would have _some_ grace, compared to how Crimson was massacring her meal.  
+“可能是因为这个真嗣没有受到那些不稳定问题的影响。”绯红心想，却没有意识到自己正像野兽一样狼吞虎咽。天哪，即使是动物也比绯红这般狼藉的吃相要优雅些。
+
+They say that food will always taste the best when you think of the person who's going to be eating it whilst it's been prepared. All of her favorites were in this box, and it all tasted incredible. Had Shinji been thinking of her when he made this lunch?  
+人们常说，当你在准备食物时想着将要享用它的那个人，食物的味道会格外美味。这个盒子里装满了她最喜欢的菜肴，每一口都令人难以置信。难道真嗣在做这顿午餐时想到了她吗？
+
+No. There was no way. It was identical to her _imposter's_ bento anyhow. Two reflections of the same person were going to enjoy the same meal. It just made sense.  
+不，不可能。反正这便当和她冒牌货的那份一模一样。两个同一个人的映像将享用同样的餐食，这很合理。
+
+But if it tasted this good, what did that mean? Did the Shinji of this world like the Asuka who was here before she arrived?  
+但如果这味道如此美妙，那意味着什么呢？难道这个世界的真嗣喜欢她，那个在她到来之前的明日香？
+
+Something inside her was gnawing away at her emotions. A whirlpool of mixed feelings filled her mind to the brim. Anger, loneliness, regret, confusion, jealousy. And for some strange reason, she really felt like she wanted to cry.  
+某种东西在她内心啃噬着她的情感。一团混杂的情绪漩涡将她的思绪填得满满当当。愤怒、孤独、悔恨、困惑、嫉妒。出于某种奇怪的原因，她真的觉得自己很想哭。
+
+After finishing whatever was left of the meal, Crimson put the box down on the desk, a little harder then she intended, causing everyone to jump.  
+吃完剩下的饭菜后，Crimson 将盒子重重地放在桌子上，比她预想的要用力一些，让所有人都吓了一跳。
+
+"W-was it good, Asu-...Crimson?"  
+“好吃吗，Asu-...Crimson？”
+
+"Thanks for the meal." The girl's eyes were covered by her bangs, as she stood up and walked out of the classroom. It was faint, but sitting right next to her, Shinji caught a glimpse of her expression.  
+"谢谢你的餐点。" 女孩的眼睛被刘海遮住，她站起身，走出了教室。虽然微弱，但坐在她旁边的真嗣还是捕捉到了她的表情。
+
+Why did she suddenly look so upset?  
+她为什么突然显得这么难过？
+
+"Did she just _thank_ you!?" Toji said incredulously. "Not even _our_ Asuka remembers to do that!"  
+"她刚刚是向你道谢了吗！？" 冬二难以置信地说道。"就连我们的明日香也不记得这么做！"
+
+A yelp of pain indicated that the boy was hit hard from both the girl in question and the class president.  
+一声痛苦的叫喊表明那个男孩不仅被当事女孩狠狠击中，还遭到了班长的重击。
+
+"Can you learn to ever just read the mood? Just this once, keep that big mouth shut!" Hikari glared at him as she spoke. She was distracted by Shinji suddenly standing up, looking at the door where Crimson had hastily departed, looking worried.  
+“你就不能学会看场合吗？就这一次，闭上你那张大嘴！”光瞪着他，边说边分心看着真嗣突然站起来，望向绯红匆忙离去的门口，面露忧色。
+
+"Go after her Shinji." “去追她，真嗣。”
+
+"Asuka?" "明日香？"
+
+The redheaded girl was also looking at the door. She looked melancholic, and thoughtful at the same time.  
+红发女孩也正望着门口。她的神情既忧郁又若有所思。
+
+"If that was me, I'd want you to come after me. And considering she basically _**is**_ me, I'm sure she can't be alone right now." With a nod, Shinji ran out of the classroom. The others turned to look at Asuka, confused.  
+"如果那是我，我会希望你追上来。既然她基本上就是我，我相信她现在肯定不想一个人。" 点了点头，真嗣跑出了教室。其他人则困惑地转向明日香。
+
+"What's going on Asuka?" "怎么了，明日香？"
+
+Ignoring Hikari's question completely, she continued to finish her lunch. Holding up a bit of her fried chicken, she looked at it for a second, as though the meat could answer all the strange questions in her mind. Popping it into her mouth, she chewed, a slightly lonely smile displaying on her lips.  
+完全无视了光的问题，她继续吃着午餐。举起一块炸鸡，她盯着它看了一会儿，仿佛这块肉能解答她心中所有的奇怪疑问。将炸鸡放入口中咀嚼，她的嘴角露出一丝略显孤独的微笑。
+
+"His chicken _is_ good." "他的炸鸡很好吃。"
+
+---
+
+It had taken Shinji little time to find the wildcard student. As if following what he knew was cliché, he immediately went straight to the roof of the school. Where else would a person who wanted to be alone want to be?  
+真嗣没花多少时间就找到了那位特立独行的学生。仿佛遵循着他所知的陈词滥调，他直接去了学校的屋顶。一个想要独处的人还能去哪儿呢？
+
+Somewhere they could see the sky. As if the heavens above could give you the answers you wanted.  
+某个能看到天空的地方。仿佛天上的苍穹能给你想要的答案。
+
+He knew because he'd been playing by the same rulebook not that long ago. Back when the Asuka from his world had been less than friendly towards him. Back in a time he'd rather not remember.  
+他知道这一点，因为他不久前也遵循着同样的规则。那时，他所在世界的明日香对他并不友好。那是一段他宁愿忘记的时光。
+
+Putting aside his nostalgia at how little had changed since he had last been whiling away his time up here, he spotted the objective, sitting on one of the decrepit benches lying in the middle of the area.  
+他暂时放下对这里几乎未变的怀旧之情，目光落在了目标上，那人正坐在场地中央一张破旧的长椅上。
+
+She was sitting with her arms wrapped around her legs, silently glaring at a spot on the floor around her. It reminded him of how the Asuka he had grown up with used to act. Unsociable, seemingly uncaring, but in reality...  
+她双臂环抱着双腿，静静地瞪着脚边的一块地板。这让他想起了小时候的明日香，总是显得孤僻、漠不关心，但实际上……
+
+She just looked lonely. 她看起来只是很孤单。
+
+"I can say for certain..." The girl he'd thought hadn't noticed his presence suddenly spoke up. "That you're definitely not the same Shinji Ikari that I know."  
+"我可以肯定地说..." 他原以为没注意到他的女孩突然开口了。"你绝对不是我所认识的那个碇真嗣。"
+
+"What makes you say that?"  
+"你为什么这么说？"
+
+Crimson Asuka didn't even look at him. She continued to look at the ground angrily, as though if she glared at it for long enough, she could melt a hole into it.  
+赤红的明日香甚至没有看他一眼。她继续愤怒地盯着地面，仿佛如果她瞪得够久，就能在上面融化出一个洞来。
+
+"At least he had some semblance of respect for privacy."  
+“至少他对隐私还有些许尊重。”
+
+Her words threw Shinji for a second. On the surface, she was accusing him of invading her space, and that she wanted nothing more than to be left alone.  
+她的言辞让真嗣愣了一下。表面上，她是在指责他侵犯了她的空间，她只希望独自一人。
+
+But he knew better than that. He knew better then to trust words, laced with everything but the truth. He'd had plenty of practice with a certain someone else, at least when it came to looking underneath the underneath.  
+但他深知不能仅凭表面。他知道不能轻信那些充满谎言的言辞。至少在洞察真相这方面，他已从某人身上积累了足够的经验。
+
+Against his better judgement, he slowly walked over to the bench, and sat down next to her. Close enough that he didn't show his poorly concealed fear, but far enough to not be touching her.  
+尽管心中有所顾虑，他还是缓缓走向长椅，坐到了她的旁边。近到不显露他那隐秘的恐惧，又远到不触及她。
+
+"What are you doing?" Her question was once again in a low voice. But this time it was laced with an actual warning. Shinji braced himself as he spoke again.  
+“你在做什么？”她的声音再次低沉，但这次却带着明显的警告意味。真嗣做好准备，再次开口。
+
+"Not running away." “没有逃跑。”
+
+Getting punched in the face, really, _**really**_ hurts. Getting punched by the girl who looked just like another girl who used to punch you in the face all the time, somehow hurt less than he had expected it to.  
+被一拳打在脸上，真的，真的很痛。被一个长得像另一个经常打你脸的女孩的女孩打，不知怎么的，比他预期的要轻一些。
+
+"THE _**FUCK**_ IS THAT SUPPOSED TO MEAN!?" Crimson Asuka was livid. He could clearly see the rage of fire in her eyes, and for a split second, he thought he had said something he shouldn't have. But it was gone in the second it took to pick himself up from the floor, where the punch had unceremoniously thrown him. Rubbing his now achingly sore cheek, Shinji chuckled, serving to infuriate the girl even more.  
+"这他妈是什么意思！？" 绯红明日香怒不可遏。他可以清楚地看到她眼中的怒火，有那么一瞬间，他以为自己说了不该说的话。但就在他从被那一拳无情击倒的地板上站起来的那一刻，这种感觉消失了。揉着现在酸痛不已的脸颊，真嗣轻笑了一声，这让女孩更加愤怒。
+
+"Is that it?" "就这？"
+
+Shinji suddenly found himself hoist in the air, the breath being squeezed out of him as the girl he had just taunted lifted him by his shirt, her eyes promising him death.  
+真嗣突然发现自己被举到了空中，呼吸被紧紧挤压出来，那个他刚刚嘲弄的女孩用她的眼睛向他承诺死亡，将他揪着衬衫提了起来。
+
+"I'll enjoy snapping your neck, shit-for-brains." A second after her words had dissipated into the noontime heat, Shinji felt his world turn upside down as Crimson Asuka threw him to the ground, straddling him. A right hook connected with his intact cheek, blackening his vision. More punches came. His nose cracked horribly. Blood exploded from his nostrils as the girl kept pounding into him. His face was likely going to look like a mass of bruises and blood later, but he let the girl continue until it seemed she'd had her fill. Letting her blood-drenched fists rest, she looked down her nose at him, cold ruthlessness filling her eyes.  
+"我会很享受扭断你脖子的，脑残。"她的话音在正午的热浪中消散后不久，真嗣感到自己的世界天旋地转，赤红明日香将他摔在地上，跨坐在他身上。一记右勾拳击中了他完好的脸颊，让他的视线变得模糊。更多的拳头接踵而至。他的鼻子可怕地断裂了。鲜血从他的鼻孔中喷涌而出，女孩不停地殴打他。他的脸可能晚些时候会变成一片瘀伤和血迹，但他任由女孩继续，直到她似乎打够了。让她沾满血的拳头停下来，她俯视着他，眼中充满了冰冷的残忍。
+
+"That enough for you, or do you feel like some broken limbs too?"  
+"这对你来说够了吗，还是你也想体验一下断肢的滋味？"
+
+A chuckle filled the air. It was actually more of a bloody snort as Shinji started laughing on the ground. The laughing lasted until his throat decided it needed to clear some blood out of his airways. Spots of the crimson liquid found a home on the wide-eyed Asuka's face. Why in god's name was he _**laughing**_?  
+一阵轻笑声在空气中弥漫开来。实际上，这更像是一种血腥的鼻息，因为真嗣躺在地上开始大笑。笑声一直持续到他的喉咙决定需要清理一下呼吸道中的血液。几滴鲜红的液体落在了睁大眼睛的明日香脸上。天哪，他到底在笑什么？
+
+"And cue-..." “然后就——”
+
+"And what?-ooph!" Asuka bent over double, her mind shocked as her abdomen felt a strong punch connect, briefly winding her. In her moment of weakness, Shinji pushed the winded girl off him, pinning her down by her shoulders.  
+“然后什么？——哎哟！”明日香弯腰成弓形，她的思维被腹部感受到的一记重拳震惊了，这短暂地让她喘不过气来。在她虚弱的瞬间，真嗣将她推开，用肩膀将她按倒在地。
+
+"You... pathetic...urrf..." Crimson coughed as she tried to wheeze some air back into her lungs. "What kind of lowlife scum... *cough* hits a girl..."  
+"你...可悲的...呃..." Crimson 一边咳嗽一边试图将空气吸入肺部。"什么样的下流渣滓...*咳嗽*打一个女孩..."
+
+"I should tell you. I'm a man who believes in true gender equality. I've got no problems dropkicking a girl if the situation calls for it-... GEEEH!" Shinji's quote was interrupted when the palm of Asuka's fist hit his already battered nose, throwing him off the seething female. Rolling just in time to avoid being stomped, Shinji scrambled to his feet, putting up a guard as he grinned at his opponent.  
+"我应该告诉你。我是一个坚信真正性别平等的男人。如果情况需要，我毫不介意给一个女孩来个飞踢-...哎哟！" Shinji 的话被 Asuka 的拳头打断，拳头击中了他已经受伤的鼻子，将他击退。他及时翻滚避开踩踏，迅速起身，摆出防御姿势，对着对手咧嘴一笑。"
+
+"Lowlife scum like you are the type of men I utterly despise. Who the hell would punch a girl like that!? I'M GONNA TEAR YOUR FUCKING EYES OUT!"  
+"像你这样的下流渣滓是我最鄙视的男人。谁会那样打一个女孩！？我要挖出你的狗眼！"
+
+A dodged punch from her, a narrowly missed uppercut from him, a graze on her face, a claw-mark on his face. Both teenagers traded blows, not giving any quarter to their opponent. The fight landed back on the ground once again, with both of them rolling around, trying to find an opening.  
+她躲过一拳，他险些被上勾拳击中，她脸上擦伤，他脸上留下爪痕。两个少年互不相让，拳拳到肉。战斗再次回到地面，两人滚作一团，试图找到对方的破绽。
+
+"WHAT THE FUCK DO YOU WANT, THIRD CHILD!?"  
+“你他妈到底想要什么，三子？！”
+
+"I don't know anyone with a stupid name like 'Third Child'!" Asuka screamed in response, trying to bite his neck whilst Shinji tried hard to keep her at arm's length, his bracelet dangling violently. At some point, she succeeded in biting his arm, eventually drawing blood. Shinji screamed in pain, but somehow also managed to keep a weird smile on his face, even managing to choke out a laugh.  
+“我可不认识什么叫‘三子’这种蠢名字的人！”明日香尖叫着回应，试图咬住他的脖子，而真嗣拼命用手臂挡住她，手镯剧烈摇晃。最终，她成功咬住了他的手臂，鲜血随之流出。真嗣痛苦地尖叫，却不知为何脸上还挂着奇怪的笑容，甚至勉强笑出声来。
+
+"STOP LAUGHING AT ME!" Crimson Asuka screamed through his flesh, muffling her words.  
+“别笑我！”绯红明日香透过他的血肉尖叫，声音变得沉闷。
+
+"I can't. Not even _she_ ever actually bit me before!"  
+“我忍不住。她以前从没真的咬过我！”
+
+The fighting suddenly stopped. Crimson Asuka's mouth was still wrapped onto Shinji's arm, her teeth looking all but animalistic, but she wasn't physically biting down anymore.  
+战斗突然停止了。绯红明日香的嘴仍紧贴着真嗣的手臂，她的牙齿显得异常野蛮，但她已经不再用力咬下去了。
+
+"She?" Muffled words again. This time accompanied by a curious look.  
+"她？" 又是一阵含糊的话语，这次还伴随着好奇的目光。
+
+"Asuka, the other Asuka I mean... we used to get into fights like this all the time."  
+"明日香，我是说另一个明日香……我们以前经常这样打架。"
+
+It was a strange feeling. He was explaining himself to a girl who's teeth were still firmly lodged into his forearm. But he continued regardless. He was used to strange occurrences in his daily life by now.  
+这是一种奇怪的感觉。他在向一个牙齿还紧紧咬在他前臂上的女孩解释自己。但他还是继续说了下去。他现在已经习惯了日常生活中发生的奇怪事情。
+
+"She was a lot like you are now. Never was a people person. Used to get angry at the touch of a hat. And she used to take great pleasure in taking out her frustrations on me. It wasn't the happiest of times for either of us."  
+"她和你现在很像。从来不是个合群的人。稍微碰一下就会生气。而且她常常把对我的不满发泄出来，那对我们俩都不是什么愉快的时光。"
+
+"Our parents work at the Artificial Research Laboratory. Both Asuka's mother and my parents. More often than not, this meant we barely ever got to see them. There was a time Asuka didn't see her mother for a whole year. And to an eight year old, that didn't do much good to her."  
+"我们的父母在人工研究实验室工作。明日香的母亲和我的父母都是。这通常意味着我们很少能见到他们。有一次，明日香整整一年都没见到她妈妈。对于一个八岁的孩子来说，这并没有给她带来多少好处。"
+
+At some point without realizing it, Crimson Asuka had let go of Shinji's arm, a trickle of blood dribbling down her lip. But she just sat there, listening to him.  
+不知不觉中，绯红明日香已经放开了真嗣的手臂，一丝血迹从她的唇边滑落。但她只是坐在那里，静静地听着他。
+
+"She used to get angry, a lot. A few times her mother had to apologize to my parents when I'd turn up looking like I'd been put through a blender. There was a time Asuka had to be kept away from me, for my own safety."  
+"她以前经常生气，非常多。有几次她妈妈不得不向我父母道歉，因为我看起来像是被扔进了搅拌机。有一次，为了我的安全，不得不让明日香远离我。"
+
+"But I always knew. I knew she wasn't hitting me, or hurting me because she hated me. She just wanted to vent, she wanted to let the world know she was angry, and hurt, and alone. Alone except for one friend." Shinji cracked out another smile. "Me."  
+"但我一直都知道。我知道她打我，或者伤害我，并不是因为她恨我。她只是想发泄，她想让世界知道她很愤怒，很受伤，很孤独。除了一个朋友，她很孤独。" 真嗣又露出了一个微笑。"我。"
+
+"I know you're not the same as her. You come from a world far more broken, from a past that's scarier than any horror movie I've ever seen. There's just no comparing the two, with what little I know about you and the others. But..." Shinji lightly nudged her shoulder with a fist. "Instead of bottling it all up, if you ever need to vent, come see me. A few scrapes and bruises are nothing this little thing can't fix."  
+"我知道你和她不一样。你来自一个更加破碎的世界，来自一个比我看过的任何恐怖电影都更可怕的过去。仅凭我对你的了解和其他人的情况，两者之间几乎无法比较。但是..." 真嗣轻轻地用拳头碰了碰她的肩膀。"与其把一切都憋在心里，如果你需要发泄，来找我。几处擦伤和瘀伤，这个小东西都能搞定。"
+
+At his words, his bracelet lit up. Both of their injuries started to glow with an odd, eerie, but somehow warm and comforting green light, before fading away, taking the pain with them. Standing up, he offered her his hand.  
+他的话音刚落，手镯便亮了起来。两人的伤口开始散发出一种奇异、阴森却又莫名温暖和安慰的绿光，随后渐渐消失，连同疼痛一起带走。他站起身，向她伸出手。
+
+"I'm sorry for hitting you. I wasn't doing it with malicious intent."  
+“对不起，我打了你。我并非恶意为之。”
+
+Crimson stared at the hand for a moment, before laughing. A true laugh, without any of the mirth, ruthlessness or hate she had displayed before. Taking the hand, she stood up and turned around, hiding her face from him.  
+绯红盯着那只手片刻，随即笑了起来。这是发自内心的笑声，没有之前展现出的任何欢乐、无情或仇恨。她握住他的手，站起身，转过头去，不让他看到她的脸。
+
+"You're... really weird. Like, super masochistic kind of weird."  
+"你真是...太奇怪了。简直是个超级受虐狂那种奇怪。"
+
+"I've heard. Mainly from the two male idiots I call friends."  
+"我听说过。主要来自我那两个称之为朋友的蠢货。"
+
+"But even so. This wasn't a... bad little chat."  
+"尽管如此。这次聊天倒也不...坏。"
+
+_"She calls that a 'chat'?"_ Shinji thought grimly to himself as he watched her walk away. She stopped as she reached the door to the roof.  
+"她管那叫'聊天'？" 真嗣阴沉地想着，看着她走开。当她走到通往屋顶的门前时，她停了下来。
+
+"Oh, and one more thing." She turned to face him, smiling. A smile that mirrored the warm smiles he had seen the other Asuka displaying lately.  
+"哦，还有一件事。" 她转过身来面对他，微笑着。这个微笑与他最近看到的另一个明日香所展现的温暖笑容如出一辙。
+
+"Shinji, you taste pretty good. I think I'll take you up on more of our little chats in the future..." She winked as she walked through the door lading down from the roof.  
+"真嗣，你味道不错。我想我会接受我们未来更多的这种小聊天的..." 她眨了眨眼，穿过通往屋顶的门离开了。
+
+Shinji, for his part, was wondering what kind of monster he had managed to unleash on himself once again. He was going to have to cover his whole body in fish oil at some point.  
+对于自己的所作所为，真嗣不禁疑惑自己究竟又释放了什么样的怪物。他可能得在某一刻全身涂满鱼油。
+
+---
+
+_Long. Ass. Chapter. DONE!  
+漫长的章节，终于完成了！_
+
+_Tell me what you guys think in a review! Or if you want to feel a bit more involved with the development of Angel, head on either to Sufficient Velocity, search TailoftheDevil or Angel - Evangelion.  
+在评论中告诉我你们的想法！或者如果你想更深入地参与到《天使》的创作中，可以前往 Sufficient Velocity，搜索 TailoftheDevil 或 Angel - Evangelion。_  
+_Or to the Fanfiction forum I set up for Angel, which can be found on my profile. It'll be obvious which link you'll need to click to get there.  
+或者访问我为 Angel 创建的同人文论坛，链接在我的个人资料页可以找到。点击哪个链接进入应该很明显。_
+
+---
+### 
