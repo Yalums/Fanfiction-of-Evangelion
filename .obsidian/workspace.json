@@ -4,62 +4,15 @@
     "type": "split",
     "children": [
       {
-        "id": "b538de1d166bf94c",
+        "id": "1dca9dace8816ecd",
         "type": "tabs",
         "children": [
           {
-            "id": "d3b8f650bf594b32",
+            "id": "545ba5be142a3691",
             "type": "leaf",
             "state": {
-              "type": "markdown",
-              "state": {
-                "file": "kira862 - Spawn of Adam.md",
-                "mode": "source",
-                "source": false
-              }
-            }
-          },
-          {
-            "id": "0a2fceb2f86f7046",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Panther2G - Advice and Trust Backstage.md",
-                "mode": "source",
-                "source": false
-              }
-            }
-          },
-          {
-            "id": "131556b9fb584559",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "kira862 - ❤️Two of Us.md",
-                "mode": "source",
-                "source": false
-              }
-            }
-          }
-        ],
-        "currentTab": 2
-      },
-      {
-        "id": "bd09807c54bdee3e",
-        "type": "tabs",
-        "children": [
-          {
-            "id": "bca99ee74e41be3e",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "jcmoorehead - Braver Than We Are.md",
-                "mode": "source",
-                "source": false
-              }
+              "type": "empty",
+              "state": {}
             }
           }
         ]
@@ -99,7 +52,7 @@
             "state": {
               "type": "search",
               "state": {
-                "query": "file:the little angel",
+                "query": "",
                 "matchingCase": false,
                 "explainSearch": true,
                 "collapseAll": true,
@@ -128,7 +81,6 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "kira862 - ❤️Two of Us.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -145,7 +97,6 @@
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "kira862 - ❤️Two of Us.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               }
@@ -167,9 +118,7 @@
             "type": "leaf",
             "state": {
               "type": "outline",
-              "state": {
-                "file": "kira862 - ❤️Two of Us.md"
-              }
+              "state": {}
             }
           }
         ]
@@ -189,20 +138,20 @@
       "workspaces:管理工作区布局": false
     }
   },
-  "active": "131556b9fb584559",
+  "active": "545ba5be142a3691",
   "lastOpenFiles": [
-    "未命名.md",
+    "kira862 - ❤️Spawn of Adam.md",
+    "jcmoorehead - Braver Than We Are.md",
     "kira862 - ❤️Two of Us.md",
+    "Jullytta - My first kiss was a little like this.md",
+    "Panther2G - Advice and Trust Backstage.md",
+    "未命名.md",
     "Bardic Jester - ❤️This Way.md",
     "Consciousness Rising - Peace and Company.md",
     "SheriffJohnStone - Moon.md",
     "SheriffJohnStone - Please Come Home.md",
     "SheriffJohnStone - Care.md",
-    "Jullytta - My first kiss was a little like this.md",
-    "Panther2G - Advice and Trust Backstage.md",
     "Panther2G - A Crown of Stars.md",
-    "kira862 - Spawn of Adam.md",
-    "jcmoorehead - Braver Than We Are.md",
     "Panther2G - Birthday Candles.md",
     "Panther2G - Costumes & Games.md",
     "Panther2G - Evangelion：The Hangover.md",
