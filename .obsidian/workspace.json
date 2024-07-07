@@ -11,9 +11,31 @@
             "id": "545ba5be142a3691",
             "type": "leaf",
             "state": {
-              "type": "empty",
-              "state": {}
-            }
+              "type": "markdown",
+              "state": {
+                "file": "kira862 - ❤️Two of Us.md",
+                "mode": "source",
+                "source": false
+              }
+            },
+            "group": "ef4ed6e4b7667142"
+          }
+        ]
+      },
+      {
+        "id": "e300cd618a38c14b",
+        "type": "tabs",
+        "children": [
+          {
+            "id": "73c5726d8f8f33b0",
+            "type": "leaf",
+            "state": {
+              "type": "outline",
+              "state": {
+                "file": "kira862 - ❤️Two of Us.md"
+              }
+            },
+            "group": "ef4ed6e4b7667142"
           }
         ]
       }
@@ -81,6 +103,7 @@
             "state": {
               "type": "backlink",
               "state": {
+                "file": "kira862 - ❤️Two of Us.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -97,6 +120,7 @@
             "state": {
               "type": "outgoing-link",
               "state": {
+                "file": "kira862 - ❤️Two of Us.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               }
@@ -118,7 +142,9 @@
             "type": "leaf",
             "state": {
               "type": "outline",
-              "state": {}
+              "state": {
+                "file": "kira862 - ❤️Two of Us.md"
+              }
             }
           }
         ]
@@ -138,7 +164,7 @@
       "workspaces:管理工作区布局": false
     }
   },
-  "active": "545ba5be142a3691",
+  "active": "73c5726d8f8f33b0",
   "lastOpenFiles": [
     "kira862 - ❤️Spawn of Adam.md",
     "jcmoorehead - Braver Than We Are.md",
