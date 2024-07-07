@@ -1,8 +1,17 @@
+[sydneyeliza](https://www.fanfiction.net/u/368268/sydneyeliza)
+
+Will she live? Or will she die? That decision rests in Shinji's hands...but there is one more thing that does not.
+她会活下来吗？还是会死去？这个决定掌握在真嗣的手中……但还有一件事，是真嗣无法掌控的。
+
+Angst 悲剧
+
 Stupidly, I forgot to add a disclaimer here when I posted this fic yesterday. Here it is:  
 愚蠢的是，昨天发布这篇同人文时我忘了加上免责声明。现在补上：
 
 Disclaimer: I don't own Evangelion, but I do think that baby Shinji is very cute!  
 免责声明：我不拥有《新世纪福音战士》，但我确实认为小真嗣非常可爱！
+
+### Chapter 1: diagnosis
 
 _She paid close attention to the panels, each focused on a live image of a certain Eva pilot, labeled with their respective names and units.  
 她仔细观察着各个面板，每个面板都聚焦于某位 EVA 驾驶员的实时影像，并标有他们各自的名字和单位。_
@@ -4844,9 +4853,2132 @@ I think that's all, beyond the fact that I really wish it would snow here.
 Happy Thanksgiving all! 祝大家感恩节快乐！
 
 ---
-### Chapter 6: assiduity
-勤奋
+### Chapter 5: despondency
+第五章：绝望
 
+In her heart, she knew—had known before—that the Second was right. But she had hoped desperately that something else would work and that they wouldn't have to come to this—their _last_ hope—because if it failed…  
+在她心中，她明白——早已明白——第二位是对的。但她曾绝望地希望有其他办法能奏效，他们不必走到这一步——他们最后的希望——因为如果失败了……
+
+Namika slid a thick leather-bound book out of its place on her bookshelf of medical encyclopedias and opened it, flipping relentlessly through the pages until she found what she was looking for.  
+纳米卡从她的医学百科书架上抽出一本厚厚的皮革装订书，打开它，无情地翻阅着页面，直到找到她要找的内容。
+
+All the basic "match" stuff about bone marrow transplants was common knowledge in these ages, even if the full mechanics remained a mystery except for those in the medical field. Everyone knew that a matched donor gave the patient the best hope for life and that a close relative—preferably a brother or sister—was most likely to have the same HLA antigens on their white blood cells. Which, of course, put Misato at a disadvantage.  
+在这个时代，关于骨髓移植的基本“匹配”知识已是常识，尽管其完整的机制仍只有医疗领域的人士才了解。大家都知道，匹配的供体为患者提供了最大的生存希望，而近亲——最好是兄弟或姐妹——最有可能拥有相同的 HLA 抗原。当然，这对美里来说是个不利因素。
+
+She remembered once, many years ago, when the conversation at their table had switched around to their families. Ritsuko had shut up almost immediately. Misato said nothing either. Everyone knew who she was and who her father _had_ been. Namika had not thought it appropriate then to question about her mother. She had not expected it to become a necessity in the future.  
+她记得多年前的一次，当时餐桌上的话题转到了各自的家庭。律子几乎立刻就闭口不言了。美里也没有说什么。大家都知道她是谁，她的父亲是谁。那时，七美并没有觉得有必要询问她的母亲。她没想到这会在未来成为一种必要。
+
+She glanced out of the window and opened it to give herself a full view. Christmas had gone and passed, as had New Year's. Misato had recovered decently from her sudden collapse, and the doctor had even chosen to let her go home for two days—forty-eight hours, and no more. It made her smile, remembering how Misato's eyes had lit up like a child on Christmas morning when she heard the news. Kaji drove her home, all dressed up in Asuka's gown, and Ritsuko drove Shinji and Asuka, though both adults scattered soon afterwards—after all, they didn't live in the Katsuragi residence.  
+她瞥了一眼窗外，推开窗户以便一览无余。圣诞节已经过去，新年也已结束。美里从那次突然的昏倒中恢复得不错，医生甚至允许她回家两天——四十八小时，不能再多。这让她微笑起来，回想起美里听到消息时，眼中闪烁着如同圣诞早晨的孩子般的光芒。加持开车送她回家，她穿着明日香的礼服，而律子则载着真嗣和明日香，尽管两位成年人随后很快就各自散去——毕竟，他们并不住在葛城家。
+
+"I want you to call me immediately—and I mean IMMEDIATELY—if you feel any discomfort," she had instructed Misato, "and you two—" gesturing to Shinji and Asuka: "make sure she does so."  
+“如果你感到任何不适，我要你立刻——我是说立刻——给我打电话，”她曾这样叮嘱美里，“还有你们两个——”她向真嗣和明日香示意：“确保她这样做。”
+
+---
+
+"You used the plant for a Christmas tree?"  
+“你用那棵植物当圣诞树？”
+
+Misato couldn't help from giggling. Whatever feelings of despair that had plagued her a few weeks ago were long gone, replaced with bubbles of giddiness as Asuka and Shinji related all the tales of the days they had spent together, leaving out the loneliness and suspense.  
+美里忍不住咯咯笑了起来。几周前困扰她的绝望感早已消失无踪，取而代之的是一股股兴奋的气泡，随着明日香和真嗣讲述他们共同度过的日子里的种种趣事，那些孤独和紧张的情节都被省略了。
+
+"And then Asuka burned three pancakes in a row—"  
+“然后明日香一连烧焦了三张煎饼——”
+
+"You stepped on Pen-pen's flipper in the night—"  
+“你晚上踩到了企鹅潘-潘的鳍——”
+
+"—Asuka had just tripped over her German dictionary—"  
+"—明日香刚刚被她的德语词典绊倒了—"
+
+"—at least I wasn't peeping while you were showering!"  
+"—至少我没在你洗澡时偷看！"
+
+"I DID NOT!" "我没有！"
+
+"DID TOO!" "就是有！"
+
+"DID NOT! I didn't know you were in there!" Shinji protested, his face beet red.  
+"才没有！我不知道你在里面！" 真嗣抗议道，脸红得像甜菜根。
+
+The temporarily silence, consisting of Shinji and Asuka glaring daggers at each other, was temporarily broken by Misato clapping her hands and laughing.  
+短暂的沉默被打破了，真嗣和明日香互相瞪着对方，这时美里拍手大笑，打破了僵局。
+
+"Oh, that's beautiful, just beautiful…"  
+"哦，真是太美了，简直美极了……"
+
+Asuka and Shinji glared at each other and decided to reconcile their differences later.  
+明日香和真嗣互相瞪了一眼，决定稍后再解决他们之间的分歧。
+
+Misato looked lovely despite the weight she had lost; the red tone of the dress went nicely with her dark eyes and hair. She wore Shinji's necklace around her neck, and it swung back and forth from time to time as she leaned forward. Asuka saw it, smiled, and instinctively reached up to touch her own. Burned pancakes or not, she appreciated the boy more than she cared to admit.  
+尽管体重减轻了，美里看起来依然很迷人；那件红色的裙子与她深邃的眼睛和黑发相得益彰。她脖子上戴着真嗣送的项链，随着她前倾的动作不时摇摆。明日香看到了，微笑着，本能地伸手去摸自己的项链。尽管煎饼烧焦了，但她对那个男孩的欣赏之情远超她愿意承认的程度。
+
+"And school?" Misato asked.  
+"学校呢？" 美里问道。
+
+"It's decent," Asuka proclaimed. "I eat lunch with Hikari every day in the hallway since it's _so_ cold outside nowadays. And I have a 98 in Japanese literature now! I've been working on my kanji."  
+"还不错，" 明日香宣称，"我每天都在走廊里和光一起吃午饭，因为现在外面太冷了。而且我的日本文学成绩现在是 98 分！我一直在练习我的汉字。"
+
+Misato reached across the table and gave Asuka a hug. The Second Child was touched, but couldn't help feeling a tinge of sadness at how weak her arms were now.  
+美里伸手越过桌子拥抱了明日香。二号机驾驶员感动不已，但仍不禁感到一丝悲伤，因为她的手臂现在变得如此无力。
+
+"I wish I could go outside for a little while," Misato mused. "I'm so sick of being inside."  
+"我真希望能出去一会儿，" 美里沉思道，"我真是受够了待在室内。"
+
+"It's kind of cold outside though," Shinji pointed out.  
+"不过外面挺冷的，" 真嗣指出。"
+
+Asuka stood up. "Why should that matter if we bundle her up properly? Here, put on some pants under your dress, and take my boots—Shinji, get her winter jacket, the one with the hood—"  
+明日香站了起来。"只要我们给她穿暖和点，这有什么关系？来，在你的裙子下面再穿条裤子，穿上我的靴子——真嗣，去拿她的冬装外套，带帽子的那件——"
+
+"You know Dr. Ishiyama would never allow this," he whispered, as Asuka ducked into the closet for the winter boots.  
+“你知道石山博士绝不会允许这种事，”他低声说，而明日香正弯腰钻进衣柜寻找冬靴。
+
+"It's time she had some freedom," Asuka insisted. Her voice came out muffled as she searched behind the rack of clothes. "At the first sign of anything, we'll call NERV."  
+“是时候让她有些自由了，”明日香坚持道。她的声音因在衣架后搜寻而显得有些含糊。“一旦有任何动静，我们就联系 NERV。”
+
+Shinji hesitated. "Ten minutes only."  
+真嗣犹豫了一下。“只限十分钟。”
+
+"Ten minutes," she agreed.  
+“十分钟，”她同意道。
+
+They bundled Misato up as warmly as they could get. Asuka removed a pair of leather gloves from the jacket's pockets and insisted that she wear them, as well as an old, ragged blue scarf ("Well, it's the only one I can find.")  
+他们尽可能地把美里裹得暖暖的。明日香从夹克口袋里拿出了一副皮手套，坚持让她戴上，还有一条旧旧的、破烂的蓝色围巾（“嗯，这是我唯一能找到的。”）
+
+She loved being able to walk on her own and having Shinji and Asuka on either side. Being waited on constantly had initially been interesting, but it soon grew old when the only reason the nurses did so was because she couldn't do it herself.  
+她喜欢自己走路，身边有真嗣和明日香一左一右陪伴着。起初，被人不断照顾还挺有趣，但很快这种新鲜感就消失了，因为护士们这么做只是因为她自己做不到。
+
+They entered the elevator and Misato pushed the button for L1.  
+他们进入电梯，美里按下了 L1 的按钮。
+
+"It's hot," she complained, as the elevator slowly lowered itself down to the first floor.  
+“好热，”她抱怨道，电梯缓缓下降到一楼。
+
+"You won't think that when you get outside."  
+“你出去后就不会这么想了。”
+
+She had to agree with them when the time came. The cold air bit her skin and stung her nose and ears. Nevertheless, she followed Asuka and Shinji eagerly, like little children, into the parking lot where her old, broken down car lay unused.  
+当那一刻来临时，她不得不赞同他们的意见。寒风刺骨，她的皮肤、鼻子和耳朵都感到刺痛。尽管如此，她还是像小孩子一样急切地跟着明日香和真嗣，走进了停车场，那里停放着她那辆老旧破损、久未使用的汽车。
+
+"Hey, it's you," she laughed, touching the trunk affectionately to make two handprints in the snow.  
+“嘿，是你呀，”她笑着，温柔地触摸着后备箱，在雪地上留下了两个手印。
+
+"HEY!" "嘿！"
+
+Shinji rubbed the back of his head, having just been attacked by a perfectly aimed snowball from Asuka. In an instant he was off chasing her for revenge, crumpling snow into as tight a ball as he could manage while he ran.  
+真嗣揉着后脑勺，刚刚被明日香一个精准的雪球击中。转眼间，他便开始追逐她以图报复，一边跑一边将雪捏成尽可能紧实的雪球。
+
+Misato dipped her fingers into the powdery snow and sprinkled them over Asuka's red hair as she passed.  
+美里将手指浸入粉末般的雪中，撒向经过的明日香的红发。
+
+"That's not fair!" Asuka whined, but the short moment she paused gave Shinji the opportunity to launch another snowball at her face.  
+“这不公平！”明日香抱怨道，但她短暂的停顿给了真嗣再次向她脸上扔雪球的机会。
+
+"Sorry." "对不起。"
+
+"Don't apologize, Third Child." Asuka seized a handful of snow and rubbed it in his face. "Or you're going to regret it."  
+“别道歉，第三适格者。”明日香抓起一把雪，抹在他的脸上。“否则你会后悔的。”
+
+"Hey, hey, HEY!" “嘿，嘿，嘿！”
+
+While Asuka busied herself keeping Shinji on the ground as she rubbed snow onto his face, ignoring his howls, Misato slowly bent her knees, wincing as she heard them crack. She gathered a small handful of snow and packed it into a tiny, compact sphere, then slowly added more to it. Shinji's shrieks were growing higher pitched now, and Asuka did not relent.  
+当明日香忙着让真嗣躺在地上，用雪搓他的脸，无视他的嚎叫时，美里慢慢地弯下膝盖，听到它们发出嘎吱声时皱了皱眉。她抓起一小把雪，捏成一个微小的紧实球体，然后慢慢地往里加雪。真嗣的尖叫声越来越高，但明日香并未停手。
+
+Misato stared at the snowball in her hand, then suddenly pulled her arm back and let it fly. It smashed into tiny pieces on Asuka's shoulder.  
+美里盯着她手里的雪球，突然向后一甩手臂，将它扔了出去。雪球在明日香的肩膀上碎裂开来。
+
+"HEY!" the girl shouted, whirling around. In that one moment Shinji recovered and leapt to his feet, but this time didn't attack in retaliation.  
+"嘿！" 女孩大喊一声，猛地转过身来。就在那一刻，真嗣恢复了过来，跳起身来，但这次没有进行报复性的攻击。
+
+"That was a pretty good shot," he commented, with real admiration in his voice. "I saw that coming."  
+"那一击相当不错，" 他评论道，声音中带着真挚的赞赏。"我早料到了。"
+
+"Why didn't you warn me!"  
+"你为什么不提醒我！"
+
+"Er…was I supposed to?" "呃…我应该这么做吗？"
+
+"Baka." Asuka pushed him over again.  
+"笨蛋。" 明日香再次把他推倒。
+
+---
+
+"You look happy today."  
+"你今天看起来很开心。"
+
+"You look pretty today," Misato commented, as the doctor flipped a page on the newly added calendar that hung above her television. "What? You do."  
+"你今天看起来很漂亮，" 美里评论道，医生翻开了挂在电视上方新挂历的一页。"什么？你确实很漂亮。"
+
+"Thanks. Anyway." She took a seat on the nearest chair and began without preamble. "I've just been looking over your latest test results, and I've come to the conclusion that your best option is to do a bone marrow transplant."  
+"谢谢。话说回来。" 她坐在最近的椅子上，开门见山地说道。"我刚刚看了你最新的检查结果，得出的结论是，你最好的选择是进行骨髓移植。"
+
+Silence. 沉默。
+
+"Misato?" “美里？”
+
+"I'm just thinking," she said quietly. "Doesn't that require one of my relatives…or something?"  
+"我只是在想，" 她轻声说道。"那不是需要我的一个亲属……或者什么的吗？"
+
+Namika leaned forward slightly. "Are there any that might be willing?"  
+Namika 微微前倾。“有没有可能愿意的呢？”
+
+"I have none alive," Misato stated flatly. "My mother died some ten years ago."  
+“我没有活着的亲人，”Misato 平淡地说。“我母亲十年前去世了。”
+
+"Oh," Namika said softly, returning to her normal sitting stance. "Well, we can try for a non-related donor then."  
+“哦，”Namika 轻声说，恢复了正常的坐姿。“那么，我们可以尝试找一个非亲属的捐赠者。”
+
+"That's pretty unlikely though, isn't it?"  
+"那可能性不大，不是吗？"
+
+Namika thought back to a time before Second Impact, before she had decided to become a doctor, when the word had been spreading about the need for bone marrow donors and people had signed up by the thousands. Time and energy had been diverted toward much more pressing needs after the year 2000.  
+直美回想起第二次冲击之前，那时她还未决定成为医生，关于需要骨髓捐献者的消息正在传播，成千上万的人报名捐献。2000 年后，时间和精力被转移到了更为紧迫的需求上。
+
+"We'll try," she promised.  
+"我们会尝试的，"她承诺道。"
+
+"I really don't have any other options, do I?"  
+"我真的没有其他选择了，是吗？"
+
+"Not really." Namika was forced to concede. Out of the corner of her eye she saw the Major shift.  
+"确实没有。" 纳米卡不得不承认。她眼角的余光瞥见少校移动了一下。
+
+"All right then. Let's go for it."  
+"好吧，那就这么办吧。"
+
+---
+
+"Why's Sorhyu getting out of Sensei's lectures early?" Touji grumbled. His stomach growled, and he recalled with annoyance that he had forgotten to pack his lunch. He glanced jealously at Hikari Horaki, who always had the best lunches. Perhaps he'd be able to convince her to share a bit with him.  
+"“为什么索菲尤总是提前离开老师的课？” 东治嘟囔着。他的肚子咕噜作响，他懊恼地想起自己忘了带午餐。他嫉妒地瞥了一眼总是带最好午餐的洞木光。也许他能说服她分一点给他。”
+
+"Because I am divine, stooge," she muttered, slinging her bag over her shoulder and disappearing out the door. "See you, Hikari."  
+"“因为我就是神，傻瓜，”她低声嘀咕，把书包甩到肩上，消失在门外。“再见，洞木。””
+
+"Well, it must not be NERV related," Shinji commented quietly. "I haven't been called… and neither has Ayanami…"  
+"“嗯，肯定和 NERV 无关，”真嗣轻声评论道。“我没有被叫……绫波也没有……””
+
+Asuka, too, had no idea what she was being called to NERV for, but she didn't let this show in front of her classmates. She had a reputation to maintain, after all, but once she boarded the nearly-empty train, her fingers twisted into knots and she crossed her legs, clearly uncomfortable with the situation.  
+明日香同样不知道自己被叫到 NERV 是为了什么，但她没有在同学面前表现出这一点。毕竟，她还得维持自己的形象，但一旦登上几乎空无一人的列车，她的手指就纠结在一起，双腿交叉，显然对这种情况感到不安。
+
+Her sync ratios had been stable in the last few weeks.  
+她的同步率在过去几周一直很稳定。
+
+The angel alarms had not gone off.  
+天使警报并未响起。
+
+Misato— 美里——
+
+Asuka pushed that thought out of her mind.  
+明日香将这个念头从脑海中赶走。
+
+_They'd call Shinji and Wondergirl if anything had happened.  
+如果有事发生，他们会联系真嗣和那个书呆子的。_
+
+"I'm here, Dr. Akagi," she called out upon entering the Geofront. "What do you need me for?"  
+"我来了，赤木博士，"她一进入地底空洞就喊道，"需要我做什么？"
+
+"You're not needed here, you're needed at the hospital," Ritsuko informed her, watching her beadily over the rim of her spectacles.  
+"这里不需要你，医院那边需要你，"赤木律子透过眼镜框盯着她，冷冷地告诉她。"
+
+After she had disappeared, Maya asked softly, "Sempai, why?"  
+在她离开后，真希波轻声问道："前辈，为什么？"
+
+Ritsuko shrugged without response and turned back to the report clamped to her clipboard, absentmindedly tracing the bolded _Unit_ _03_ splashed across the top of page.  
+律子无言地耸了耸肩，转回夹在文件夹上的报告，心不在焉地沿着页首加粗的“三号机”字样划过。
+
+---
+
+"I need a compass," Asuka growled. When she was piloting her Eva she had free reign of Tokyo-3—no need to follow roads or paths—but a few twists and turns within the many hallways of the NERV building soon had her perplexed. It was relief that she finally found the hospital and entered, this time making her way directly to the head doctor's office.  
+“我需要个指南针。”明日香咆哮道。驾驶 Eva 时，她在第三新东京市可以自由行动——无需遵循道路或路径——但 NERV 总部内错综复杂的走廊很快让她感到困惑。最终找到医院并进入，这次她直接走向主治医生的办公室，心中松了一口气。
+
+She knocked twice. 她敲了两下门。
+
+"Come in." Namika laid down her clipboard. "Good afternoon, Pilot Sorhyu."  
+“请进。”奈美放下文件夹，“下午好，惣流驾驶员。”
+
+"Good afternoon." “下午好。”
+
+"Are you still willing to be tested to see if you're a match for Major Katsuragi?" she asked, rising to her feet and pushing in her chair.  
+“你还是愿意接受测试，看看是否与葛城美里少校匹配吗？”她站起身，将椅子推回原位问道。
+
+Asuka's eyes widened. Quickly she regained her composure, and there was no doubt in her voice when she spoke.  
+明日香的眼眸微微睁大。她迅速恢复了镇定，语气中没有丝毫犹豫。
+
+"Yes." "是的。"
+
+"Follow me." "跟我来。"
+
+They led her into a tiny, windowless room with blinding white walls and a white bed, upon which she was made to sit while the doctor organized supplies.  
+他们带她进了一个没有窗户的小房间，墙壁白得刺眼，里面有一张白色的床，她被要求坐在上面，而医生则在整理医疗用品。
+
+"Hold out your arm." "伸出你的手臂。"
+
+She did so, and Namika sterilized it with a dab of alcohol.  
+她照做了，纳美卡用一点酒精轻轻擦拭进行消毒。
+
+The needle went into her arm without warning. Asuka watched disinterestedly while the small tube filled with her blood. The doctor slid the needle out deftly, wiped the puncture with a sterile piece of gauze, and taped a colorful bandage over it.  
+针头毫无预警地扎进了她的手臂。明日香漠然地看着小管子渐渐充满她的血液。医生熟练地拔出针头，用一块无菌纱布擦拭了针孔，并贴上了一个色彩鲜艳的创可贴。
+
+"You're free to go." “你可以走了。”
+
+"When'll we know the results?" she queried.  
+“我们什么时候能知道结果？”她问道。
+
+"In a few days," the doctor promised. "Anything else?"  
+“几天后，”医生承诺道，“还有其他事吗？”
+
+"No."
+
+Asuka tore off the bandage and threw it in the trash on her way out.  
+明日香撕下绷带，出门时顺手扔进了垃圾桶。
+
+---
+
+"What's wrong with your arm, Asuka?"  
+“你的手臂怎么了，明日香？”
+
+"It hurts," she grumbled. Getting blood drawn was not supposed to be a big deal—she had had the procedure done many times before—but somehow this time it was bruising severely, as if someone had punched her in the crook of her elbow.  
+“疼，”她咕哝着。抽血本不该是什么大事——她以前做过很多次——但不知怎么的，这次却严重淤青，好像有人在她肘弯处打了一拳。
+
+Shinji looked concerned. "Do you want some ice for it? Or a heating pad?"  
+真嗣看起来很担心。“你需要冰敷一下吗？还是用热敷垫？”
+
+"N—" Asuka started to say, then changed her mind. "That would be quite nice, actually."  
+"N—" 明日香刚开口，随即改变了主意。"其实，那样挺好的。"
+
+Shinji smiled and disappeared to the kitchen.  
+真嗣微笑着消失在厨房里。
+
+Asuka nursed her arm with the other hand and stared down at Pen-pen, who was fast asleep on his back after having finished his meal. _Suspense is worse than knowing_, she thought worriedly. She wished she had asked the doctor for a more specific date. A "few" days could mean anywhere from two to five.  
+明日香用另一只手护理着她的手臂，低头凝视着吃饱后仰面朝天熟睡的企鹅 Pen-pen。未知的悬念比已知更让人焦虑，她忧心忡忡地想。她真希望自己能向医生询问一个更确切的日期。"几天"可能意味着从两天到五天不等。
+
+"Here you go," Shinji handed her the heating pad. His eyes widened at the sight of her bruised arm. "What happened to you?"  
+"给你，" 真嗣递给她加热垫。看到她瘀青的手臂，他的眼睛睁大了。"你怎么了？"
+
+"I had some blood drawn... nothing too serious." Asuka was reluctant to tell him the truth, wanting instead to avoid the subject.  
+"抽了点血...没什么大不了的。" 明日香不愿告诉他真相，宁愿避开这个话题。"
+
+"Oh…" Shinji suddenly felt rather guilty. "You're not supposed to put heat on bruises… I'll go make you an ice pack instead."  
+"哦…" 真嗣突然感到相当内疚。"你不应该在瘀伤上加热… 我去给你做个冰袋。"
+
+"Don't, Third," Asuka called. "It's cold enough in this place. I'll freeze if I have to place ice on my arm." He hesitated, and she patted the chair next to him. "Come sit here and talk to me for awhile."  
+"别这样，三号，" 明日香喊道。"这个地方已经够冷了。如果我得在手臂上放冰块，我会冻僵的。" 他犹豫了一下，她拍了拍他旁边的椅子。"过来坐这儿，陪我聊一会儿。"
+
+Shinji obeyed. 真嗣顺从了。
+
+"So what were you doing, skulking around the house when I came in?"  
+"那么，我进来时你鬼鬼祟祟地在屋里做什么？"
+
+"I was looking for a calculator," Shinji replied smoothly, "…so I could finish the problems Sensei left us in class." He shifted uneasily. "I'm kind of worried about tomorrow's exam…"  
+"我在找计算器，" 真嗣流畅地回答，"……这样我就能完成老师在课上留给我们的题目了。" 他不安地挪动了一下。"我对明天的考试有点担心……"
+
+Asuka laughed. "What I like, you hate. What you hate, I like." Seeing Shinji's baffled expression, she elaborated, "Algebra doesn't require nearly as much knowledge of kanji as any of the other things we do in school. Besides, I've done all of this before in college, so it's easy for me."  
+明日香笑了。"我喜欢的东西，你讨厌。你讨厌的东西，我喜欢。" 看到真嗣困惑的表情，她进一步解释道，"代数不需要像我们在学校做的其他事情那样掌握那么多汉字。而且，我在大学里已经做过所有这些了，所以对我来说很简单。"
+
+"You're lucky." "你真幸运。"
+
+She shrugged. "Well, I have to redo several years of high school after graduating college, in a language I'm not too familiar with. That's not really something you'd want to do."  
+她耸了耸肩。“好吧，我得在大学毕业后，用一种不太熟悉的语言重读几年的高中。这不是你真正想做的事情。”
+
+"I guess…" “我想……”
+
+When it became apparently that he wasn't going to say anything else, she took the initiative.  
+当明显看出他不会再多说什么时，她主动出击了。
+
+"Come on, Third Child… get your books, and I'll explain DeMoivre's Theorem to you."  
+"来吧，三号孩子……带上你的书，我来给你解释德莫弗定理。"
+
+"Are you sure?" Shinji hesitated. "I-I don't want to bother you or anything, I mean…"  
+"你确定吗？" 真嗣犹豫了。"我……我不想打扰你或者别的什么，我是说……"
+
+"Just do it." "就这么做吧。"
+
+He copied while she talked, and then she forced him to reiterate her words in a way that convinced her he had understood.  
+她说话时他抄写着，随后她逼迫他用一种让她确信他已理解的方式复述她的话。
+
+"Three root two." “三倍根号二。”
+
+"Three? I thought negative three." Asuka frowned at the paper and pointed to the mistake. "You dropped a negative sign there, Shinji."  
+“三？我以为是负三。”明日香皱眉看着纸张，指出了错误。“你那里漏了一个负号，真嗣。”
+
+"Sorry," he mumbled and fumbled with his eraser. A moment later he noticed that not only had Asuka not insulted him, she had called him Shinji. The girl wore a sad and faraway expression, as if she were in a world of her own. He finished the problem, took a deep breath, and went out on a limb.  
+"对不起，" 他咕哝着，摆弄着手中的橡皮。片刻后，他注意到不仅明日香没有骂他，还叫了他的名字真嗣。女孩脸上带着悲伤而遥远的表情，仿佛置身于自己的世界。他完成了题目，深吸一口气，鼓起勇气开口。
+
+"Do you want me to teach you some kanji?"  
+"你想让我教你几个汉字吗？"
+
+She perked up again at this and seemed to consider. "If you don't mind."  
+听到这话，她又振作起来，似乎在考虑。"如果你不介意的话。"
+
+Shinji fetched the book, and Asuka curled up her legs and put her head on his shoulder, maintaining the ice pack on her elbow with the other hand. Shinji blushed crimson, quickly chose a page, cleared his throat, and began to read.  
+真嗣取来书，明日香蜷起双腿，将头靠在他的肩上，另一只手继续用冰袋敷着肘部。真嗣的脸红得像熟透的番茄，迅速翻到一页，清了清嗓子，开始朗读。
+
+---
+
+"Tired?"  "累了？"
+
+"Stop rubbing it in," Namika grumbled, rubbing her eyes. However, all that served was to fog them up, and she muttered darkly as she removed her glasses and wiped them on the hem of her shirt.  
+"别再说了，" 奈美卡咕哝着，揉了揉眼睛。然而这只会让镜片蒙上雾气，她低声抱怨着摘下眼镜，用衣角擦拭。
+
+"You know I'm not trying to," Ritsuko countered, taking a seat and sliding the phone book over to her. "Are you really calling them up one by one, trying to find Misato a relative?"  
+"你知道我不是那个意思，" 律子反驳道，坐了下来，把电话簿推给她。"你真的要一个个打电话，试图为美里找到一个亲戚吗？"
+
+"Somebody's gotta be alive," Namika muttered cryptically. "Damn people won't admit it."  
+"总得有人活着吧，" 美里含糊地嘀咕着。"该死的人就是不肯承认。"
+
+Ritsuko glanced at the massive microfuge, spinning along merrily and making its faint whirring sound without pause before suddenly coming to a stop.  
+律子瞥了一眼那台巨大的微量离心机，它愉快地旋转着，发出微弱的嗡嗡声，不停地运转，然后突然停了下来。
+
+"Can you put those on ice and shove it in the freezer?"  
+"你能把这些冷冻起来，然后放进冰箱吗？"
+
+Ritsuko obeyed. "How are the results coming?" she asked, although she already knew the answers.  
+律子遵从了。“结果怎么样了？”她问道，尽管她已经知道答案。
+
+"The Second's not a match."  
+"二号机不匹配。"
+
+"She's German," Ritsuko said, as if that settled the situation.  
+"她是德国人，" 律子说，仿佛这就能解决问题了。
+
+"Well, I couldn't help but hope. Yours came back negative too. So did mine. As did that of your bespectacled technician."  
+"嗯，我忍不住抱有希望。你的结果也是阴性。我的也是。还有你那位戴眼镜的技术员的。"
+
+"Makoto was here?" "真琴在这里？"
+
+"Yeah, at like five in the morning…"  
+"是啊，大概早上五点钟……"
+
+Ritsuko groaned. It was going to kill Makoto to find out that he wouldn't be able to protect the woman he cared so deeply for, even if he had never voiced his feelings. "Who else showed up?"  
+律子叹了口气。要让真琴知道他无法保护他深爱着的女人，哪怕他从未表露过自己的感情，这简直是要了他的命。“还有谁来了？”
+
+"The Commander." "指挥官。"
+
+"What?" "什么？"
+
+"Yeah, he came down here at lunch and didn't say anything. It took me about ten minutes to notice he was standing in the doorway, and when I finally got around to addressing him, all he did was stick out his arm."  
+"是啊，他午饭时下来了，一句话也没说。我花了大约十分钟才注意到他站在门口，当我终于注意到他时，他只是伸出了手臂。"
+
+"Interesting…" "有意思……"
+
+Namika snorted. "Believe it or not, he's got the closest match to Misato so far. If all else fails we're going to have to use him."  
+Namika 嗤之以鼻。"信不信由你，他是目前为止最接近 Misato 的人选。如果其他方法都不行，我们就得用他了。"
+
+She pulled the phone book back over and picked up the telephone. Ritsuko snatched it away from her.  
+她将电话簿重新拉近，拿起电话。律子一把从她手中夺了过去。
+
+"I'll call for a few hours," she said, silently wondering how many Katsuragis there could possibly be in the phone book. "You go onto sleep."  
+“我来打几个小时，”她说，暗自思忖着电话簿里究竟会有多少个姓桂的。“你去睡吧。”
+
+---
+
+"It's going to be a long healing process."  
+“这将是一个漫长的恢复过程。”
+
+"She's only a primary student. How difficult for her."  
+"她只是个小学生，对她来说真不容易。"
+
+"Has that boy come today?"  
+"那男孩今天来了吗？"
+
+"Yes, he's still coming twice a week. Such good brothers are hard to find nowadays.  
+"是的，他每周还是来两次。现在这样的好兄弟可难找了。"
+
+"Excuse me," Shinji muttered dully. The nurses immediately stopped chatting and wheeled the cart aside so that they could pass. Asuka glanced at it briefly. The girl lying upon it was perhaps six or seven years old. Her face was turned away from them.  
+"劳驾，" 真嗣含糊地嘟囔了一声。护士们立刻停止了闲聊，将推车挪到一旁，让他们通过。明日香瞥了一眼推车。躺在上面的小女孩大约六七岁。她的脸转向另一边，没有看向他们。
+
+"I didn't know they treated regular kids in here," she remarked, as the doors slid open and allowed them to leave.  
+"我没想到这里还治疗普通孩子，" 她一边说，一边随着门的滑动，他们得以离开。
+
+"Maybe she's somebody's daughter?" Shinji wondered.  
+"也许她是某人的女儿？" 真嗣猜测道。
+
+"I don't know anybody at NERV with a daughter that age."  
+"我在 NERV 里不认识任何有那个年纪女儿的人。"
+
+"One of the workers that we haven't met, maybe."  
+"可能是我们还没见过的某个工作人员吧。"
+
+Asuka thought it over and conceded. "Maybe."  
+明日香思考了一下，同意道：""也许吧。"
+
+The elevator door shut behind them. Asuka punched the appropriate button, and the car immediately began to sink.  
+电梯门在他们身后关闭。明日香按下相应的按钮，电梯随即开始下降。
+
+"I hope Touji and Hikari aren't there already."  
+“希望真嗣和光还没到。”
+
+Asuka remembered with a jolt that the two were coming over to collaborate on a school project, but didn't let on that she had forgotten. "I don't understand why we're doing a group project. It's so much easier to work on one's own—you're in charge of what you're doing, and nobody argues with you."  
+明日香心头一震，想起两人是来合作学校项目的，但她没有表露出自己忘记了这件事。“我不明白为什么要做小组项目。独自工作容易多了——你自己负责自己的部分，没人跟你争论。”
+
+"Sensei thinks it'll be better if we learn from each other," reminded Shinji, recalling that each group would prepare a presentation for the class.  
+"老师认为我们互相学习会更好，" 真嗣提醒道，回想起每个小组都要为班级准备一个报告。
+
+"I can learn on my own," Asuka muttered. "Though I don't understand why I got paired with that stooge and you with Hikari. It would be much better if it was the other way around."  
+"我可以自学，" 明日香嘟囔着。"虽然我不明白为什么我和那个呆子一组，而你和光一组。要是反过来就好了。"
+
+"You would rather work with me?"  
+"你宁愿和我一起工作？"
+
+"Obviously, since—HEY! I meant that it would be wonderful for Hikari and the stooge to have a chance together, not that—that I'd enjoy working with you!"  
+“显然，因为——嘿！我的意思是，光和那个跟班有机会在一起会很美好，不是说我——我会喜欢和你一起工作！”
+
+Shinji didn't say anything.  
+真嗣没有说话。
+
+Hikari brought pastries with a variety of fruit fillings to share. Touji was already munching away, but Hikari's cheeks were pink with pride, and she did not hurry to lecture him.  
+光带来了各种水果馅的点心分享。东治已经在狼吞虎咽了，但光的脸上带着自豪的红晕，并没有急着去训斥他。
+
+"My dad gave me this book last night when I mentioned that we were studying nuclear chemistry," she explained, holding it up so that Shinji could see the large illustration of the Bohr model splashed across the cover.  
+"昨晚我提到我们在学核化学时，我爸给了我这本书，"她解释道，举起书让真嗣能看到封面上的玻尔模型大图。
+
+"That's great…" Shinji eyed the thick volume with apprehension. "Do you want to sit down? We can work on the table."  
+"那太好了……" 真嗣带着几分忧虑地看着那本厚厚的书。"你想坐下来吗？我们可以用桌子。
+
+"Then where are we going to work?" Asuka demanded.  
+"那我们到底要在哪儿工作？" 明日香质问道。
+
+"You can have the other side of the table," Hikari offered, graciously moving her platter of pastries. "Would you like one, Ikari-kun?"  
+"你可以坐桌子另一边，"光主动移开她的糕点盘，优雅地说道，"想尝一块吗，一成君？"
+
+"Thank you…" "谢谢你……"
+
+Asuka growled under her breath, still unhappy with the situation. "All right, stooge, you sit there, and I'm going to go get my books. And don't…"  
+明日香低声咆哮，对现状仍感不满。"好吧，跟班，你坐那儿，我去拿我的书。还有别……"
+
+The sound of mechanical laughter made her turn. Her partner had settled himself comfortably on the couch with his feet resting on the coffee table, and was lazily flipping through the channels.  
+机械般的笑声让她转过头去。她的搭档已经舒舒服服地坐在沙发上，脚搁在茶几上，懒洋洋地切换着电视频道。
+
+Oblivious to Asuka and Touji, Shinji hoisted a large sheet of posterboard onto the table, while Hikari flipped through her book.  
+未察觉到明日香和真嗣的存在，碇真嗣将一张巨大的海报板举到桌子上，而光则翻阅着她的书。
+
+"I think we ought to have an image of Rutherford's experiment with the gold foil," she suggested. "There's a nice picture of it here, we could just draw that."  
+"我认为我们应该展示卢瑟福的金箔实验图像，"她提议道。"这里有一张很好的图片，我们可以照着画。"
+
+"I'll write out his conclusions," Shinji agreed. "Green or red words?"  
+"我来写他的结论，"真嗣同意道。"用绿色还是红色字？"
+
+"Umm… red. Do you mind if the electrons are blue?"  
+"嗯……红色。电子是蓝色的，你介意吗？"
+
+"That's fine." "那没问题。"
+
+Asuka stomped over to her uncooperative partner. "What do you think you're doing?"  
+明日香气冲冲地走向她那不合作的搭档。“你以为你在干什么？”
+
+Touji pressed the "Channel up" button.  
+冬二按下了“频道上”按钮。
+
+She tried to wrestle the remote control from his hand, with no luck.  
+她试图从他手中夺过遥控器，但未能成功。
+
+"I don't know about you, but I want to do well on this project!" she shouted. "And like it or not, you're going to help me!"  
+“我不知道你怎么想，但我想在这个项目上表现出色！”她喊道，“不管你喜不喜欢，你都得帮我！”
+
+Touji changed his mind and pressed the "Channel down" button.  
+冬二改变了主意，按下了“频道下调”按钮。
+
+Asuka sighed and decided that she would rather work alone than lower herself to trying to drag him off of the couch. Shinji's voice followed her around the corner as she stalked off to her room to find paper.  
+明日香叹了口气，决定宁愿独自工作也不愿降低身份试图把他从沙发上拽下来。她蹑手蹑脚地走向自己的房间找纸时，真嗣的声音跟在她身后转过拐角。
+
+"What else do we want to add?"  
+“我们还想加些什么？”
+
+"Millikan's oil experiment was pretty significant, the one where he determined the charge of an electron. Why don't you draw that one, and I'll write the facts this time?"  
+密立根的油滴实验相当重要，就是他测定了电子电荷的那个实验。你来画那个吧，这次我来写事实。
+
+"All right." "好的。"
+
+Touji sighed and shut off the TV. He walked rigidly over to the door, put on his shoes, and muttered, "Sorry," before letting himself out.  
+冬二叹了口气，关掉电视。他僵硬地走到门口，穿上鞋子，低声说了句“对不起”，然后自己出去了。
+
+Shinji broke the silence.  
+真嗣打破了沉默。
+
+"Asuka will not be happy."  
+"明日香不会高兴的。"
+
+"I think something's really wrong with Suzuhara," Hikari whispered, a dark cloud settling over her eyes as she wrote. "He hasn't been himself lately at all. I wonder why?"  
+"我觉得铃原真的有问题，"" 光轻声说道，眼中笼罩着一层阴霾，边写边说，""他最近完全不像他自己。不知道为什么？"
+
+They silenced quickly as Asuka returned with a pad of paper and a fistful of colored markers, only to see that her partner had disappeared. Shinji braced himself mentally, hoping that Hikari would help to ease the disturbance that was soon to occur.  
+随着明日香带着一叠纸和一把彩色马克笔回来，却发现她的搭档已经不见了，他们立刻安静下来。真嗣在心里做好了准备，希望光能帮忙缓和即将发生的骚动。
+
+---
+
+"Wow, this one?" “哇，这个吗？”
+
+"We had no other choice," Ritsuko informed her glumly, recounting her earlier conversation with The Commander, who had originally wanted to use the dummy plug, then insisted that Fourth's core be prepared immediately upon learning that the dummy plug was still producing errors.  
+“我们别无选择，”律子沮丧地告诉她，回忆起之前与司令的对话，司令原本想使用模拟插头，但在得知模拟插头仍在产生错误后，坚持要求立即准备四号的核心。
+
+Misato contemplated this as she played with a fold of her hospital gown. Ritsuko had just broken the news to her, and she was not at all sure what to think of it.  
+美里一边摆弄着医院病号服的一角，一边思考着这个消息。律子刚刚向她透露了这件事，她完全不确定该如何看待。
+
+"Asuka's proud to be an Evangelion pilot. Rei, well, she doesn't have any problems with our work. But Shinji…he's been hurt enough as it is. I can't see Shinji being very happy about this; he's not super thrilled about piloting Eva in the first place and he wouldn't want anyone else to go through it. Asuka won't be happy either," she predicted. "She won't understand why someone of his caliber was selected."  
+"明日香对自己的 EVA 驾驶员身份感到自豪。丽嘛，她对我们工作没什么不满。但真嗣……他已经受够了。我看真嗣不会对此感到高兴；他本来就不太热衷于驾驶 EVA，更不希望别人经历这些。明日香也不会高兴，"她预言道。"她不会明白为什么会选择像他那样的人。"
+
+"The decision was beyond our hands," Ritsuko reminded quietly.  
+"这个决定不是我们能左右的，"律子轻声提醒道。"
+
+"I know that." "我知道。"
+
+"Will you tell him?" "你会告诉他吗？"
+
+"Why just him? What about Asuka and Rei?"  
+"为什么只告诉他？那明日香和绫波呢？"
+
+"Asuka, unfortunately, found out by accident this morning, through interrupting Kaji at work. Rei, I believe, has already been informed by The Commander." There was a strong stigma of annoyance in her tone.  
+""明日香，不幸的是，今早无意中发现的，她在工作中打断了加持。至于绫波，我相信已经被司令告知了。"" 她的语气中带着明显的恼怒。
+
+"And Shinji has been left in the dark. It doesn't seem quite fair, does it?"  
+"而真嗣一直被蒙在鼓里。这似乎不太公平，不是吗？"
+
+Ritsuko didn't know how to reply and chose to ignore the comment. "His only request was that his younger sister be placed in NERV's hospital."  
+律子不知道该如何回应，于是选择忽略这句话。“他唯一的请求就是让他的妹妹被安置在 NERV 的医院里。”
+
+"Maybe he'll tell Shinji himself."  
+“也许他会亲自告诉真嗣。”
+
+"I doubt it. He didn't look happy at all when he found out. He'll be doing his first actual test in a few days, so we'll have the TV monitor hooked up again."  
+"我怀疑。他发现时看起来一点也不高兴。几天后他就要进行第一次真正的测试了，所以我们又要重新连接电视监控器。"
+
+"Looking forward to it," Misato commented dryly.  
+"期待着呢，"美里干巴巴地评论道。"
+
+The conversation ended there.  
+对话就此结束。
+
+---
+
+"Now I understand why you said your arm hurt," Shinji remarked, lifting his free hand up again to look at his left elbow. The bruise had developed a two inch-long diameter and was quickly spreading. He was getting stares from nearby passengers on the train. Next to him, Asuka tapped her foot impatiently as if she had some important information that she could not quite conceal. She masked it by maintaining a firm hold on the topic at hand.  
+"“现在我明白你为什么说你的手臂疼了，”真嗣说道，再次举起空着的手查看左肘。瘀伤已经扩展到两英寸长，并且还在迅速蔓延。他引起了火车上附近乘客的注意。在他旁边，明日香不耐烦地跺着脚，仿佛她有一些重要的信息无法完全隐藏。她通过紧紧抓住当前的话题来掩饰这一点。”
+
+"I still don't understand why they wanted you to do it immediately. They already knew you'd agreed to it, so what was the rush?"  
+“我还是不明白他们为什么非要你立刻去做。他们已经知道你同意了，那么急什么呢？”
+
+"Because Father wants me to do some sort of testing the day after tomorrow," Shinji mumbled miserably, hanging his head. Asuka looked up at him, surprised that he didn't know, then quickly composed her face and spoke in a calm voice.  
+"“因为父亲想让我后天做某种测试，”真嗣痛苦地咕哝着，垂下了头。明日香抬头看着他，惊讶于他竟然不知道，然后迅速恢复了表情，用平静的声音说道。”
+
+"Oh yeah—damn, my memory's getting short nowadays."  
+"哦对——该死，我最近记忆力越来越差了。"
+
+When Shinji still didn't respond, she placed an arm briefly around his shoulder. "It's all worth it if you turn out to be the one who can save Misato, right?"  
+当真嗣仍然没有回应时，她短暂地用一只手臂搂住他的肩膀。“只要你能成为拯救美里的人，这一切都值得，对吧？”
+
+"Of course. I'm not a wimp… I don't mind the pain."  
+“当然。我不是懦夫……我不介意疼痛。”
+
+_There may be more coming than you can handle_, Asuka thought grimly.  
+可能会有更多你应付不来的事情，明日香阴沉地想。
+
+---
+
+Rei heard voices as she walked up the stairs, but didn't let it disturb her. Many nights her neighbors held raucous parties that lasted into the early hours of the day, and she had learned from a young age to live in whichever place NERV chose to delegate her. However, by the time she reached the fourth floor, she was quite certain that the voices were coming from her room.  
+绫波丽上楼时听到了说话声，但她没有让这打扰到自己。许多夜晚，她的邻居们会举办喧闹的派对，持续到凌晨时分，而她从小就学会了在 NERV 分配给她的任何地方生活。然而，当她到达四楼时，她非常确定这些声音是从她的房间传来的。
+
+"…changed a lot…" “……改变了很多……”
+
+"What?" "什么？"
+
+"You, Shinji. When you first came, I thought you were a jerk. You didn't seem like the kind of person who would do something for the sake of other people. I guess it's just that you're so quiet."  
+"你，真嗣。你刚来的时候，我觉得你是个混蛋。你看起来不像是那种会为了别人做事的人。我想，可能只是因为你太沉默了吧。"
+
+_Suzuhara-kun_, Rei thought, hesitating outside her room. Her gaze fell on the many envelopes that occupied the slender opening in her door designed for mail, but the sight did not penetrate her mind. _The Fourth Child._  
+铃原君，绫心想，站在她房间外犹豫不决。她的目光落在门上那个专门用来投递邮件的狭小缝隙里的许多信封上，但这一景象并未引起她的注意。第四适格者。
+
+She hesitated for a moment, trying to decide what to do. It would not be polite to intrude on their conversation, nor would it be feasible to simply stand outside her own room and eavesdrop. Rei settled on the first choice.  
+她犹豫了一会儿，试图决定该怎么做。打扰他们的对话是不礼貌的，而站在自己房间外偷听也不可行。绫波最终选择了前者。
+
+Both boys turned to look at her as she came inside and shut the door behind her without the faintest trace of surprise flickering across her face.  
+两个男孩在她进屋并随手关上门时转头看向她，她的脸上没有一丝惊讶的痕迹。
+
+Suzuhara-kun bowed to her and gestured toward her bed, on which lay a large stack of papers. "Excuse us. These are your printouts from class."  
+铃原君向她鞠了一躬，并指向她的床，上面堆着一大叠纸张。"打扰了。这些是您课堂上的打印资料。"
+
+Rei was silent, pondering what to do next. A sound from her left roused her, and she turned to see Ikari picking up wadded bandages from the floor.  
+丽沉默着，思考下一步该做什么。左侧传来的声音唤醒了她，她转头看到碇正在捡起地板上揉成团的绷带。
+
+For a moment, Rei was angry… she had come home after a grueling day at NERV, accentuated by the fact that Dr. Akagi had told her she wasn't needed as far as finding Misato a match was concerned; they could use a clone at any time. That line alone would have come as a slap in the face from anybody, but at this moment Rei could only see the blonde doctor's face, glowering at her over the rim of her glasses. She had wanted only a warm shower… she did not care to have Ikari touching her things.  
+有那么一刻，丽感到愤怒……她在 NERV 度过了一个艰难的日子后回到家，尤其是赤城博士告诉她，在为美里寻找匹配者方面她并不被需要；他们随时可以使用克隆体。这句话本身就如同任何人的一记耳光，但此刻丽只能看到金发博士的脸，透过眼镜边缘怒视着她。她只想要一个温暖的淋浴……她并不希望碇去触碰她的东西。
+
+"Sorry, I was cleaning up," Shinji explained, a hint of a smile on his boyish face. "I didn't touch anything except the trash."  
+“对不起，我在打扫，”真嗣解释道，他那稚气的脸上带着一丝微笑。“除了垃圾，我什么都没碰。”
+
+_He was only trying to help…  
+他只是想帮忙……_
+
+Rei felt the heat of embarrassment creeping into her face.  
+丽感觉到羞愧的热度正悄悄爬上她的脸颊。
+
+For some time, she did not know what to say…but when she finally responded, neither boy found her reply as strange as she herself did.  
+有好一会儿，她不知道该说什么……但当她终于回应时，两个男孩都觉得她的回答并不像她自己感觉的那样奇怪。
+
+"Thank you." "谢谢你。"
+
+---
+
+Some time after the boys had left her room, Rei heard their voice outside her window and watched them as they made their way up the road.  
+在男孩们离开她的房间一段时间后，丽听到他们在外面的声音，并看着他们沿着道路前行。
+
+"Well, I guess all Eva pilots are strange," Suzuhara commented.  
+“嗯，我想所有 EVA 驾驶员都很奇怪，”铃原评论道。
+
+She remembered her initial encounter with Pilot Sorhyu, in which the Second had also informed her that she was strange.  
+她记得自己初次遇见驾驶员惣流时，第二适格者也曾告诉她，她很奇怪。
+
+Well, Rei had had enough strangeness for one day. She closed the window and walked to the bathroom, her socks making almost no sound on the carpet-less floor. Her own red eyes gazed back at her from her reflection in the mirror.  
+好吧，绫波今天已经受够了这些奇怪的事。她关上窗户，走向浴室，赤脚在地毯缺失的地板上几乎没发出任何声响。镜中，她自己的红眼睛回望着她。
+
+_Ikari does not know_, she recalled. _He will be the last to find out._  
+碇并不知情，她回忆道。他将是最后一个得知的。
+
+She did not know why this thought bothered her as she stepped into the shower and twisted the faucet, allowing the icy cold droplets to sprinkle over her skin while she waited for it to warm.  
+她不明白为什么这个念头困扰着她，当她走进淋浴间，扭开水龙头，任由冰冷的水珠洒在皮肤上，等待水温变暖。
+
+_I have not been told to inform Ikari of the Fourth Child's identity… that is for Misato to decide_.  
+我没有被指示要告知碇第四适格者的身份……这是美里决定的。
+
+Rei held her eyes open under the showerhead, hardly noticing the water in her eyes.  
+丽在淋浴头下睁大眼睛，几乎没注意到水珠在她的眼眶中。
+
+_Ikari went to the trouble of doing something for me… not because he was ordered to; he simply did it for me._ _It is not fair for him not to know…_ _perhaps I ought to…_  
+碇真嗣特意为我做了些什么……不是因为被命令；他只是为了我而做。不让他知道对他不公平……也许我应该……
+
+_No, it is not my place_.  
+不，这不是我该插手的事。
+
+Rei shut off the faucet. She removed a white towel from an overhead shelf and draped it over herself before disappearing back into her main room.  
+丽关闭了水龙头。她从头顶的架子上取下一条白色毛巾，披在身上，然后消失在她的主房间里。
+
+---
+
+"Presentations for your group projects will begin tomorrow, as previously decided. I trust that you all will be very prepared to teach us an informative lesson."  
+“如先前所定，你们小组项目的展示将于明天开始。我相信你们都会准备充分，为我们上一堂富有信息量的课。”
+
+Hikari looked to Shinji and gave him a thumbs-up sign. Shinji smiled back, remembering that their poster was stored safely at school, in the teacher's closet. Behind him, Asuka growled menacingly at Touji, who appeared to pay no attention.  
+光看向真嗣，向他竖起大拇指。真嗣回以微笑，记起他们的海报安全存放在学校的教师储物柜里。在他身后，明日香对冬二发出威胁的低吼，而冬二似乎并未在意。
+
+"I'll help you when we get home," Shinji whispered out of the corner of his mouth.  
+"回家后我会帮你，" 真嗣从嘴角低声说道。
+
+"I'll do it myself," Asuka grumbled, "I don't need your help."  
+"我自己能行，" 明日香咕哝着，"我不需要你的帮助。"
+
+"Sorry." "对不起。"
+
+Shinji ducked his head over his paper again, wondering miserably what he had done this time. It was disappointing, he thought, that Asuka's good moods so rarely lasted.  
+真嗣再次埋头于他的作业，痛苦地思索着这次他又做错了什么。他想，明日香的好心情如此短暂，真是令人失望。
+
+Two rows ahead of him, Hikari looked back at the class but focused in particular on the boy she liked. There was no doubt that something was wrong; he had either not been in school or had been spacing out during class. And come to think of it, he hadn't been eating lunch either—and Hikari knew very well just how much Touji Suzuhara liked food.  
+在他前面两排，光回头看向全班，特别关注了她喜欢的那个男孩。毫无疑问，他一定出了什么问题；他要么没来学校，要么就是在课堂上走神。而且，说到这个，他连午餐都没吃——光非常清楚铃原东治有多么喜欢食物。
+
+_Maybe I should prepare lunch for him tomorrow_, Hikari thought. _I've always got things left over from cooking for Nozomi and Kodama… no, maybe that would be too obvious. But it is my duty to look after my classmates—and if one of them is having problems, I should help, right?_  
+也许我明天应该给他准备午餐，光想。我总是有多余的食物，因为要给望和儿玉做饭……不，也许那样太明显了。但照顾同学是我的责任——如果他们中有谁遇到问题，我应该帮忙，对吧？
+
+"Miss Horaki." “堀木老师。”
+
+"Yes!" Hikari snapped out of her daze. The teacher barely blinked as he extended a ceramic mug toward her. Not quite understanding what she was supposed to do, Hikari placed her hand into the cup and pulled out a folded piece of paper.  
+"太好了！" 光从恍惚中回过神来。老师几乎没眨眼，将一个陶瓷杯递向她。光不太明白自己该做什么，便把手伸进杯子里，取出了一张折叠的纸条。
+
+_7._
+
+"What did you get?" she hissed to Asuka.  
+"你抽到了什么？" 她低声问明日香。
+
+"ONE!" Asuka shouted. "And obviously we won't be ready to present first, since HE isn't doing anything!"  
+"一号！" 明日香喊道。"显然我们不会第一个展示，因为他什么都没做！"
+
+The entire class turned as one to look at Touji, who had no reaction.  
+全班同学齐刷刷地转向了东治，而他毫无反应。
+
+Hikari gulped, waiting for Asuka to continue her tirade, but none followed. Instead the intercom came on, and they all listened intently.  
+光咽了咽口水，等待着明日香继续她的责骂，但没有下文。取而代之的是，广播突然响起，所有人都专注地听着。
+
+"Suzuhara Touji, of class 2A, please come to the principal's office immediately."  
+“二年级 A 班的铃原东治，请立即到校长办公室来。”
+
+"Huh?" "啊？"
+
+"Suzuhara, you are excused," the teacher pronounced, extending his mug to the next pairing. Touji dragged his feet to the door and disappeared around the corner just as the student cried out, "Oh no! Ayami, we have to present second!"  
+“铃原，你可以走了，”老师宣布道，将他的马克杯递给下一组。东治拖着脚步走向门口，就在他消失在转角时，一名学生惊呼道：“不好了！绫美，我们得第二个上台！”
+
+Hikari kept her eyes firmly glued to the paper she held in her hand and away from the door, finally giving in to glance at her friends. Shinji looked plainly confused, while Asuka was frowning with her eyes closed and her arms crossed.  
+光牢牢地将目光锁定在她手中的纸上，避免看向门口，最终还是忍不住瞥了一眼她的朋友们。真嗣看起来一脸困惑，而明日香则皱着眉头，闭着眼睛，双臂交叉。
+
+_I'll stop by the market on the way home and buy some fresh tomatoes…  
+我回家路上会顺便去市场买些新鲜的西红柿……_
+
+---
+
+"He still doesn't know?"  
+“他还不知道？”
+
+Misato sighed. "I just can't find a chance to tell him. I can't figure out what he's thinking. I don't know. I'm getting worried."  
+美里叹了口气。“我就是找不到机会告诉他。我猜不透他在想什么。我不知道。我开始担心了。”
+
+"You're the one who wanted to be his guardian," Ritsuko reminded.  
+“是你自己想当他的监护人，”律子提醒道。
+
+"I know… so the testing will be done at Matsushiro tomorrow?"  
+"我知道……所以明天的测试将在松代进行？"
+
+"Yes, speaking of which – have you discussed with Miki what you're going to do?"  
+"是的，说到这个——你和美纪讨论过你们打算怎么做吗？"
+
+"I'm definitely going," Misato said firmly. When Ritsuko's mouth opened, she quickly added, "with accommodations."  
+"我肯定要去，"美里坚定地说。看到律子的嘴张开，她迅速补充道，"会安排住宿的。"
+
+"What does Miki have to say about that?"  
+"美纪对这事有什么看法？"
+
+Misato chuckled mirthlessly. "Well, she's not happy about it, not that I'm really giving her any chance. Don't worry about me." Her face clouded over as her thoughts returned to Shinji. "Maybe the pilot will tell him about it himself."  
+美里苦笑了一下。“她对此并不高兴，不过我也没给她什么机会。别担心我。”她的脸色阴沉下来，思绪回到了真嗣身上。“也许驾驶员会亲自告诉他吧。”
+
+"That won't happen. He wasn't happy enough to brag about it. The only thing he was concerned about was having his younger sister transferred to the medical unit."  
+"那不会发生的。他还没高兴到要炫耀的地步。他唯一关心的是他妹妹被调到医疗单位的事。"
+
+"I should go see her sometime."  
+"我应该找个时间去看看她。"
+
+Silence. 沉默。
+
+"You don't have any more news on a match for me, do you?" Misato whispered, only a faint wisp of hope in her voice.  
+"你没再有适合我的匹配消息了，对吧？" 美里低声说道，声音中仅存一丝微弱的希望。
+
+"I don't," Ritsuko apologized. "Maya's results haven't come out yet though, and neither have Shinji's. Miki is busy working on reinstating a program for donors."  
+"我没有，" 律子道歉道。"不过真耶的结果还没出来，真嗣的也是。美纪正在忙着恢复捐助者计划。"
+
+"Shinji, huh?" "真嗣，是吧？"
+
+"Well, it's worth a try…"  
+"嗯，值得一试……"
+
+"I guess." She lay back down and focused on the pattern of the ceiling. "I wonder how many of those little dots there are? I've been trying to count for several days now but I keep losing count."  
+"我想也是。她又躺了回去，专注地盯着天花板上的图案。"我在想那上面有多少个小点呢？我已经数了好几天了，但总是数着数着就忘了数到哪儿了。"
+
+Ritsuko privately reminded herself to procure permission from Namika to allow Misato to go out more often.  
+律子私下提醒自己要征得美香同意，让美里更常外出。
+
+"Take care of yourself," she insisted. "I'll be seeing you tomorrow."  
+“照顾好自己，”她坚持道，“明天见。”
+
+She had just shut the door to Misato's room when somebody came running up behind her, breathing heavily. Ritsuko turned to see Miki, waving her clipboard as usual. A faint glimmer of hope found its way into Ritsuko's mind—Miki looked _happy_, for the first time in weeks—but she hardly dared hope—  
+她刚关上美里的房门，就有人从后面跑来，气喘吁吁。律子转身一看，是美希，像往常一样挥舞着她的文件夹。一丝微弱的希望涌入律子的心头——美希看起来很高兴，这是几周以来的第一次——但她几乎不敢抱有希望——
+
+"Into my office," were Namika's first words, and Ritsuko followed the doctor into her room and closed the door behind her.  
+“到我办公室来。”这是摩耶的第一句话，律子跟着医生走进她的房间，并随手关上了门。
+
+"We have a match!" “我们找到了匹配的！”
+
+"Maya?" “麻耶？”
+
+"No, the Third Child—Shinji Ikari!"  
+"不，是第三适格者——碇真嗣！"
+
+"What…?" "什么…？"
+
+Ritsuko could scarcely believe it; _Shinji a match…_  
+律子几乎无法相信；真嗣居然是匹配的…
+
+"Look." Namika reached over to her desk and pulled over a large stack of documents, apparently brimming with excitement. "Look at the HLAs…this one's Misato's, this one's Shinji's…" She spoke so quickly that Ritsuko had hardly a moment to look at the page before she had moved on to another diagram. "Her antigen pattern and his share—"  
+“看。” 奈美香伸手到她的桌上，拉过一大叠文件，显然是兴奋不已。“看看这些 HLAs……这个是美里小姐的，这个是真嗣的……” 她说话快得让律子几乎没时间看一眼页面，她就已经翻到了另一张图表。“她的抗原模式和他的共享——”
+
+"Spare me the medical lecture; chances are I won't understand half of it anyway," Ritsuko begged. Namika pulled the stack back over to her, looking concerned at Ritsuko's grim face. "Just tell me, how likely do you think this will give Misato another chance at life?"  
+“别跟我讲医学课了；反正我多半也听不懂一半，”律子恳求道。奈美香把那叠文件拉回自己面前，担忧地看着律子阴沉的脸。“直接告诉我，你觉得这给美里再活一次的机会有多大？”
+
+"I can't be one-hundred percent sure, obviously, but it's pretty darn likely." Namika breathed again at seeing Ritsuko's tension dissipate. "Now, do you want to inform Shinji, or should I do it?"  
+“我当然不能百分百确定，但可能性相当大。” 看到律子的紧张情绪有所缓解，奈美香松了口气。“现在，你想通知真嗣吗，还是我来？”
+
+"I'll tell Shinji. You can tell Misato."  
+"我会告诉真嗣的。你可以告诉美里。"
+
+"All right." "好的。"
+
+Ritsuko pulled her old college friend into a hug as she stood up; Miki, who was not used to such casualness from Dr. Akagi, was taken aback at first, then warmly returned the gesture before hurrying out of the room.  
+理津子站起身来，将她大学时代的老朋友紧紧拥入怀中；美纪从未习惯过赤木博士如此随意的举动，一开始有些惊讶，随后便热情地回应了这个拥抱，然后匆匆离开了房间。
+
+_We always refer to the Evangelion as a miracle_, Ritsuko thought, _but the biggest miracles are those that happen in the medical field…_  
+我们总是将福音战士称为奇迹，理津子心想，但最大的奇迹其实发生在医疗领域……
+
+She had a fleeting moment in which she wished she had become a medical doctor instead of one that worked with giant biomechanical monsters. Ritsuko reached for the phone, then decided she would rather inform the Third face-to-face. She picked up her purse and strode out of the office, her heels clanking on the polished floor.  
+有那么一瞬，她希望自己成为一名内科医生，而不是与巨大生物机械怪物打交道的专家。律子伸手去拿电话，随即决定还是亲自去通知第三适任者。她拿起手提包，大步走出办公室，高跟鞋在光亮的地板上发出清脆的声响。
+
+For the first time that winter, snow was something beautiful to be enjoyed, and Ritsuko took her time getting to her car through the thick snowdrifts. In that moment she knew nothing of NERV or Evangelions; her mind was filled only with Misato's life, that she was going to be all right, that everything would be fine…  
+那是冬天里第一次，雪成了值得欣赏的美景，律子在厚厚的雪堆中慢慢走向自己的车。那一刻，她对 NERV 或福音战士一无所知；她的心中只充满了美里生命的希望，她会安然无恙，一切都会好起来的……
+
+---
+
+"Unit 3 activation Test: T minus 30 minutes."  
+"三号机启动测试：倒计时 30 分钟。"
+
+"Refrigeration systems in all sections functioning at standard levels."  
+各区域制冷系统均正常运行。
+
+"Pressure lock on left arm secured in place."  
+左臂压力锁已固定到位。
+
+"Misato-san?" "美里小姐？"
+
+Misato's haggard face broke into a smile upon seeing him upon the screen in front of her. Shinji was already in Unit 01, awaiting further directions. As for Misato, she was seated inside a cozy piece of shelter, surrounded by various TV screens, showing her what was going on in various areas around the testing site.  
+看到屏幕上的他，美里憔悴的脸上露出了笑容。真嗣已经进入初号机，等待进一步指示。至于美里，她坐在一个舒适的避难所内，周围是各种电视屏幕，显示着测试场地各区域的实时情况。
+
+"I'm so happy, Misato-san," Shinji broke out breathlessly. "I was so glad when Ritsuko told me last night…"  
+"我太高兴了，美里小姐，" 真嗣喘着气说道。"昨晚听到律子告诉我的时候，我真的很开心……"
+
+She let him talk. He was rarely this happy, and she was determined to let it last as long as it could. Her thoughts wandered back to the Fourth and her smile waned.  
+她让他继续说下去。他很少这么开心，她决心让这份喜悦尽可能地延续下去。她的思绪飘回到第四次冲击，笑容渐渐淡去。
+
+"Misato-san?" "美里小姐？"
+
+"I'm really happy too," she told him. "Shinji, I—"  
+"我也很高兴，" 她对他说。"真嗣，我——"
+
+"The Fourth Child has arrived. Squad 2, begin entry preparations immediately."  
+"第四个孩子已经抵达。第二小队，立即开始进入准备。"
+
+Misato frowned. "I'll talk to you later," she promised Shinji, and a moment later his worried face disappeared from view.  
+美里皱了皱眉。“我稍后再和你谈，”她向真嗣承诺道，随即他担忧的面孔便从视线中消失了。
+
+"Did you tell him?" Ritsuko asked as she entered.  
+"你告诉他了吗？" 律子走进来问道。
+
+"I'll tell him after this test," she answered decisively before stretching her arms out as far as they would reach above her head. "Exclusive possession of four EVAs… if we wanted to, we could destroy the world."  
+"我会在这次测试后告诉他，" 她果断地回答，然后尽可能高地伸展双臂。"四台 EVA 的专属使用权……如果我们愿意，可以毁灭世界。"
+
+"You don't sound too happy. This unit will be under your direct command, you know."  
+"你听起来不太高兴。这个单位将直接由你指挥，你知道的。"
+
+"Entry plug secured," the operator's voice announced, and both ladies quickly turned their attention back to the panels. "Begin Phase One connection. Transmitting pulses… graph displace within norms. List clear through 1-3-5-0."  
+"插入栓已固定，" 操作员的声音宣布，两位女士迅速将注意力转回面板。"开始第一阶段连接。传输脉冲……图表显示在正常范围内。清单已清除至 1-3-5-0。"
+
+"Transfer the operation to Phase Two," Ritsuko responded.  
+"将行动转入第二阶段," 律子回应道。
+
+"Full nerve link established. List clear through 2-5-5-0. Harmonics all reading standard."  
+"完全神经连接已建立。清单清晰至 2-5-5-0。谐波读数均为标准。"
+
+"Approaching absolute threshold."  
+"接近绝对阈值。"
+
+"There's a huge power surge coming from inside the unit," Ritsuko groaned, worry etching itself into lines across her face. "Abort the test! Cut the circuits!"  
+"从单元内部传来一股巨大的能量波动，" 律子皱着眉头，忧虑在她脸上刻下了深深的皱纹。"中止测试！切断电路！"
+
+---
+
+"He hasn't come yet, Asuka."  
+"他还没来，明日香。"
+
+"Maybe he won't come today," Asuka muttered. She was seated at her desk, her head propped up with one fist, while Hikari lingered near the door with a neatly wrapped bento in hand.  
+"也许他今天不会来了，" 明日香低声嘟囔着。她坐在桌前，头靠在一只手上，而光子则站在门口，手里拿着一个包装整齐的便当。"
+
+Asuka was furious. Touji had been "unreachable" during the previous night, and she had stayed up until four finishing the project on her own. Now Hikari was busy fawning over the boy, and all she wanted to do was to lie down and sleep—yet her cell phone chose just that moment to go off.  
+明日香气得要命。昨晚东治一直“联系不上”，她独自熬夜到四点才完成项目。现在光忙着讨好那家伙，而她只想躺下睡觉——可偏偏就在这时，她的手机响了起来。
+
+Asuka jumped to her feet and ran for the door, along with the rest of the students who were attempting to get into a shelter.  
+明日香一跃而起，和其他试图进入避难所的学生们一起冲向门口。
+
+---
+
+"There's been an accident involving an explosion at Matsushiro!"  
+“松代发生了一起涉及爆炸的事故！”
+
+"What about Misato-san?" Shinji yelled, but his voice was drowned out by the technicians':  
+"美里小姐呢？" 真嗣喊道，但他的声音被技术人员们的声音淹没了：
+
+"Unidentified moving object detected as the site."  
+"检测到现场有不明移动物体。"
+
+"Pattern orange, can't be confirmed as an angel."  
+"橙色模式，无法确认为使徒。"
+
+A tiny panel popped up on the side of Shinji's screen. Rei appeared in it, looking calm and composed as always, as she informed him, "They can't establish contact yet."  
+一个微小的窗口弹出在真嗣屏幕的一侧。零出现在其中，一如既往地平静自若，她告诉他：“他们还无法建立联系。”
+
+"Oh no… what should I do?"  
+“哦不……我该怎么办？”
+
+A second panel appeared, this time featuring an angry Asuka who had been hurried into Unit 02. "What are you whining about? We can't do anything but worry now!  
+第二个窗口出现，这次是愤怒的明日香，她匆忙进入了 02 号机。“你在抱怨什么？我们现在除了担心什么也做不了！”
+
+Rei's panel disappeared as Shigeru announced, "The target is approaching… All units, stand by for ground battle. We've got a visual on the main screen."  
+随着四郎宣布，“目标正在接近…所有单位，准备地面战斗。主屏幕上已经捕捉到图像。”
+
+---
+
+In most situations, Asuka liked to think that nothing could rattle her, but her jaw dropped and her eyes widened upon seeing this image. She heard Shinji's mechanically modified voice protesting, "No way… an Angel? _That's_ the angel? That's an EVA, isn't it?"  
+在大多数情况下，明日香喜欢认为自己无所畏惧，但看到这个图像时，她的下巴掉了下来，眼睛瞪得大大的。她听到真嗣经过机械改造的声音抗议道，“不可能…是使徒？那是使徒吗？那不是 EVA 吗？”
+
+"I can't believe it," she whispered to no one in particular. "Was it taken over by an angel?"  
+“我简直不敢相信，”她喃喃自语，并非针对任何人。“是被使徒控制了吗？”
+
+"Is it piloted by a kid, like the other units? A child my age?"  
+"是由一个孩子驾驶的吗，就像其他单位一样？和我同龄的孩子？"
+
+_He doesn't know_, Asuka thought. Her heart thudded in her chest. _He's going to kill him…_ but for a few minutes she did not know which boy was 'he' and which boy was 'him', and she did not like to think of the consequences that would follow either situation.  
+他不知道，明日香心想。她的心跳在胸腔中怦怦作响。他打算杀了他……但在几分钟内，她不知道哪个男孩是‘他’，哪个男孩是‘他’，她也不愿意去想任何一种情况会带来的后果。
+
+_I have to tell him… I have to stop this…  
+我必须告诉他……我必须阻止这一切……_
+
+"Don't you know yet? Evangelion Unit 03 is—"  
+"你还不明白吗？EVA 三号机是——"
+
+Her screen blacked out and she screamed in fury. Someone had knowingly cut off her connection in an attempt to keep her from informing Shinji of the pilot's wasted precious time shouting her name, while The Commander announced smoothly, "From this time, Evangelion Unit 03 is abandoned, and the target is identified as the 13th angel."  
+她的屏幕突然黑屏，她愤怒地尖叫起来。有人故意切断了她的连接，试图阻止她告知真嗣，而指挥官却平静地宣布：“从现在起，EVA 三号机被废弃，目标被确认为第 13 使徒。”
+
+---
+
+Rei had heard everything, yet remained silent. Still, she flinched visibly as she was forced to watch Asuka's Eva being crushed by Unit 03.  
+绫波听到了一切，却保持沉默。尽管如此，当她被迫目睹明日香的 EVA 被三号机碾压时，她明显地颤抖了一下。
+
+_The Angel,_ she corrected herself mentally.  
+天使，她在心中默默纠正了自己。
+
+"Pilot has ejected. Salvage crew is on the way."  
+“驾驶员已弹射。救援队正在赶来。”
+
+"The target is moving toward you, Rei—avoid close combat, and stop the target. I'll send Unit 01 soon."  
+“目标正向你移动，丽——避免近战，阻止目标。我很快会派出 01 号机。”
+
+Rei braced herself, readying the gun. Yet she hesitated just a fraction of a second too long.  
+丽做好了准备，紧握着枪。然而，她犹豫的时间仅仅多了一刹那。
+
+The amount of time it took to think "_He's in there._"  
+那短短一瞬，她心中闪过念头：“他在里面。”
+
+---
+
+_Two Evas out in less than five minutes_, Shinji thought desperately. As Unit 03 neared him, he caught a glimpse of the entry plug.  
+不到五分钟内两台 EVA 被击倒，真嗣绝望地想。当 03 号机接近他时，他瞥见了插入栓。
+
+_There's somebody inside! 里面有人！_
+
+Amidst all the shouting about Rei's injuries, Shinji heard his father announcing, "The target is approaching. You will contact it within twenty… take care of it."  
+在关于零受伤的嘈杂声中，真嗣听到他的父亲宣布：“目标正在接近。你将在二十秒内接触到它……处理好它。”
+
+His fingers tightened on the controls.  
+他的手指紧紧握住操纵杆。
+
+---
+
+"Misato?"  "美里？"
+
+With effort, Misato willed herself back to consciousness. Somebody was tugging on her hand, and she squeezed back lightly. The next thing she knew, somebody was helping her to sit up and she leaned against him.  
+美里费力地让自己恢复意识。有人正拉着她的手，她轻轻地回握了一下。紧接着，有人扶她坐起来，她便靠在了他身上。
+
+"Kaji," she muttered. “加持，”她喃喃道。
+
+"You're bleeding." He examined the wound, then took off his shirt and pressed it against her head to staunch the bleeding. Misato turned away, but he held the wadded material tightly in place.  
+"你在流血。" 他检查了伤口，然后脱下衬衫，按在她的头上止血。美里转过头去，但他紧紧地按住那团布料。
+
+"Damn you," she cursed. "Where are we?"  
+"该死的，" 她咒骂道。"我们在哪儿？"
+
+Her feet were numb from the January cold; apparently they were no longer inside the warm little room she recalled. She opened her eyes with a creditable effort to see a large crater in front of them. Her fingers scrabbled across the ground. She felt dried leaves. A few inches further, and they touched concrete.  
+她的双脚因一月的寒冷而麻木；显然，他们已不在她记忆中温暖的小房间里。她费力地睁开眼睛，看到前方有一个巨大的弹坑。她的手指在地上摸索，触到了枯叶。再往前几英寸，它们碰到了混凝土。
+
+Kaji sighed. "Well, we're somewhere in the middle of the forest around the ex-testing site." Misato tried to sit up further, but he held her in place, saying, "We can't go anywhere, Katsuragi, they're still battling it out."  
+加持叹了口气。“好吧，我们现在位于前试验场地周围的森林某处。”美里试图坐起来，但他按住了她，说道：“我们哪儿也去不了，葛城，他们还在激战。”
+
+"Battle what out?" she muttered angrily. Misato felt as if she were trying to put together a puzzle in which the pieces kept disappearing just as she nearly had her fingers locked around it. A thundering crash shook the ground and she cried out from the pain. Kaji tightened his arms around her.  
+“激战什么？”她愤怒地低声说道。美里感觉自己像是在拼一个拼图，每当她快要抓住一块时，那块拼图就消失了。一声雷鸣般的撞击震动了地面，她因疼痛而叫出声来。加持紧紧地抱住了她。
+
+"Unit 01 has been ordered to regard Unit 03 as the thirteenth angel," he explained somberly.  
+“零号机被命令将三号机视为第十三使徒，”他严肃地解释道。
+
+"What about Asuka? Rei?" “那明日香呢？丽呢？”
+
+He glanced toward their left, and Misato followed his gaze to see Evangelion Unit 00's large severed arm resting by their side. But the scene that awaited her in the distance was far worse: Evangelion Unit 03, hovering over 01 as the former attempted to strangle the latter, pounding it mercilessly into the mountain.  
+他朝左边瞥了一眼，美里顺着他的目光看去，只见零号机的巨大断臂静静躺在他们身旁。但远处等待她的景象更为惨烈：三号机悬停在初号机上方，试图掐住后者，无情地将其猛击入山体。
+
+"_Shinji-kun_!" "真嗣君！"
+
+She struggled to get up, but Kaji held her down.  
+她挣扎着想要起身，但加持按住了她。
+
+"I haven't told him," she whispered. "He doesn't know…"  
+"我还没告诉他，" 她低声说，"他还不知道…"
+
+"He must know something; he's not fighting back," Kaji muttered. He increased the force on his wadded shirt and frowned at the scene.  
+"他肯定察觉到了什么；他并没有反击，" 加持喃喃道。他加大了手中揉皱的衬衫的力度，皱眉看着这一幕。"
+
+"Well, if it goes on like this, he'll die! Cut the synchronization to sixty percent!"  
+"这样下去，他会死的！把同步率降到百分之六十！"
+
+"Katsuragi… this is out of your hands now."  
+"葛城…现在这事已不在你掌控之中了。"
+
+She hated it, not being at the head of the operation. For now, Major Misato Katsuragi was an outsider to the world of NERV; she had no control, she was not even privy to what information was being exchanged between NERV headquarters and the Eva. For the first time, she could only watch as a horrified civilian.  
+她讨厌这样，无法主导行动。眼下，葛城美里少校在 NERV 的世界里成了局外人；她无法掌控局面，甚至连 NERV 总部与 EVA 之间的信息交流也无从得知。这是她第一次只能作为一个惊恐的平民旁观。
+
+Her head throbbed; she put up a hand to her temple and pulled it away, sticky with blood.  
+她的头阵阵作痛；她抬起手按在太阳穴上，收回时手上沾满了血。
+
+"Kaji…" "加持…"
+
+"Something's changed." His voice was tense, drawing her back to the ongoing battle. "Look, Katsuragi… he's fighting back."  
+"有些事情变了。" 他的声音紧张，将她拉回到正在进行的战斗中。"看，葛城…他在反击。"
+
+_Shinji wouldn't fight back_, Misato thought desperately, _he wouldn't hurt a fly…_ yet then the memories of the Fourth angel came back to haunt her. _Shinji will do what it takes to kill an angel… if he doesn't know…_  
+真嗣不会反击的，美里绝望地想，他连只苍蝇都不会伤害…然而，第四使徒的记忆又回来困扰她。真嗣会不惜一切杀死使徒…如果他不知道…
+
+She winced instinctively as Unit 01 threw its opponent to the ground and began ripping furiously at the back. Part of her hoped desperately that Shinji would win the battle and defeat the angel, but her other half reminded her that it was not quite fair to hope for the Fourth's death either. Once again Misato felt her hopelessness amplify, and she wanted to scream with frustration.  
+她本能地皱眉，当零号机将对手摔倒在地并开始狂暴地撕扯背部时。一部分的她迫切希望真嗣能赢得战斗，击败使徒，但另一半却提醒她，同样不公平地希望四号机的死亡。米莎托再次感到绝望加剧，她想要尖叫以宣泄挫败感。
+
+Kaji muttered something incomprehensible as Unit 01 towered over the broken 03, clutching it's entry plug in its massive hand.  
+加持喃喃自语，零号机高耸在破碎的 03 号机上方，用其巨大的手掌紧握着插入栓。
+
+Misato could have sworn she heard Shinji's scream, but under her current conditions she attributed it to hallucinations. Nevertheless, the _crunch_ that came with the scream was most certainly audible, and it lingered in her head for several moments afterwards.  
+米莎托发誓她听到了真嗣的尖叫，但在她目前的状况下，她将其归咎于幻觉。尽管如此，伴随着尖叫的碎裂声确实清晰可闻，并在她脑海中萦绕了许久。
+
+"He doesn't know… " Misato whispered, as if it made all the difference in the world. She cried silently instead, tears mingling with the blood. She knew now that the duty of informing Shinji of the Fourth's identity would also involve informing him of his subsequent death.  
+"他不知道…" 美里低语，仿佛这改变了一切。她无声地哭泣，泪水与血混合。她现在明白，告知真嗣第四适格者身份的同时，也必须告诉他随之而来的死亡。
+
+_How cruel life is… 生活是多么残酷…_
+
+She let herself fade into oblivion as Kaji watched on helplessly.  
+她让自己逐渐陷入昏迷，而加持无助地旁观。
+
+---
+
+NERV's hospital was being swarmed. Namika was kept on her toes, running from room to room, prepping for surgery and taking x-rays. Twenty minutes earlier she had seen the Major into the hospital and begun transferring fluids to her dehydrated body, but for now three of her top assistants were handling the Major alone, and she was needed elsewhere.  
+NERV 的医院正被蜂拥而至的患者挤满。Namika 忙得脚不沾地，穿梭于各个房间之间，准备手术和拍摄 X 光片。二十分钟前，她将 Major 送进医院并开始为她脱水的身体输送液体，但目前她的三名顶级助手正在单独处理 Major 的情况，她则需要前往其他地方支援。
+
+"You've got a comminuted fracture," she told the worker grimly as she fiddled with the X-ray machine. "Hold still now… done."  
+“你这是粉碎性骨折，”她一边调整 X 光机一边严肃地对工人说，“现在别动……好了。”
+
+The man swore intensely as he tried to move his hand.  
+男人试图移动他的手，嘴里咒骂连连。
+
+Things had quickly gone from bad to worse. The explosion that had nearly killed Misato and Ritsuko, along with several hundred others, would have been enough on its own to warrant an emergency, but three of out of NERV's four viable pilots were now physically injured, and the fourth… Namika knew that emotional injuries were much harder and took longer to heal. Misato herself was a prime example of that.  
+情况迅速从糟糕恶化到了更糟。那场几乎夺走美里和律子以及数百人性命的爆炸，本身就足以构成紧急状况，但如今 NERV 的四名可用驾驶员中，有三名身体受伤，而第四名……美里自己就是个典型例子，直美知道情感创伤更难愈合，且需要更长时间。
+
+The Second Child, Sorhyu Asuka Langley, had fortunately been extricated from her entry plug before suffering any serious injuries—a broken arm and a grade-3 concussion.  
+二号适格者，惣流·明日香·兰格雷，幸运地在遭受严重伤害前被从插入栓中救出——仅有一条手臂骨折和三级脑震荡。
+
+The First Child, Ayanami Rei, had not been so fortunate. She had been nearly unconscious by the time rescuers reached her entry plug and for the time being, remained comatose but stable.  
+一号适格者，绫波零，就没那么幸运了。救援人员到达她的插入栓时，她已近乎昏迷，目前仍处于昏迷但稳定的状态。
+
+The Fourth Child… Namika shivered. She had heard of him previously from Misato and Ritsuko, yet the first time she met him he was near death and had to be told that he was going to have an arm and a leg amputated. He was asleep now, and for that Namika was grateful; she was not looking forward to telling him that his dreams of being a star basketball player were now galaxies away.  
+第四个孩子……娜美卡颤抖了一下。她之前从美里和律子那里听说过他，但第一次见到他时，他已濒临死亡，不得不被告知将失去一条胳膊和一条腿。他现在睡着了，对此娜美卡感到庆幸；她并不期待告诉他，他成为篮球明星的梦想如今已遥不可及。
+
+She returned to Misato's room.  
+她回到了美里的房间。
+
+"We're almost finished, Dr. Ishiyama," one of her assistants informed her breathlessly from behind her blue mask.  
+“我们快完成了，石山博士，”她的一位戴着蓝色口罩的助手在她身后气喘吁吁地通知她。
+
+"Let me see." Namika crossed the room and tipped Misato's head gently. "It looks pretty good. Put a sterilized bandage over it, and keep me updated."  
+"让我看看。" 娜美卡穿过房间，轻轻托起美里头。"看起来还不错。贴上消毒纱布，有情况随时告诉我。"
+
+"Yes, Dr. Ishiyama." "好的，石山医生。"
+
+---
+
+It took Asuka longer than she would have liked to recover—almost three weeks before the neck stiffness, headache, and confusion went away. She spent most of the twenty-one days in bed, but during the few hours that she felt well enough to stand on both feet, she visited Misato or Rei. The latter had been much harder, seeing as Asuka usually had little to say to the First Child, but she felt somehow that this fight had tied them all together.  
+对于明日香来说，恢复的时间比她预期的要长——几乎三周后，颈部僵硬、头痛和混乱才消失。她大部分时间都躺在床上，但在感觉足够好、能双脚站立的几个小时里，她会去看望美里或丽。后者要困难得多，因为明日香通常和第一适格者没什么话可说，但她觉得这场战斗不知怎的将她们紧密联系在了一起。
+
+She cried upon hearing that Touji was alive, and cried again when she learned that he had lost two limbs in the fight. The redhead no longer knew why she cried; she wasn't sure if it was out of relief, sadness, or guilt that she had treated him so over a stupid chemistry project. Now, three weeks after the incident, she still could not find the courage to enter his hospital room. Shinji had done it several times, and things had apparently not gone well.  
+得知真人还活着，她哭了；得知他在战斗中失去了两条肢体，她又哭了。红发女孩已不知自己为何哭泣；她不确定是因为松了口气、悲伤，还是因为对一个愚蠢的化学项目过于苛责他而感到内疚。如今，事件过去三周了，她仍鼓不起勇气走进他的病房。真嗣已经去过几次，显然情况并不顺利。
+
+_Shinji_. Asuka sighed as she wandered down the hallway. He was a completely different story; he had been hospitalized briefly as a result of the battle, then escaped from his room (Section II agents later discovered him in one of the obscure back hallways of NERV, curled up against the wall and sobbing). They had not wanted to send him back to the Katsuragi apartment, seeing as nobody occupied it now. Ritsuko had offered to take him in once she herself was discharged from the hospital, but that day had not yet come to pass, and everybody was privately against sending him to live with his father, who appeared (once again) to be completely indifferent to the feelings of his only son.  
+真嗣。明日香叹息着在走廊上徘徊。他的情况截然不同；他在战斗后短暂住院，随后逃离了病房（第二部队的特工后来在 NERV 一处偏僻的后走廊发现他，蜷缩在墙边哭泣）。他们本不想送他回葛城公寓，毕竟现在那里无人居住。律子曾提出等自己出院后收留他，但那一天尚未到来，而且私下里大家都反对让他去和父亲同住，那位父亲再次显得对独子漠不关心。
+
+So they kept him at NERV. And nobody dared mention the transplant.  
+于是他们将他留在 NERV。而没有人敢提及移植的事。
+
+The entire situation was a considerable, unexpected setback.  
+整个情况是一次相当大的、出乎意料的挫折。
+
+Misato took the blame for the incident onto her shoulders, despite the fact that Ritsuko continually assured her that it would not have made any difference whether or not Shinji had known that Touji was the one inside the entry plug. Shinji himself had said so, in one of his calmer moods. The Major's wounds had healed well, but she paid little attention to her health these days—there were more pressing issues on the horizon.  
+尽管律子一再向她保证，无论真嗣是否知道是东治在插入栓内，都不会有任何区别，美里还是将这次事件的责任揽到了自己肩上。真嗣本人也在他较为平静的时候这样说过。美里少校的伤势愈合得很好，但她现在很少关注自己的健康——眼前有更紧迫的问题。
+
+Asuka passed Shinji's room and knocked lightly on his door with her good hand. No response. She inched it open and saw that it was empty.  
+明日香经过真嗣的房间，用她那只好手轻轻敲了敲门。没有回应。她轻轻推开门，发现里面空无一人。
+
+_Maybe he went to the bathroom.  
+也许他去洗手间了。_
+
+But when he still hadn't shown up four hours later, Misato began to worry, and the Section II agents were dispatched once again. Asuka watched them leave through her hospital window.  
+但四个小时过去了，他仍未出现，美里开始担心，第二部门的特工再次被派了出去。明日香透过医院的窗户看着他们离开。
+
+---
+
+Hikari preferred to shop in the mornings, but today was so cold that she had held off until the afternoon. She frowned upon reaching the market. Suzuhara-kun had not come to school for a few weeks now, and she had instead been forced to distribute his lunch out to other classmates.  
+光喜欢在早晨购物，但今天实在太冷，她一直拖到下午才出门。到达市场时，她皱起了眉头。铃原君已经好几周没来学校了，她不得不将他的午餐分发给其他同学。
+
+She examined the variously sized bags of rice, picked the largest that she could possibly carry, and enlisted the help of the clerk in loading it into her cart. Hikari jerked a plastic bag from the roll hanging over her head and placed three ripe cucumbers into it. The bag of rice began to worry her – what if she could not get it all the way home? The roads were wet and slushy, and she did not wish to be completely soaked. She plucked a bag of pre-packaged carrots from the stack and wheeled her cart toward the cashier.  
+她仔细查看了各种大小的米袋，选了能搬动的最大的那袋，并请店员帮忙装进购物车。光从头顶悬挂的卷筒上扯下一个塑料袋，放了三根成熟的黄瓜进去。那袋米开始让她担心——万一她搬不回家怎么办？道路湿滑泥泞，她可不想全身湿透。她从堆里拿了一袋预包装的胡萝卜，推着购物车向收银台走去。
+
+"Are you sure you can handle it, miss?"  
+“小姐，你确定能行吗？”
+
+"I certainly hope so," Hikari replied, trying to keep the strain out of her voice. The bag was so large that she could barely see over the top when it was safely nestled in her arms, the other vegetables hanging in a bag from her wrist.  
+“我当然希望如此，”光回答道，努力不让声音中流露出紧张。这个袋子太大了，她抱着它时几乎看不到前方，其他蔬菜则挂在她手腕上的另一个袋子里。
+
+Just as she made her way out onto the sidewalk, a car splashed through a puddle and drenched her in muddy water. Hikari sighed helplessly and kept walking, forced to determine her location by looking out at either side instead of in front of her. Fortunately, she did not have to worry about bumping into others since few people were out due to the cold.  
+正当她走上人行道时，一辆车溅起水坑中的泥水，将她淋了个透。光无奈地叹了口气，继续前行，只能通过两侧的景象来判断位置，而不是正前方。幸运的是，她不必担心撞到别人，因为寒冷的天气里行人稀少。
+
+For that reason, she noticed someone coming in her direction on the opposite side of the road. He was tall and lanky, wearing only thin clothes, and Hikari felt a twinge of pity as she watched him make his way down the road slowly, against the wind. The pity, however, soon turned to fright as he tripped and fell facefirst into the snow, where he lay immobile.  
+正因为如此，她注意到有人从马路对面朝她走来。他高大而瘦削，只穿着单薄的衣服，光看着他逆风缓慢前行，心中不禁涌起一丝同情。然而，这份同情很快变成了惊恐，因为他绊倒了，脸朝下摔进了雪地里，躺在那里一动不动。
+
+Hikari dropped her groceries and ran across the street. She dropped to her knees next to him and shook his shoulder vigorously, while shouting, "Are you all right, sir?"  
+光里丢下购物袋，跑过街道。她跪在他身边，用力摇晃他的肩膀，同时大声喊道：“先生，你还好吗？”
+
+"done… terrible…" “完了……糟糕透顶……”
+
+Hikari could not make out his words, but his voice was vaguely familiar. She paused, scarcely daring to believe it. "Ikari?"  
+光里听不清他的话，但他的声音却隐约熟悉。她停顿了一下，几乎不敢相信。“碇？”
+
+"…terrible… things…" "…可怕…的事情…"
+
+_Where is this NERV security that Asuka always talks about?_ Hikari mused angrily. She tugged at Shinji's arm, but he made no effort to get up.  
+阿斯卡总是提到的 NERV 安保在哪里？光愤怒地想着。她拉了拉真嗣的手臂，但他丝毫没有起身的意思。
+
+"Please, Shinji!" she found herself shouting. A car drove past them, the driver taking no notice of the children in the snow. "Please get up!"  
+"求你了，真嗣！"她发现自己在大声喊叫。一辆车从他们身边驶过，司机没有注意到雪地里的孩子们。"求你站起来！"
+
+His eyes fluttered open briefly. "Class Rep?"  
+他的眼睛微微睁开。“班长？”
+
+"Yes, it's me." Hikari breathed a sigh of relief. _So he's not completely delirious or frozen, but he will be soon if he stays like this!_ "Please get up… you can come to my house and get warm! Just don't stay in the snow like this!"  
+“是的，是我。”光松了一口气。看来他并没有完全神志不清或冻僵，但如果他继续这样下去，很快就会了！“请站起来……你可以来我家取暖！千万别再待在雪地里了！”
+
+After what seemed like an eternity and much straining of Hikari's muscles, the boy got slowly to his feet. The Class Representative led him cautiously across the road over to her fallen groceries, which she picked up before continuing the journey home.  
+仿佛过了一个世纪，光费了好大力气，男孩才慢慢站起身来。班长小心翼翼地领着他穿过马路，走到她散落的杂货旁，她捡起它们后继续往家走去。
+
+Shinji leaned on her for support. Hikari began to tell him not to do that, as she was covered in mud and would ruin his clothes, but one glance at him reminded her that he, too, was soaked. He didn't speak all the way home, and she said nothing either. The weight of the rice was forgotten.  
+真嗣靠在她身上寻求支撑。光一开始想告诉他别这样，因为她浑身是泥，会弄脏他的衣服，但看他一眼就让她想起，他也全身湿透了。回家的路上他一言不发，她也没有说话。米袋的重量已被遗忘。
+
+Nozomi opened the door for them. Her eyes widened and she shouted, "I knew it! I knew it! Hikari's got a boyfriend!"  
+望为他们开了门。她的眼睛睁得大大的，喊道：“我就知道！我就知道！光有男朋友了！”
+
+"Shut up," Hikari hissed. Shinji, however, didn't react at all, so Hikari took the opportunity to throw her groceries into her younger sister's arms and lead her classmate into the house.  
+“闭嘴，”光低声呵斥。然而，真嗣毫无反应，于是光趁机把买的东西塞到妹妹怀里，领着同学进了屋。
+
+"Hik—" "咳——"
+
+"Look," Hikari whispered fiercely, "I don't know what's wrong with him, but it's pretty darn obvious he needs some help. Now go put the rice away."  
+"听着，"光严厉地低声说道，"我不知道他怎么了，但他显然需要帮助。现在去把米收好。"
+
+Nozomi, surprised at this attitude, nodded and began lugging the rice toward the kitchen. Shinji's shoes were caked with snow and his fingers were much too stiff to untie them, so Hikari got them off for him and with effort, managed to coax him up the stairs.  
+望美对这种态度感到惊讶，点了点头，开始把米搬向厨房。真嗣的鞋子上沾满了雪，手指僵硬得无法解开鞋带，于是光帮他脱下鞋子，费力地扶他上了楼梯。
+
+_I'll sweep away the snow we tracked in later,_ she thought, _but where am I going to put Shinji? Nozomi and Kodama won't think of having him in their beds—and Dad will go crazy if he finds a guy in my bed—I guess he can stay in Dad's bed for the time being, and I'll get new sheets and blankets on there tonight—_  
+我稍后再清理我们带进来的雪，她想，但我要把真嗣放在哪儿呢？望和儿玉不会想到让他睡她们的床——而爸爸要是发现有个男生在我床上会发疯的——我想暂时让他睡爸爸的床，今晚我再去铺上新床单和毯子——
+
+But no sooner had Hikari entered the room than she realized she had another problem on her hands, one that was much worse than deciding where he would rest. She could not allow Shinji to sleep in his wet clothes, and she—well, she was not about to redress him. Hikari compromised by finding some of her father's old clothes, handing them to him, and excusing herself out of the room.  
+但光刚进房间就意识到她还有另一个更棘手的问题，那就是不能让真嗣穿着湿衣服睡觉。而她——好吧，她可不打算再给他换衣服。光妥协了一下，找来一些她父亲的旧衣服递给他，然后自己离开了房间。
+
+"Who is he?" Nozomi pressed as her older sister appeared in the kitchen doorway. "And before you ask, yes I put the rice in the pantry, and yes I put the cucumbers and carrots in the refrigerator."  
+“他是谁？”望追问着，当她姐姐出现在厨房门口时。“在你问之前，是的，我把米放进了食品储藏室，是的，我把黄瓜和胡萝卜放进了冰箱。”
+
+"He's a classmate." Hikari set some water on to boil and removed a small vial of tealeaves from an overhead cabinet. She waited for the water to heat, then steeped the tea in a ceramic cup. "Where's Kodama?"  
+"他是我的同学。" 光在炉子上烧了些水，并从头顶的橱柜里取出一小瓶茶叶。她等待水加热，然后将茶叶泡在陶瓷杯中。"小玉去哪儿了？"
+
+"She went out shopping with her friends."  
+"她和朋友出去购物了。"
+
+_Typical,_ Hikari thought. She opened the refrigerator and wished that she had some muffins to heat up, but she hadn't thought to make any that morning. Well, she could start that now. Hikari poured out some cornmeal, broke in an egg, and carried the bowl upstairs with her, mixing as she climbed the stairs.  
+典型的，光心想。她打开冰箱，希望自己有些松饼可以加热，但那天早上她没想到要做。好吧，她现在可以开始做了。光倒了一些玉米面，打了一个鸡蛋，端着碗上楼，边走边搅拌。
+
+"Shinji?" "真嗣？"
+
+No answer. 没有回答。
+
+_Well, changing shouldn't have taken him more than ten minutes. Or maybe he's still standing there in wet clothes.  
+嗯，换衣服应该不会超过十分钟。或者他可能还站在那里，衣服湿漉漉的。_
+
+_At any rate, if he started putting on dry clothes, he should be done now, so I won't have to see him… naked…  
+无论如何，如果他开始穿干衣服，现在应该已经穿好了，这样我就不会看到他……裸着……_
+
+"I'm coming in, Shinji." “我进来了，真嗣。”
+
+Hikari took a deep breath and pushed open the door.  
+光莉深吸一口气，推开了门。
+
+Shinji was wearing the dry clothes, all right, but his wet clothes had been awkwardly wadded into a pile as if he had not known what to do with him. He himself was huddled on the ground, against the wall, with his knees to his chest. He was muttering unintelligibly again.  
+真嗣确实穿上了干衣服，但他湿漉漉的衣服却被笨拙地揉成一团，仿佛不知道该怎么处理。他自己则蜷缩在地上，靠着墙，双膝紧贴胸前。他又开始含糊不清地喃喃自语。
+
+After much tugging and pleading, Shinji got to his feet and Hikari helped him into the bed.  
+经过一番拉扯和恳求，真嗣终于站起身，光帮忙把他扶到床上。
+
+"I've done… terrible things," he muttered thickly.  
+“我做了……可怕的事，”他含糊不清地喃喃道。
+
+"Shh, it will be all right," she promised, pulling the covers up to his chin. He did not speak again, and she left him as he was, trusting that he would stay.  
+“嘘，一切都会好起来的，”她承诺着，把被子拉到他的下巴。他没有再说话，她便让他那样躺着，相信他会安然无恙。
+
+Downstairs, Nozomi asked compassionately, "How is he?"  
+楼下，希美关切地问道：“他怎么样了？”
+
+"Confused," Hikari murmured vaguely. She set the bowl on the table and preheated the oven—_I should have done that earlier_, she thought, mentally chastising herself. _Well, if Shinji falls asleep, there'll be plenty of time._  
+“有些困惑，”光含糊地低声说。她把碗放在桌上，预热了烤箱——我本该早点做的，她心想，暗自责备自己。好吧，如果真嗣睡着了，时间还很充裕。
+
+She made her way to the phone and dialed Asuka's number from memory.  
+她走到电话旁，凭记忆拨打了明日香的号码。
+
+Two rings… 两枚戒指……
+
+Three… 三枚……
+
+Hikari's heart sank. Perhaps they were out looking for him?  
+光的心沉了下去。或许他们正在找他？
+
+Five…
+
+She wished she knew Asuka's cell phone number, but she had never needed to contact Asuka so urgently.  
+她希望自己知道明日香的电话号码，但她从未如此迫切地需要联系明日香。
+
+Nine…
+
+Hikari hung up. Nozomi watched her from the kitchen table, where she had finished her snack of cookies and was already pouring the batter into the pan. Her eyes followed her older sister as she searched through Shinji's soaked jacket in narrow hopes of finding his cell phone.  
+光挂断了电话。望从厨房桌旁看着她，她已经吃完了饼干，正将面糊倒入平底锅中。她的目光随着姐姐在真嗣湿透的夹克里搜寻，抱着一线希望找到他的手机。
+
+Nothing. 什么都没有。
+
+_Well, I guess I'll have to wait until Asuka comes home.  
+好吧，看来我得等到明日香回家了。_
+
+"Thank you, Nozomi," she said quietly, slipping the tray into the oven. Now there was nothing to do besides wait.  
+“谢谢你，望美，”她轻声说道，将托盘滑入烤箱。现在除了等待，别无他事。
+
+---
+
+Shinji awoke in the dark, still shaking from the dream that robbed him nightly of tranquil sleep. He was screaming… Touji was screaming… His father was ordering him to kill his friend… Misato was crying…  
+真嗣在黑暗中醒来，仍因那个每晚夺走他安宁睡眠的梦而颤抖。他在尖叫……阿薰也在尖叫……他的父亲命令他杀死朋友……美里在哭泣……
+
+He shook his head to clear out the voices and focused instead on his current situation. He was in a warm bed, one which he did not deserve, and wearing dry clothes that he did not particularly deserve either. He could not remember why he was here, but he remembered leaving NERV. Out of anger, despair, or guilt, he did not know which. Perhaps a mixture of the three.  
+他摇摇头，试图驱散那些声音，转而专注于自己当前的处境。他躺在一张温暖的床上，这张床他并不配拥有，穿着干燥的衣服，这些衣服他也同样不配。他不记得自己为何会在这里，但他记得离开了 NERV。出于愤怒、绝望还是内疚，他不知道是哪一种。或许是三者的混合。
+
+Shinji put both feet on the carpeted floor and slowly got to his feet. The clothes were several sizes too large for him, but kept him sufficiently warm as he opened the door to his room. There was no light in the hallway either, so he felt his way down the stairs. The railing was smooth and cool in his warm hand.  
+真嗣将双脚放在铺有地毯的地板上，缓缓站起身来。衣服对他来说大了好几个码，但足够保暖，他打开房门。走廊里也没有灯光，于是他摸索着下楼。扶手在他温暖的手中显得光滑而凉爽。
+
+Hikari was sitting at the table reading, a steaming cup of tea in front of her. Without meaning to, Shinji sneezed, and Hikari jumped up.  
+光坐在桌前阅读，面前是一杯冒着热气的茶。真嗣无意中打了个喷嚏，光立刻跳了起来。
+
+"S-sorry…" “对-对不起……”
+
+"Don't be," Hikari assured him, hastening to pour him a cup of tea. She popped two corn muffins into the microwave and leaned against the counter while she waited for them to warm. "Shinji… you look awfully red…have you got a fever?"  
+"别担心，" 光安慰他，急忙为他倒了一杯茶。她把两个玉米松饼放进微波炉，然后靠在柜台上等待它们加热。"真嗣…你看起来脸很红…是不是发烧了？"
+
+"I don't th-th-think—" Shinji's sentence was interrupted by a sneeze.  
+"我不觉——" 真嗣的话被一个喷嚏打断了。
+
+Hikari found a quilt to drape around his shoulders while he drank the tea and found a thermometer, instructing him to hold it under his arm for ten minutes.  
+光找了一条毯子披在他的肩上，让他喝茶，并找来体温计，指导他夹在腋下十分钟。
+
+"Thanks," he muttered thickly as Hikari took a seat opposite him.  
+“谢谢，”他含糊地咕哝着，光坐在他对面。
+
+"You don't need to be thanking me, Shinji," Hikari insisted. She warmed her hands around her cup. "By the way, I've called … and Asuka wasn't home. Do you know her cell phone number?"  
+“你不必谢我，真嗣，”光坚持道。她双手捧着杯子取暖。“对了，我打过电话……但明日香不在家。你知道她的手机号码吗？”
+
+Shinji's hand slowly began to quaver. The mug fell from his hand and sank to the table, where it continued to roll until its handle brought it to a stop, spilling its contents all over the wooden table. Hikari grabbed a towel and began wiping it up  
+真嗣的手慢慢开始颤抖。杯子从他手中滑落，沉到桌上，继续滚动直到把手让它停下，里面的液体洒满了木桌。光抓起一条毛巾开始擦拭。
+
+"I've… I've done something…" he whispered, not bothering to hide his tears as they streamed unchecked down his cheeks.  
+"我……我做了一些事……" 他低声说道，任由泪水毫无遮掩地顺着脸颊流下。
+
+"Why don't you tell me about it?" Hikari urged gently. "You'll feel better once you get it out."  
+"为什么不告诉我呢？" 光温柔地鼓励道，"说出来你会感觉好些的。"
+
+"I've… I've…" "我……我……"
+
+The door burst open behind them and Hikari, albeit usually calm in any situation, let out a shriek. Several men in black entered the house, followed by a weary-looking Mr. Horaki.  
+门在他们身后猛地被撞开，尽管平时无论何种情况都能保持镇定的光，还是发出了一声尖叫。几个身穿黑衣的男人闯进了屋子，随后是一位看起来疲惫不堪的碇先生。
+
+"Hikari…" “光…”
+
+The agents came to Shinji's side and handcuffed him, then led him out of the house. As he was being brought through the doorway, the Third Child looked to the Class Representative with deeply troubled eyes and murmured, "Touji…"  
+特工们来到真嗣身边，给他戴上手铐，然后将他带出屋子。当他被押过门口时，第三适格者用充满深深忧虑的眼神看向班长，低声说道：“东治…”
+
+Hikari could only mumble, "What?"  
+光只能含糊地应了一声，“什么？”
+
+Mr. Horaki closed the door behind him and focused on his middle child. "Hikari… what's going on?"  
+碇先生关上门，目光转向他的二女儿。“光……发生了什么事？”
+
+She could only reply, "I don't know."  
+她只能回答，“我不知道。”
+
+---
+
+Author's Notes: Either three shorter chapters or two long ones left to go (I haven't quite decided yet). I'm sorry this one ended up dragging a bit – I might split the next chapter into two shorter parts to avoid having that happen again.  
+作者的话：还剩下三章较短的或两章较长的（我还没完全决定）。很抱歉这一章拖得有点长——我可能会把下一章分成两个较短的部分，以避免再次发生这种情况。
+
+I fiddled a lot with this Angel attack, much more than the last one – several scenes have been rearranged and no longer occur when they do in the series, and I've completely changed others to fit the scheme of this story. I decided to cut out everything relating to the mystery behind the Marduk Institute, etc. because as important as it is in the series, it doesn't quite relate to this story. Oh, and the chemistry project—I really have no good reason for putting that in here besides the fact that I was working on some chem before I turned to this chapter (same with DeMoivre's Theorem).  
+我对这次天使袭击的描写做了很多调整，比上次多得多——有几个场景被重新排列，不再按照剧集中的时间发生，还有一些我完全改变了，以适应这个故事的框架。我决定删去所有与马杜克研究所背后的谜团相关的内容，因为在系列中虽然很重要，但与这个故事关系不大。哦，还有化学项目——我真的没有很好的理由把它加进来，除了我在写这一章之前正好在做一些化学实验（德莫瓦夫定理也是同样的情况）。
+
+Again, my apologies for any biological inaccuracies.  
+再次为任何生物学上的不准确之处道歉。
+
+---
+### Chapter 6: assiduity 勤奋不懈
+
+"Don't push him." “别逼他。”
+
+These were words that Misato repeated at least twice daily, usually with her eyes closed.  
+这些话美里每天至少重复两遍，通常是闭着眼睛说的。
+
+"We don't have time." “我们没时间了。”
+
+Those were words that Namika growled at least twice daily, usually with a face lined with frustration.  
+那是波多野每天至少咆哮两遍的话，通常脸上还带着沮丧的皱纹。
+
+And Ritsuko was on the receiving end of both.  
+而这一切的后果都落在了律子身上。
+
+_Don't push him_—well, that was excellent advice, as they certainly didn't want him to run off again, but the consequences were not at all feasible. _We don't have time_—well, that too was growing increasingly clear, but strapping Shinji down on a table by force and drawing out his bone marrow was not appealing either.  
+别逼他——这确实是好建议，毕竟他们当然不想他再次逃跑，但后果完全不可行。我们没时间——这一点也愈发明显，但强行将真嗣绑在桌上抽取骨髓同样不吸引人。
+
+She passed her few moments of spare time in the Japanese garden of the NERV hospital, which was beginning to show some furry buds despite the bitterly cold weather. Ritsuko squatted on a dry rock beside the frozen waterfall, tucking a stray tendril of hair behind her ear.  
+她在 NERV 医院内的日式花园里度过片刻闲暇，尽管天气严寒，园中已开始冒出毛茸茸的嫩芽。律子蹲在冻结的瀑布旁一块干石上，将一缕散乱的发丝别到耳后。
+
+She didn't know what Gendo had said to his son. Ritsuko remembered the first time that Shinji had run away, after his initial piloting experiences. He was an eccentric one, that was for sure; nevertheless, he had come far in the last half year. To think that it all might have been a waste, that he would run away again…  
+她不知道源堂对儿子说了什么。律子记得真嗣第一次逃跑是在他初次驾驶之后。他确实是个古怪的孩子，这一点毋庸置疑；尽管如此，在过去半年里他已经取得了长足的进步。想到这一切可能都白费了，他又要再次逃跑……
+
+"Ritsuko." “律子。”
+
+Namika was bundled up in a large brown overcoat, almost all of her face hidden beneath the fake-fur lined hood. Her eyes were downcast, her dark eyelashes coated with frosted moisture, and Ritsuko could only think of one word to describe them; bleak, devoid of any happiness.  
+奈美卡裹在一件宽大的棕色大衣里，几乎整张脸都藏在人造毛皮衬里的兜帽下。她的眼睛低垂着，深色的睫毛上沾满了霜冻的水汽，律子只能想到一个词来形容它们；黯淡，毫无喜悦之色。
+
+"He's staying," she informed the blonde doctor. The coat muffled her voice and the wind snatched away at the remaining sound.  
+"他留下," 她告诉那位金发医生。外套闷住了她的声音，风又夺走了剩余的声响。
+
+"He doesn't _want_ to stay."  
+"他不想留下。"
+
+Namika said nothing. They both knew it was true.  
+Namika 没有说话。他们俩都知道这是真的。
+
+"Sometimes—" Ritsuko broke off, looking into the distance beyond the trees. There was a loud screech as somebody slammed on their brakes on the road, then a series of angry beeps. She blinked and looked at her feet, clad in the usual black heels. "…I wish I could just take him by the shoulders and shake some sense into him."  
+"有时候——" 律子突然停下，目光越过树木望向远方。公路上传来一阵急促的刹车声，紧接着是一连串愤怒的喇叭声。她眨了眨眼，低头看着自己脚上那双惯常的黑色高跟鞋。"…我真希望我能抓住他的肩膀，狠狠地摇醒他。"
+
+Namika reached up with a gloved hand and drew her hood down a bit so that she could speak audibly.  
+美香子用戴着手套的手向上拉了拉兜帽，以便能清楚地说话。
+
+"Did you know Misato went to visit the Fourth's sister?"  
+"你知道美里去拜访了第四适格者的妹妹吗？"
+
+"No."
+
+Namika recounted the story as she had watched from the doorway.  
+纳美卡从门口旁观的角度讲述了这个故事。
+
+---
+
+"_You're Sorhyu Asuka Langley. My brother told me about you."  
+你是惣流·明日香·兰格雷。我哥哥跟我提起过你。_
+
+_Misato tugged consciously at her hair and laughed at the girl's condescending tone. "No, I'm not Asuka. This is a wig, see?"  
+美里下意识地拽了拽自己的头发，对女孩的傲慢语气笑了笑。“不，我不是明日香。这是个假发，你看？”_
+
+"_Oh." Michika Suzuhara's eyes widened as if she were suddenly terrified of being in the presence of a stranger. "Who are you, then?"_  
+"哦。" 铃原 Michika 的眼睛睁大了，仿佛突然对陌生人的存在感到恐惧。"那么，你是谁？"
+
+"_I'm Misato Katsuragi. Did your brother tell you about me too?"_  
+"我是葛城美里。你哥哥也跟你提起过我吗？"
+
+"_He said you had pretty purple hair. Where is it?"_  
+"他说你有漂亮的紫色头发。头发在哪儿呢？"
+
+"_Well, it's all gone now," Misato told her, and she could not keep the note of wistfulness out of her voice. "I'm getting treatment for cancer. It makes your hair fall out."_  
+"唉，现在都没了，"美里告诉她，声音中不自觉地带上了几分惆怅。"我正在接受癌症治疗。这会让你的头发掉光。"
+
+_Michika considered this. "So you're a patient here too?"  
+Michika 思索着。"那么你也是这里的病人吗？"_
+
+"_Yes."_ "是的。"
+
+"_Like me?"_ "像我一样？"
+
+"_Yes."_ "是的。"
+
+_The little girl smiled, immediately warming up. She plucked an old faded stuffed animal from beneath her blanket and held it up to Misato proudly. "This is Mai!"  
+小女孩笑了，立刻变得热情起来。她从毯子下抽出一个旧旧的、颜色褪去的毛绒玩具，自豪地举到美里面前。“这是麻衣！”_
+
+"_She's beautiful," Misato told her, reaching over to stroke the bear's head affectionately. "When I was your age I didn't have any stuffed animals. I liked to play with paper dolls."_  
+“她真漂亮，”美里告诉她，伸手过去温柔地抚摸着小熊的头。“我像你这么大的时候，没有毛绒玩具。我喜欢玩纸娃娃。”
+
+"_I don't like paper dolls," Michika said candidly, and then in a grown-up tone added, "They tear very easily."_  
+“我不喜欢纸娃娃，”美智香直率地说，然后用一种大人的口吻补充道，“它们很容易撕破。”
+
+"_That's true. Where did you get Mai?"_  
+“确实。你是从哪儿得到小舞的？”
+
+_Michika held the bear close to her, burying her face in its fur. She did not look at Misato as she said quietly, "My mommy bought her for me."  
+美智香紧紧抱着那只熊，将脸埋进它的毛里。她没有看美里，只是轻声说：“我妈妈给我买的。”_
+
+_Misato remembered the Fourth Child file that Ritsuko had shown her and felt guilty for instigating the memory of their mother.  
+美里想起了律子给她看过的第四适格者档案，为自己勾起了关于母亲的回忆而感到内疚。_
+
+"_Do you know Shinji?" Michika asked, steering the subject away. "Shinji Ikari?"_  
+"你知道真嗣吗？" 美知香转移了话题，"碇真嗣？"
+
+"_Yes, he lives with me."_  
+"是的，他和我住在一起。"
+
+"_Touji said he could save your life," Mika whispered with large eyes, as if she were telling Misato a poignant secret. "Is that true?"_  
+"托基说他能救你的命，" 美香低声说道，眼睛睁得大大的，仿佛在向美里透露一个感人的秘密。"这是真的吗？"
+
+"_Well…yes…it is."_  “嗯……是的……确实是这样。”
+
+_She thought quickly, trying to find a way to simplify the complicated biology behind it all to a point where the little girl would be neither confused nor bored, but Michika was satisfied with that answer. She hugged her bear again and proclaimed proudly, "Someday I want to be a doctor, so I can save people too."  
+她迅速思考，试图将背后复杂的生物学原理简化到小女孩既不会感到困惑也不会觉得无聊的程度，但 Michika 对这个回答感到满意。她再次抱紧了她的熊，自豪地宣布：“将来我想成为一名医生，这样我也能救人了。”_
+
+---
+
+Valentine's Day. 情人节。
+
+It was lunchtime. Asuka discovered a large stack of valentines in her box from boys—some she knew, some she didn't, but it made no difference—she threw them all away without a glance. Only one piece of paper held her attention, the one she clenched in her hand now, and it had not come from her mailbox.  
+正值午餐时间。明日香在她的盒子里发现了一大堆来自男孩的情人节卡片——有些她认识，有些则不认识，但这都无关紧要——她一眼都没看就全扔掉了。只有一张纸吸引了她的注意，就是她现在紧握在手中的那张，而且它并非来自她的邮箱。
+
+She opened her hand. The red ink had stained her palm. Gingerly she unfolded it.  
+她张开手。红色的墨水已染红了她的手掌。她小心翼翼地展开它。
+
+Names: Sorhyu Asuka Langley, Suzuhara Touji  
+姓名：惣流·明日香·兰格雷，铃原东治
+
+Project: Nuclear Chemistry  
+项目：核化学
+
+Grade: 105 成绩：105 分
+
+Despite the grade, she felt absolutely no elation at seeing it.  
+尽管成绩优异，她看到分数时却丝毫没有感到喜悦。
+
+"Miss Sorhyu." "索希尤小姐。"
+
+Asuka crushed the paper in her hand and composed herself as she whirled around to face the speaker. She didn't recognize him. He reached out and took her hand, placing in it a large heart-shaped chocolate wrapped with pink tin foil. Asuka was temporarily too shocked to reply, as none of the boys had been so bold.  
+明日香将手中的纸捏成一团，转身面对说话者，努力平复情绪。她并不认识他。他伸出手，将一个用粉色锡箔纸包裹的大心形巧克力放在她手中。明日香一时震惊得说不出话来，因为从未有男孩如此大胆。
+
+"I… I don't want it… I've…"  
+"我…我不想要…我…"
+
+He simply bowed and left her standing there.  
+他只是鞠了一躬，留下她站在那里。
+
+"GAHH!" "啊！"
+
+Asuka smashed the rounded part of the chocolate at the metal locker. Apparently the candy was solid throughout, as it developed hardly a dent. Asuka tossed it into her bag and returned to her desk, removing a standard gray lunchbox with the word NERV stamped across the front. She missed Shinji's lunches, but food was the last thing on Shinji's mind nowadays.  
+明日香用力将巧克力的圆头部分砸向金属储物柜。显然，糖果是实心的，因为它几乎没有留下凹痕。明日香把它扔进包里，回到自己的桌子前，拿出一个印有 NERV 字样的标准灰色午餐盒。她怀念真嗣做的午餐，但如今食物是真嗣心中最不重要的事情。
+
+Hikari sat beside her, eating in conscious little bites. She kept her eyes focused on her bento and did not speak. Asuka glanced at her and noticed that her lower lip wavered hesitantly before each bite.  
+光坐在她旁边，小心翼翼地吃着。她始终盯着便当，一言不发。明日香瞥了她一眼，注意到她每次咬下之前，下唇都会犹豫地颤抖。
+
+"Eat this," she ordered, pushing the heart-shaped chocolate at her friend. "It'll make you feel better."  
+“吃这个，”她命令道，将心形的巧克力推给朋友，“会让你感觉好些。”
+
+Hikari laid down her chopsticks and touched her napkin to her lips, but left the chocolate.  
+光放下筷子，用餐巾轻触嘴唇，却留下了巧克力。
+
+"He doesn't like me, Asuka. He never will now. He… he doesn't think he's worth anything anymore." Her eyes filled dangerously. "He wanted to me to tell his sister that he was fine. He—" Hikari's voice broke and she fumbled for words. Asuka, in a moment of humane compassion, reached out and let the Class Representative cry on her shoulder.  
+"他不喜欢我，明日香。他现在永远不会了。他……他觉得自己一无是处了。" 她的眼睛危险地充满了泪水。"他希望我告诉他妹妹他没事。他——" 光的声音哽咽了，她慌乱地寻找着词语。明日香，在这一刻的人性同情中，伸出手让班长靠在她的肩膀上哭泣。
+
+"They'll be able to sort him out," she said bracingly. "Think about all the injuries Shinji and Wonderg—Rei's gone through."  
+"他们会帮他解决的，" 她鼓励地说。"想想真嗣和奇迹——绫波经历过的那些伤。"
+
+"Shinji's never lost a leg, has he?" Hikari whispered savagely. A moment later she quickly added, "I don't care if he never plays basketball again, if he never wins another race—he's still… Suzuhara…" Tears leaked from both eyes and she blotted at them with the back of her hand. "But I can't make him see that…"  
+"真嗣从未失去过一条腿，对吧？" 光野蛮地低声说。片刻后她迅速补充道，"我不在乎他是否再也不能打篮球，是否再也赢不了比赛——他仍然是……铃原……" 泪水从两只眼睛中流出，她用手背擦拭着。"但我无法让他明白这一点……"
+
+Asuka didn't know what to say, so she remained silent. Hikari picked up the broken conversation again, quietly venturing, "Speaking of Shinji, how's he doing?"  
+明日香不知道该说什么，于是保持沉默。光子再次拾起破碎的对话，轻声试探道：“说到真嗣，他最近怎么样？”
+
+"He's—" Asuka broke off abruptly, having been about to call him the usual names. "He's doing fine. He would probably have wandered into some alley and frozen to death if you didn't take him in that day…thanks..."  
+“他——”明日香突然打住，差点又像往常那样称呼他。“他挺好的。要不是那天你收留了他，他可能早就迷路在某条小巷里冻死了……谢谢你……”
+
+Hikari's head moved ever so slightly. Asuka took it to be a small chuckle.  
+光子的头微微一动。明日香将其视为一声轻笑。
+
+When the bell rang again to signal the start of class, Asuka was still quietly stroking Hikari's hair. The latter held back a sniffle, quickly sat up and announced, "Rise… bow… sit!"  
+当铃声再次响起，标志着上课开始时，Asuka 仍在静静地抚摸着 Hikari 的头发。后者忍住抽泣，迅速坐直并宣布：“起立……鞠躬……坐下！”
+
+She sat back down and smiled bravely at Asuka, who returned the gesture, feeling oddly grateful that Shinji had not been injured nearly as badly as Touji.  
+她坐回原位，勇敢地对 Asuka 微笑，后者也回以微笑，心中莫名感激 Shinji 没有像 Touji 那样受重伤。
+
+---
+
+"Unfamiliar ceiling…"
+
+Shinji grasped a wad of white bedsheet tightly in his fist, then let it fall. There was no point in giving him a stereotypical hospital room when he wasn't physically ill; he had instead been placed in a small windowless room just off the main hospital corridor. It was simple—bed, toilet, bare walls and floor. Shinji could not understand why such a room had been built into the building, except for the purposes of keeping runaway pilots such as himself within NERV control.  
+Shinji 紧紧抓住一团白色床单，随后又松开。既然他没有身体上的疾病，给他一个典型的医院病房就没有意义；相反，他被安置在主医院走廊旁一个没有窗户的小房间里。房间简单至极——床、厕所、光秃秃的墙壁和地板。Shinji 无法理解为何这样的房间会建在建筑物内，除了用于将像他这样的逃跑驾驶员控制在 NERV 的掌控之中。
+
+_Runaway pilot_. 逃跑的驾驶员。
+
+_That's what you are_. 你就是那样。
+
+"So what if I ran away?" Shinji muttered dully to himself. "I'm back, aren't I? I'm back to be exploited by my father."  
+“就算我逃跑了又怎样？”真嗣闷闷不乐地自言自语，“我回来了，不是吗？回来被我父亲利用。”
+
+…_but you ran away again…_  
+…但你又逃跑了…
+
+Shinji held his forehead in his hands as Asuka's face swam into view.  
+真嗣双手捂着额头，明日香的面容浮现在眼前。
+
+_Baka! You're always running away from things! Why don't you act like a man and learn to face them?  
+笨蛋！你总是逃避！为什么不像个男人一样学会面对呢？_
+
+Her angry expression, accented by the jabbing finger, melted into Rei'scalm, emotionless face. She uttered only one word.  
+她愤怒的表情，因那戳动的手指而更显生动，逐渐融化成丽平静无波的面容。她只吐出了一个词。
+
+_Ikari… 碇…_
+
+Her face disappeared in turn and was replaced by Kensuke's, one eye hidden behind the camera.  
+接着她的脸被健司的取代，相机遮住了他的一只眼睛。
+
+_Hey, Shinji! Do you think Misato-san will let me pilot it? I'd be a good pilot! Will you ask her for me?  
+嘿，真嗣！你觉得美里小姐会让我驾驶它吗？我会是个好驾驶员的！你能帮我问问她吗？_
+
+"You don't understand," Shinji raged through clenched teeth at the Kensuke in his mind. "You have absolutely… no … damn idea… what it's like… to have your hands manipulated, to kill your best friend!"  
+“你不明白，”真嗣在心中对健介咬牙切齿地说道，“你完全……没有……该死的……概念……那是什么感觉……被操控双手，杀死最好的朋友！”
+
+He was shouting now, tears streaming down his face, but he no longer cared. Shinji slammed his fist against the wall, half hoping that it would give way to his anger, but the granite absorbed it and remained silent. He punched it again, this time the knuckles making direct contact. The crack resounded around the room.  
+他现在大声喊叫，泪水顺着脸颊流下，但他已经不在乎了。真嗣一拳砸在墙上，一半希望这愤怒能让墙崩塌，但花岗岩吸收了冲击，依旧沉默。他又打了一拳，这次指节直接接触。裂开的声音在房间里回响。
+
+"Don't tell me… you _want_ to pilot that… that thing…"  
+"别告诉我……你想驾驶那个……那个东西……"
+
+Breathing heavily, Shinji backed away from the wall, rubbing his sore hand. Unfortunately, he was none too aware of the lamp nearby, and a moment later crashed into it. The lamp toppled to the ground and smashed, its dim lightbulb breaking into glass shards on the floor and draping Shinji in darkness.  
+呼吸沉重，真嗣从墙边退开，揉着酸痛的手。不幸的是，他并未注意到附近的台灯，片刻后便撞上了它。台灯倒地破碎，昏暗的灯泡在地板上碎成玻璃渣，将真嗣笼罩在黑暗中。
+
+"Dammit…" "该死……"
+
+He felt his way to the bed, still angry, and turned away from the broken lamp. He was suddenly cold; the shouting had taken the energy out of him. Shinji drew the thin blanket over himself and curled up into a ball, unable to desist shivering, forcibly reminding himself of the wretched hours he had spent at Hikari's house before NERV agents had overtaken him.  
+他摸索着走到床边，依旧怒气未消，转身背对着破碎的台灯。他突然感到寒冷；喊叫耗尽了他的力气。真嗣拉过薄薄的毯子盖在身上，蜷缩成一团，止不住地颤抖，强迫自己回想起在光家里度过的悲惨时光，直到 NERV 特工将他带走。
+
+_Why don't you tell me about it? You'll feel better once you get it out.  
+为什么不告诉我呢？说出来你会感觉好些。_
+
+"Liar," Shinji whispered, his fists clenched. Even as he did so, he knew it wasn't fair of him to say such things; Hikari had clearly done her best by him.  
+“骗子，”真嗣低声说道，双拳紧握。尽管如此，他知道自己这么说并不公平；光显然已经尽力对他好了。
+
+He lay there in silence and darkness, unaware of time. When somebody opened the door and cautiously called out his name, he chose to remain motionless and pretended to be asleep.  
+他躺在寂静与黑暗中，对时间毫无知觉。当有人打开门，小心翼翼地呼唤他的名字时，他选择保持不动，假装睡着了。
+
+---
+
+Rei had been largely ignored in the last few weeks. She did not mind, of course; for much of her life, she had been treated so, and she welcomed the chance to simply observe.
+
+Pilot Sorhyu was not happy. She knew this from the nightly walks that she took to clear her mind whenever sleep did not come to her. She knew what the girl had allowed few others to know; she had heard the Second's tearful mumblings as she dreamt of her mother. Nowadays, however, her talk took on other tones and subjects—she worried in her sleep over topics that she did not discuss in consciousness; many times Rei had heard Misato and Pilot Ikari's names mentioned. She was also perfectly aware that there seemed to be a budding relationship between Pilot Sorhyu and Pilot Ikari that was never able to develop due to circumstances beyond their control.  
+索尔希驾驶员并不开心。她从每晚为了清醒头脑而散步的时候就知道了。她知道这个女孩只让少数人知道的事情；她听到了第二驾驶员在梦中对母亲的哭泣低语。然而，如今她的梦话转向了其他语调和话题——她在睡梦中担忧那些清醒时未曾讨论的话题；许多次，丽听到过美里和碇驾驶员的名字被提及。她也完全清楚，索尔希驾驶员和碇驾驶员之间似乎有一段因无法控制的情况而未能发展的关系。
+
+_He is not Pilot Ikari now,_ Rei reminded herself placidly, as she walked slowly down the hallway. She stripped away the title.  
+他现在不是碇驾驶员，丽平静地提醒自己，她缓缓走在走廊上。她剥离了这个头衔。
+
+_Ikari. Just Ikari. 碇。只是碇。_
+
+A nurse passed her in the hallways, hurrying, always hurrying; she paid the blue-haired girl no attention and Rei did the same to her. The nurses did not mind her nightly walks, as long as she was in bed and ready for her daily checkup and bath.  
+一名护士在走廊里匆匆经过她，总是匆匆忙忙；她对蓝发女孩视而不见，绫波也对护士同样漠然。护士们并不介意她每晚的散步，只要她能按时回到床上，准备好每天的检查和洗澡。
+
+Rei looked at her left hand. It bore no bandages now and showed no signs of damage unless she tried to move it. She had still not regained full function in her left arm and the therapists continued to insist upon physical exercises, performed on a daily basis. Rei found them repetitive and tedious, but she did them, as she was ordered to.  
+绫波看着她的左手。现在没有绷带，也没有任何损伤的迹象，除非她试图移动它。她的左臂功能仍未完全恢复，理疗师们继续坚持每天进行物理锻炼。绫波觉得这些锻炼重复而乏味，但她还是照做了，因为这是命令。
+
+She came to the miniscule waiting room. NERV liked to keep its functions secret and therefore did not encourage large numbers of family members to crowd its hospital while a relative underwent an operation. However, it had an enormous glass window that made up all of one side, and Rei had often liked to look outside and think to herself over her daily observations. She preferred to come at night, when the lights were turned off and there were no glares from the light bulbs on the glass panes. Tonight she pressed her good hand against the window and instinctively flexed her other hand. It tired after only two repetitions, and she was uncomfortably aware that some fingers were more sensitive than others. It occurred to her that as long as these symptoms remained, she would stay in the NERV hospital. Normally The Commander would not have ordered it so, but as the Second and—Ikari—were already staying, there would be no harm in keeping the First as well.  
+她走进了那间狭小的等候室。NERV 喜欢保持其职能的隐秘性，因此不鼓励大量家属在亲人手术时挤满医院。然而，这里有一面巨大的玻璃窗，占据了整面墙，丽常常喜欢透过它向外望去，沉思自己的日常观察。她更喜欢在夜间来此，那时灯光已熄，玻璃窗上没有灯泡的反光。今晚，她用那只完好的手按在窗上，本能地弯曲另一只手。仅两次重复动作后，手便感到疲惫，她不安地意识到有些手指比其他更为敏感。她意识到，只要这些症状持续，她就会留在 NERV 医院。通常情况下，司令不会如此命令，但由于二号机驾驶员——碇——已经在此，留下初号机驾驶员也无妨。
+
+She heard voices outside but did not move. They would not come to chase her out. Rei looked through the open door and saw from the lady's silhouette that it was the doctor in charge of Misato's case.  
+她听到外面的说话声，但没有动。他们不会来赶她走。丽透过敞开的门，从那位女士的轮廓认出是负责美里病例的医生。
+
+She knew, of course, that Ikari had become somewhat of a recluse since being retrieved from Class Representative Horaki's home. What she had observed, however, was that the doctor appeared to have abandoned hope for Ikari and resorted instead to The Commander. Rei assumed that this was due to the fact that time was rapidly running out, and she felt a burning knot of misery and annoyance in her stomach that she could not be the one to save Misato.  
+她当然知道，自从在班长洞木光家里被救出后，碇已经变得有些隐居了。然而，她观察到的是，医生似乎已经对碇失去了希望，转而求助于指挥官。绫波推测这可能是因为时间正在迅速流逝，她感到一种痛苦和恼怒的纠结在胃里燃烧，因为她不能成为拯救美里的人。
+
+The glass was cold. Rei pulled her hand away. It was mid-March, she remembered. The days would start to grow soon.  
+玻璃杯冰冷。绫波缩回了手。她记得现在是三月中旬。白昼即将开始变长。
+
+But hope for Misato did not.  
+但对美里的希望并未随之而来。
+
+And then there was the everlasting threat of an impending Angel attack.  
+然后是永恒的威胁，天使即将来袭。
+
+Rei sat down beside the glass and pulled her legs to her chest. Her left arm ached dully and she massaged the shoulder joint with her other hand, glancing sideways through the window as she did so. In the darkness there was nothing except for a dark smudge of treetops and above that, a few glimmering stars.  
+丽坐在玻璃旁，将双腿蜷缩至胸前。她的左臂隐隐作痛，便用另一只手按摩肩关节，同时侧目透过窗户望去。黑暗中除了树梢的暗影外，只有几颗闪烁的星星悬挂其上。
+
+---
+
+Water. He'd forgotten to fill up his water bottle, dammit. Not that he didn't forget a lot of things recently.
+
+Shinji climbed sideways out of his bed and swiped the plastic bottle off the bedside table. It was gray and wrapped in a standard sheet of gray foam with the letters NERV stamped across it horizontally in darker gray. Shinji covered the word with his hand, then ambled over to the fountain on the other side of the room. It was broken and made churning sounds when he pressed the button. He sighed, turned, and decided that his only alternative was the water fountain on the other end of the hallway.  
+真嗣侧身爬下床，从床头柜上抓起塑料瓶。瓶子是灰色的，裹着一张标准的灰色泡沫纸，上面横向印着深灰色的 NERV 字样。真嗣用手遮住那个词，然后踱步到房间另一侧的喷泉处。喷泉坏了，按下按钮时发出咕噜咕噜的声音。他叹了口气，转身决定只能去走廊另一端的饮水机了。
+
+He had taken only a few steps when he heard it—  
+他只走了几步，就听到了那个声音——
+
+"Ikari Shinji!" “碇真嗣！”
+
+Shinji whirled around, the high-pitched feminine voice taking him by surprise. It couldn't be Misato – her room was in the other hallway, and Asuka would never call him in such a format manner.  
+真嗣猛地转过身，那尖锐的女性声音让他吃了一惊。不可能是美里——她的房间在另一条走廊，而明日香绝不会用这种正式的方式叫他。
+
+Who else then? 那还会有谁呢？
+
+He was still standing in the hallway, perplexed, when the voice called out again, this time tentatively—"Shinji-kun?"  
+他仍站在走廊里，困惑不解，这时那声音再次响起，这次带着些许试探——“真嗣君？”
+
+Shinji held his breath and poked his head into the nearest room. A little girl of no more than six waved back eagerly at him.  
+真嗣屏住呼吸，探头望向最近的房间。一个不超过六岁的小女孩急切地向他挥手。
+
+"Shinji-kun! I knew it was you! My brother told me all about you!"  
+"真嗣君！我就知道是你！我哥哥跟我提起过你！"
+
+"Y-your brother?" "你-你哥哥？"
+
+And then it hit him. This was _Touji's sister_. Touji's dark hair, his brown eyes, his thick eyebrows, softened to fit a young female face.  
+然后他恍然大悟。这是东治的妹妹。东治的黑发，他的棕色眼睛，他浓密的眉毛，都柔和地融入了一张年轻女性的面庞。
+
+"Sit," Michika pointed commandingly to the bench, but quickly added, "please?"  
+"坐下，" 美里卡命令式地指向长椅，但随即迅速补充道，"请？"
+
+Something told Shinji that she just might start crying if he didn't, so he did—albeit reluctantly.  
+某种直觉告诉真嗣，如果他不照做，她可能真的会哭出来，所以他坐下了——尽管有些不情愿。
+
+"You go to school with my brother."  
+"你和我哥哥在同一所学校。"
+
+"Err…yeah…" "呃…是啊…"
+
+"And you work with him."  
+"而且你还和他一起工作。"
+
+"Yeah." "嗯。"
+
+Michika lapsed into silence. Shinji waited, already dreading her next question. He knew that Touji had asked Hikari not to tell his sister of his circumstances…_if she asks me_, Shinji thought desperately, _I won't tell her either…_  
+美里卡陷入了沉默。真嗣等待着，已经对她的下一个问题感到害怕。他知道，托吉曾要求光不要告诉他的妹妹他的情况…如果她问我，真嗣绝望地想，我也不会告诉她…
+
+"I have a question." "我有个问题。"
+
+"Go ahead…" "请说……"
+
+Michika leaned close. "Is—" she paused to make sure the words rolled off her tongue properly: "—Sorhyu Asuka Langley as mean as Touji says she is?"  
+美智香靠近了些。“那个——”她停顿了一下，确保话语能恰当地从舌尖滑出：“——惣流·明日香·兰格雷，真的像东治说的那么刻薄吗？”
+
+"No," Shinji said impulsively. "Well…"  
+"不，" 真嗣冲动地说道。"嗯…"
+
+"Touji says she hit him!" Michika whispered, her eyes wide as saucers.  
+"托基说她打了他！" 美智香低声说，眼睛瞪得像铜铃一样大。
+
+"Well, yes… she hit me too…"  
+"嗯，是的…她也打了我…"
+
+"Then she _must_ be mean!" Michika crossed her arms, ending the discussion.  
+“那她一定很刻薄！”美智香交叉双臂，结束了讨论。
+
+Shinji, who was fervently hoping that Asuka wouldn't happen to pass by and hear the conversation, felt that he ought to defend the Second—but he couldn't find anything to say, so he remained silent.  
+真嗣热切地希望明日香不会恰好路过并听到这段对话，他觉得应该为二号机辩护——但他找不到任何话可说，只好保持沉默。
+
+Michika, sensing his reluctance, quickly piped up, "Misato came to visit me yesterday!"  
+美智香察觉到他的犹豫，迅速插话道：“美里昨天来看我了！”
+
+_Misato. 美里。_
+
+The word sent an uncomfortable shiver throughout Shinji's body.  
+这个词让真嗣全身不由自主地打了个寒颤。
+
+_Misato— 美里——_
+
+—_leukemia—_ —白血病—
+
+—_blood testing—_  —血液检测—
+
+—_bone marrow—_ —骨髓—
+
+—_d—_
+
+"I heard you're the only one that can save her," Michika said matter-of-factly.  
+"我听说只有你能救她，"美智香直截了当地说。
+
+—_save her—_ —救她—
+
+"You haven't changed your mind, have you? My brother says—"  
+"你还没改变主意，对吧？我哥哥说——"
+
+—_her life_— ——她的生活——
+
+"—a good boy who always tried to help others—"  
+"——一个总是尽力帮助别人的好孩子——"
+
+_Touji. 冬二。_
+
+"_Misato-san sure is pretty, huh?"_  
+“美里小姐真的很漂亮，对吧？”
+
+"_I bought this cap just for today, Misato-san!"_  
+“我为了今天特意买了这顶帽子，美里小姐！”
+
+"Shinji-kun?"  "真嗣君？"
+
+Shinji looked up into Michika's big, round brown eyes, filled with worry.  
+真嗣抬头望进美智香那双大大的、圆溜溜的棕色眼睛，里面满是担忧。
+
+"Yeah," he muttered, "I have to go."  
+"嗯，"他咕哝道，"我得走了。"
+
+---
+
+Namika was testing samples with the help of an assistant when the door burst open. The assistant screamed, and Namika scolded her for losing her head.
+
+"You could've lost the samples," she reprimanded. "Yes, …Pilot Ikari."  
+"你差点就丢了样本，"她责备道。"是的，……碇驾驶员。"
+
+"I'm not the Third Child anymore," Shinji ground out through clenched teeth. "Don't address me like that—"  
+"我已经不是第三适格者了，"真嗣咬牙切齿地说。"别那样称呼我——"
+
+The curtain behind the doctor rustled, and The Commander stepped out, robed only loosely in a blue-and-white hospital gown. The classic gloves and glasses were gone, yet his stare remained; the scene would have almost been comical had the situation not been so tense.  
+医生身后的帘子沙沙作响，指挥官走了出来，只随意披着一件蓝白相间的病号服。标志性的手套和眼镜不见了，但他的目光依旧锐利；若非情势如此紧张，这一幕几乎有些滑稽。
+
+"Why are you here?" "你为什么在这里？"
+
+"Because—because I have to save Misato," Shinji breathed hurriedly. He was suddenly very panicked; he was sure that time was running out—already he had wasted several weeks. _What a stupid question!_ He wanted to push his father aside and plead his case instead with the doctor, but she hovered behind The Commander, afraid to interfere—  
+"因为——因为我必须救美里，" 真嗣急促地喘息着。他突然感到非常恐慌；他确信时间正在流逝——他已经浪费了好几周。多么愚蠢的问题！他想把父亲推开，转而向医生恳求，但她躲在指挥官身后，不敢插手——
+
+"And your piloting duties?"  
+"那你的驾驶任务呢？"
+
+It took a moment for the question to register in Shinji's mind, but his response came automatically, as if everything besides the transplant was controlled by autopilot.  
+问题在碇真嗣的脑海中停留了一会儿才被理解，但他的回答几乎是自动的，仿佛除了移植手术外的一切都被自动导航控制着。
+
+"I'm _not_ piloting anymore."  
+“我不再驾驶了。”
+
+Pause. 暂停。
+
+It was apparent to Namika that The Commander was clearly displeased with his son, and it seemed that he was weighing two consequences in his mind—allowing his son to stay solely for the purpose of rescuing his prized Major, and sending him away in order to concentrate all NERV authority in finding a replacement pilot. Misato herself had said that pilots were replaceable, after all… but good Majors were not. A muscle tensed in his cheek, and Namika prepared herself for his proclamation.  
+奈美香明显看出司令对其儿子显然不满，他似乎在权衡两种后果——为了救他珍视的少校而让儿子留下，以及为了集中 NERV 的全部权力寻找替代驾驶员而将他送走。毕竟，美里自己也曾说过，驾驶员是可以替代的……但优秀的少校却不是。他脸颊上的肌肉紧绷，奈美香准备好迎接他的宣判。
+
+None came. He simply nodded to her and stepped out of the room.  
+无人应答。他只是向她点了点头，随即走出了房间。
+
+"Dr. Ishiyama?" Her assistant broke the silence tentatively. "The samples—they need to be refrigerated—"  
+"石山博士？" 她的助手试探性地打破了沉默。"样本——它们需要冷藏——"
+
+Namika looked down and realized that she had tightened her grip considerably on the vial, bringing up its temperature. She sighed and tossed it into the biohazard box.  
+奈美香低头一看，发现自己已经紧紧握住了试管，使其温度升高。她叹了口气，将其扔进了生物危害箱。
+
+"Now that he's here, we won't need that sample anyway. Shinji—"  
+"既然他已经来了，我们反正也不需要那个样本了。真嗣——"
+
+"Yes?" "是的？"
+
+His words were tripping over hers in hastened desperation. Namika breathed, thanking the Lord for this unexpected good fortune, and forced herself to calm down. There was a calendar posted just behind Shinji's left ear and she focused on one block of the page, labeled March 26.  
+他的话语急切地与她的交织在一起，充满了绝望的迫切。Namika 深呼吸，感谢上帝这意外的好运，并强迫自己冷静下来。在真嗣左耳后方贴着一张日历，她专注于其中一块，标记着 3 月 26 日的那一格。
+
+"We can't do it right now?" Shinji asked, looking crestfallen as he read her mind.  
+"我们现在不能做吗？" 真嗣问道，看起来很失望，仿佛读懂了她的心思。
+
+Namika shook her head. "We need to get Misato restarted on a chemotherapy course first—_crisantaspase_ or _mercaptopurine_, Misumi—" the assistant hurried away into the back room: "—for at least a week. Let's set the date of the transplant for March 26."  
+Namika 摇了摇头。“我们得先让 Misato 重新开始化疗——crisantaspase 或 mercaptopurine，Misumi——”助手匆匆走进后面的房间：“——至少持续一周。我们把移植日期定在 3 月 26 日吧。”
+
+"That's…nine days away," Shinji said. "You think she'll last that long?"  
+“那……还有九天，”Shinji 说。“你觉得她能撑那么久吗？”
+
+The assistant returned and placed a small package into Namika's outstretched hand.  
+助手回来，将一个小包裹放入 Namika 伸出的手中。
+
+"Yes, I do." "是的，我愿意。"
+
+Shinji turned to leave, but paused just beside the door.  
+真嗣转身准备离开，但在门口停顿了一下。
+
+"Please… hurry." "请……快点。"
+
+---
+
+"I'm proud of you, Third."
+
+Shinji didn't feel like telling her to drop the Third. They were gathered in Asuka's room, sitting on her bed. Her room was smaller than his and didn't have a water fountain, functioning or not. He traced a pattern on the bed sheet.  
+真嗣并不想让她放弃第三适格者这个称呼。他们聚在明日香的房间里，坐在她的床上。她的房间比他的小，也没有水池，不管能不能用。他在床单上画着图案。
+
+"It is I, Sorhyu Asuka Langley, who is speaking to you—why aren't you acting more happy?" Asuka asked, a weak attempt to humor the statement that had before drawn fear and shame from the boy sitting in front of her. Instead of shying away, Shinji smiled, and Asuka did so in return.  
+"是我，惣流·明日香·兰格雷，在跟你说话——你怎么不显得更高兴些？"明日香问道，试图用一句玩笑缓和之前那句曾让坐在她面前的男孩感到恐惧和羞愧的话。真嗣没有退缩，反而笑了，明日香也回以微笑。
+
+"You know that I'm not going to pilot again," he said, without meeting her eyes.  
+"你知道我不会再去驾驶了，"他说，没有直视她的眼睛。
+
+"Suit yourself." She looked away. "Do whatever pleases you, Third—I mean, Shinji." Asuka paused. "You've done enough for others."  
+"随你便。" 她转过头去。"做任何让你开心的事吧，三——我是说，真嗣。" 明日香停顿了一下。"你已经为别人做得够多了。"
+
+"I haven't done anything," Shinji mumbled, confused by this statement.  
+"我什么都没做，" 真嗣喃喃自语，对这番话感到困惑。"
+
+"Yes you have. You tutored me in Japanese. You cooked and cleaned after us without complaint. And you're going to save Misato. Think of yourself, for once."  
+"不，你做了。你辅导我日语。你无怨无悔地为我们做饭和打扫。而且你还要救美里。就这一次，为自己想想吧。"
+
+"Er… okay…" “呃……好吧……”
+
+Asuka sighed, took him by the shoulders, and wheeled him around to face her. "Shinji—no, look at me—now, tell me: after Misato's well again, what's the first thing you want to do?"  
+明日香叹了口气，抓住他的肩膀，将他转过来面对自己。“真嗣——不，看着我——现在，告诉我：再次回到美里小姐那里之后，你最想做的是什么？”
+
+Shinji looked at the depth of her blue eyes and blushed.  
+真嗣凝视着她深邃的蓝眼睛，脸红了。
+
+Asuka shook him. "Tell me, dammit!"  
+明日香摇晃着他。“快告诉我，该死的！”
+
+He took a gamble. "I-I want to go somewhere with you."  
+他孤注一掷。“我，我想和你去某个地方。”
+
+Her hands dropped from his shoulders.  
+她的双手从他的肩膀上滑落。
+
+"I-It's not like that!" Shinji's hands flew up in protest. "Well, maybe it is… but you don't have to go if you don't want to, really! Forget I said—"  
+"我-我不是那个意思！" 真嗣的手急忙举起抗议。"嗯，也许是的… 但如果你不想去，真的可以不去！忘了我说过——"
+
+"Don't be like that," she cut him off. "Of course I'm going—now where do you want to go?"  
+"别这样，" 她打断了他。"我当然要去——现在你想去哪儿？"
+
+"I don't know…" "我不知道…"
+
+She shook him again. 她又摇了摇他。
+
+"Uh, maybe out to dinner? Or a movie?"  
+"呃，也许出去吃晚饭？或者看场电影？"
+
+"That sounds nice." She relaxed her grip. "Okay, now you've promised—no backing out!"  
+"听起来不错。" 她放松了手上的力道。"好了，现在你已经答应了——不许反悔！"
+
+"Okay…" "好吧……"
+
+There was a brief pause, and she changed the subject. "I want to go home, don't you?" Her tone became nostalgic as she folded her feet beneath her legs Indian-style. "I want to play that training game… I even miss Pen-pen, that damned penguin."  
+她短暂地停顿了一下，然后改变了话题。“我想回家，你不想吗？”她的语气变得怀旧，双腿盘坐，脚藏在腿下。“我想玩那个训练游戏……我甚至想念那只该死的企鹅，Pen-pen。”
+
+"Who's taking care of him now?"  
+“现在谁在照顾他？”
+
+"Hikari. By the way, she dropped by yesterday and brought you this." Asuka reached into the small leather purse she kept on her bedside table and pulled out Shinji's SDAT. Shinji took it gratefully from her and quickly turned it on. Asuka took one of the earphones from him while requesting, "Mind if I listen?"  
+"光。对了，她昨天来过，给你带了这个。" 明日香从她床头柜上的小皮包里拿出真嗣的 SDAT。真嗣感激地从她手中接过，迅速打开。明日香从他那里拿过一个耳机，问道："介意我一起听吗？"
+
+"No."
+
+Asuka lay back, forcing Shinji to mimic her motions as the headphones were connected—she wore one in her right ear, and Shinji the other in his left. The sound was mellow and made her ache for Germany. She snuggled closer to Shinji and placed her head against his shoulder. If he noticed or minded, he had no reaction.  
+明日香躺下，迫使真嗣模仿她的动作，耳机连接起来——她右耳戴一个，真嗣左耳戴另一个。音乐柔和，让她怀念起德国。她更靠近真嗣，把头靠在他的肩膀上。如果他注意到了或介意，他没有任何反应。
+
+_Du weißt, ich werde immer ehrlich zu dir sein  
+你知道，我会永远对你坦诚_
+
+_Und du weißt, ich bin derjenige  
+而你知道，我就是那个人_
+
+_An den du dich wenden kannst  
+你随时可以依靠的人_
+
+_Jederzeit, überall und irgendwo  
+任何时间，任何地点，无论何处_
+
+_Du weißt, ich werde immer da sein  
+你知道，我会一直在那里_
+
+---
+
+"Please sit down." “请坐。”
+
+Namika had not expected him to bring the girl, and for some reason this annoyed her. Of course, her own experiences and Ritsuko's descriptions had left a firm impression in her mind that the Second was nothing short of, well, irritating.  
+纳米卡没想到他会带那个女孩来，不知为何这让她感到恼火。当然，她自己的经历和律子的描述已经在她心中留下了深刻的印象，第二人除了令人讨厌之外，别无其他。
+
+She took a seat beside him and focused intently on the doctor.  
+她在他的旁边坐下，专注地看着医生。
+
+"I'd like to begin by first asking you if you have any questions, Shinji."  
+“我想先问你有没有什么问题，真嗣。”
+
+He shook his head, but the Second took the initiative, laying her hand on the table.  
+他摇了摇头，但明日香主动出击，将手放在桌子上。
+
+"What are the chances of success?"  
+“成功的几率有多大？”
+
+Namika reined her frustration and made eye contact with Shinji instead. "Given the fact that you're not related to Misato, your HLA markings are remarkably similar and indicate a good chance of success. However, there are many other factors that can affect Misato's post-surgical recovery—for example, her immune system will be completely eliminated in order to impede rejection of your bone marrow, so for those days she'll be very susceptible to disease."  
+“考虑到你与美里并非亲属关系，你们的 HLA 标记却异常相似，这表明成功的可能性很高。然而，还有许多其他因素可能影响美里术后恢复——例如，为了防止骨髓排斥，她的免疫系统将被完全清除，因此在那些日子里她将极易感染疾病。”
+
+Shinji nodded, but the girl frowned and said, "You haven't really answered my question, Doctor."  
+“医生，你并没有真正回答我的问题。”女孩皱眉说道，而真嗣点了点头。
+
+Namika glared at her. "60."  
+奈美香瞪着她。“60。”
+
+She nodded. 她点点头。
+
+Deciding that she would only elicit more questions from the Second if she allowed them to voice their concerns, Namika swept into a general explanation of the allogeneic transplant. Her hands moved rapidly in abstract gestures; Shinji nodded repeatedly, but the girl had no expression on her face. Namika plowed on. It was Shinji, not her, after all, who was going to be the donor.  
+奈美香决定，如果她允许他们表达担忧，只会引来更多问题。于是她开始概括解释异基因移植的过程。她的手快速地做出抽象的手势；真嗣频频点头，但女孩脸上毫无表情。奈美香继续说下去。毕竟，将要成为捐赠者的是真嗣，而不是她。
+
+"The procedure will be the same as the one Misato had, right?"  
+"这个过程会和美里做的一样，对吧？"
+
+"Yes," Namika said matter-of-factly, pleased now that Shinji was saying something. "There's no surgery involved—just a few punctures, and you'll be under general anesthesia. You'll probably be sore for a few days. We'll have pain medication on hand."  
+"是的，" 奈美香实事求是地说道，现在因为真嗣开口说话而感到高兴。"不需要手术——只是几个穿刺，你会接受全身麻醉。可能会有几天感到酸痛。我们会准备好止痛药。"
+
+Shinji nodded again. "I remember."  
+真嗣再次点头。"我记得。"
+
+"Good." The doctor glanced at her watch. "It's March 20 today. I want you to stay in the hospital, Shinji, while I run a couple of tests to make sure that everything's in order."  
+"好。" 医生瞥了一眼手表。"今天是 3 月 20 日。我要你留在医院里，真嗣，我需要做一些检查，确保一切正常。"
+
+"Yes ma'am." “是，长官。”
+
+"That's all, if you have no more questions."  
+"就这样，如果你没有其他问题的话。"
+
+Namika voiced her last comment with apprehension, expecting the Second to respond. Instead, the two pilots—no, Shinji was no longer a pilot, she reminded herself—rose in unison from their chairs. Shinji thanked her. Namika said it was no problem. She watched as they slipped unnoticed into the quiet hallway and watched with surprise as Asuka leaned over and gently took Shinji's hand into her own.  
+美里带着忧虑说出了她的最后一句话，期待着明日香回应。然而，两位驾驶员——不，真嗣不再是驾驶员了，她提醒自己——同时从椅子上站了起来。真嗣向她道谢。美里说没关系。她看着他们悄无声息地走进安静的走廊，惊讶地看到明日香倾身过去，温柔地将真嗣的手握在自己手中。
+
+---
+
+Rei was elated.
+
+It didn't show in her steps as she climbed evenly up the stairs to her room. Her left fingers locked tightly over her schoolbag, and her sensible shoes made hardly a sound on the granite surface, but she allowed the faintest of smiles to grace the curve of her lips.  
+她上楼的步伐依旧平稳，丝毫未显露内心的波澜。左手紧紧扣住书包，脚下的平底鞋在花岗岩地面上几乎不发出声响，但她嘴角却微微上扬，露出一丝几乎难以察觉的微笑。
+
+She had been officially discharged from the hospital—but they were keeping Ikari in order to run a battery of tests on him.  
+她已经正式出院了——但他们仍将碇留在医院，对他进行一系列的检查。
+
+_Ikari,_ Rei thought. _Not Pilot Ikari anymore. Just Ikari_.  
+碇，丽心想。不再是驾驶员碇了。只是碇。
+
+But it didn't matter, because it was all going to work out. He was going to save Misato after all.  
+但这些都无关紧要，因为一切都会顺利解决。他终究会救出美里。
+
+Tomorrow. 明天。
+
+Rei turned her doorknob and entered, ignoring the various envelopes with "Postmarked March 25" stamped on them as they fell from her cluttered box to the floor. Nothing but advertisements—nobody sent her mail. She headed straight for her bed and removed her shoes, then stretched on the faded sheets.  
+绫波转动门把手走了进去，无视那些从她杂乱的信箱中掉落到地上、盖着“3 月 25 日邮戳”的各式信封。不过是些广告——没人给她寄信。她径直走向床铺，脱下鞋子，然后伸展身体躺在褪色的床单上。
+
+_I am lucky to be home. Ikari does not have that pleasure_.  
+我算是幸运的，能回到家中。而碇却没有这份福气。
+
+She lay on her back for some time, listening to the traffic through her open window.  
+她仰躺了一会儿，透过敞开的窗户听着外面的车流声。
+
+Her gaze fell eventually on the clock—it was nearly six, so Rei clambered off the bed and headed to the kitchen to begin the process of making dinner. She was used to cooking simple meals for herself, but she had not done it many days, and tonight she was not particularly hungry…  
+她的目光最终落在了时钟上——快六点了，于是丽从床上爬起来，走向厨房开始准备晚餐。她习惯了自己简单地做饭，但这样的日子并不多，而且今晚她并不怎么饿……
+
+She decided instead that Ikari did not deserve the miserable hospital meals he would be getting tomorrow after the transplant.  
+她转念一想，认为碇不应该在移植手术后遭受医院那糟糕的餐食。
+
+So she cooked for him.  
+于是她为他下厨。
+
+There was nothing unspoiled in the refrigerator besides potatoes and rice. She peeled potatoes while standing at the sink, sweeping the dark peel away from the white flesh in long strips. Her hand slipped on the handle of the potato peeler and it fell to the ceramic floor with a clatter; Rei picked it up and washed it, feeling eerily as if someone were watching her.  
+冰箱里除了土豆和米饭，没有什么未变质的食物。她站在水槽边削土豆皮，长长的黑皮从白嫩的土豆上剥落。她的手在削皮器柄上滑了一下，削皮器哐当一声掉在陶瓷地板上；绫波捡起来清洗，感觉诡异地像是有人在盯着她。
+
+"So you can actually cook. I'm impressed."  
+"原来你真的会做饭，我挺惊讶的。"
+
+Rei knew who it was before she turned around, but it was still a surprise to see Pilot Sorhyu standing in her doorway, leaning casually against the soiled wall.  
+丽在转身之前就知道是谁了，但看到索尔修飞行员站在她门口，随意地靠在脏兮兮的墙上，还是感到意外。
+
+"I forgot to close the door," Rei muttered. It was not an apology or a greeting; Rei did not really know what it was—just a comment made to fill the silence.  
+"我忘了关门，""丽喃喃自语。这既不是道歉也不是问候；丽并不清楚这算什么——只是为了填补沉默而说的一句话。
+
+The Second came closer and inspected the various pots and pans laid over her counter. "Interesting… I couldn't really see you cooking so elaborately…"  
+第二位走近了些，仔细打量着她台面上摆放的各种锅碗瓢盆。“有意思……我真没想到你会这么精心地烹饪……”
+
+Rei bit her lip. "I am cooking for Ikari."  
+丽咬了咬嘴唇。“我这是为碇做的。”
+
+"For Shinji?" “给真嗣？”
+
+"Yes," Rei said, a faint heat creeping up into her cheeks. She did not like being put on the spot in this fashion—she knew that there were mutual feelings between the girl in front of her and her ex-fellow pilot, but she did not know how to make it clear that she did not like him in that way. Meekly she added, "I did not want for him to have to eat the hospital food."  
+“是的，”丽说道，一丝微热悄悄爬上她的脸颊。她不喜欢以这种方式被逼问——她知道眼前这位女孩和她曾经的战友之间有着相互的感情，但她不知道如何明确表示自己对他没有那种感觉。她怯生生地补充道：“我不希望他不得不吃医院的饭菜。”
+
+Asuka's features softened. "Hey, I want to help… have you got any flour? Eggs? Fresh apples?"  
+明日香的表情柔和了下来。“嘿，我想帮忙……你有面粉吗？鸡蛋？新鲜的苹果？”
+
+Rei had none of any of the necessary ingredients, having not lived at home for over a month. Asuka picked up her bag and announced that she was going shopping.  
+丽没有任何必需的食材，因为她已经一个多月没有在家生活了。明日香拿起她的包，宣布她要去购物。
+
+_It is interesting…to have Pilot Sorhyu working in the kitchen as we prepare food for Ikari_, Rei thought as Asuka reentered her home only ten minutes later, laden down with two grocery sacks.  
+真有意思……让驾驶员索吕在厨房里为我们准备给碇的食物，丽心想，因为明日香十分钟后就带着两个购物袋重新回到了家中。
+
+"Hey, your oven does work, right?"  
+“嘿，你的烤箱能用吧？”
+
+Rei opened it for her, and Asuka peered suspiciously into its depths. It had apparently never been used, but she didn't see any reason why it wouldn't function properly. She took one of Rei's bowls and poured white flour into it, then mixed in a few spoonfuls of melted butter and an egg.  
+丽为她打开了烤箱，明日香怀疑地往里面看了看。显然，它从未被使用过，但她看不出有什么理由它不能正常工作。她拿了一个丽的碗，倒进一些白面粉，然后加入几勺融化的黄油和一个鸡蛋。
+
+"Will the nurses not question your absence?" Rei asked gently. She placed her potatoes onto a cutting-board and cut slices of identical thickness.  
+"护士们不会质疑你的缺席吗？" 丽温柔地问道。她将土豆放在切菜板上，切出厚度相同的片。
+
+Asuka shrugged. "I've been discharged too."  
+明日香耸了耸肩。"我也已经出院了。"
+
+"I see." "原来如此。"
+
+Rei worked silently; while the potatoes simmered on the stove, she soaked a small pot of rice and set it to boil as well. It occurred to her that even if she herself was not hungry, Pilot Sorhyu would almost certainly expect to stay for a meal; and so she added some more rice to the pot.  
+丽默默地工作着；当土豆在炉子上炖煮时，她浸泡了一小锅米饭并将其也置于炉上煮沸。她突然想到，即使她自己并不饿，驾驶员索尔希几乎肯定会期望留下来用餐；因此她又在锅中多加了一些米饭。
+
+Asuka raised her eyebrows. "I wasn't planning to eat here."  
+明日香挑了挑眉。"我本来没打算在这里吃饭。"
+
+"Oh. I'm sorry." “哦。对不起。”
+
+"Don't apologize. You sound like Shinji, pre—pre—" Asuka gave up and let the comment hang as she reached for a napkin. "I'm making enough turnovers for all three of us."  
+"别道歉。你听起来像真嗣，之前——之前——" 明日香放弃了，让这句话悬在空中，伸手去拿餐巾。"我做的酥皮点心足够我们三个人吃的。"
+
+Rei stood frozen to the spot. She had not expected Pilot Sorhyu to feed her—in her own kitchen!  
+绫波丽僵在原地。她没想到惣流·明日香会亲自在厨房里给她喂食！
+
+"Pilot Sorhyu—" "惣流·明日香——"
+
+Asuka whirled around. "Asuka. Just Asuka, okay? Ouch! Damn—"  
+明日香猛地转过身。“就叫我明日香，好吗？哎哟！该死——”
+
+She had cut her finger. Rei, who had no shortage of bandages, wrapped it up for her. Asuka thanked her meekly, and seeing that she was standing idle while her food cooked, mentioned the asparagus she had purchased and asked if Rei would like to help her with it.  
+她不小心割伤了手指。绫波丽，从不缺绷带，为她包扎起来。明日香怯生生地向她道谢，看到她在食物烹饪时无所事事，便提起了自己买的芦笋，问绫波是否愿意帮忙处理。
+
+Obediently, Rei cut the spears while Asuka fussed over her apple filling—and finally satisfied, slipped the pan into the preheated oven.  
+绫波顺从地切着芦笋，而明日香则忙着摆弄她的苹果馅——终于满意了，将烤盘滑入预热好的烤箱中。
+
+"You care about Shinji a lot, don't you?" Asuka asked, measuring out teaspoons of olive oil. "Or you wouldn't be going to all this trouble for him."  
+"你对真嗣很关心，不是吗？" 明日香问道，一边量着茶匙的橄榄油。"否则你也不会为他费这么多心思。"
+
+Flustered, Rei replied, "I care for him, yes… but not in the way that you do, Asuka…"  
+慌乱中，绫波回答道："我确实关心他，是的……但不像你那样，明日香……"
+
+Asuka blinked. "I see." She paused, blinking again as if she were deep in thought—then returned to the oil, blushing and muttering softly to herself, "Yes, I guess I do care…" Her expression changed again as she quickly pulled over a plate. "Put the asparagus on here…and I think your potatoes are done."  
+明日香眨了眨眼。"我明白了。"她停顿了一下，再次眨眼，仿佛陷入了沉思——然后回到油旁，脸颊泛红，轻声自语道："是的，我想我确实在乎……"她的表情再次变化，迅速拉过一个盘子。"把芦笋放在这儿……我想你的土豆已经好了。"
+
+Twenty minutes later, the two girls settled down to their meal. Rei was unused to what seemed such a lavish affair and did not know how to begin until Asuka reached into her grocery bag and pulled out a pack of disposable plastic containers. She filled one with asparagus and potatoes; following her example, Rei filled two more with rice and apple turnovers. The crisp crust crumbled under her fingertips. Asuka put the four containers in the refrigerator.  
+二十分钟后，两个女孩坐下来享用她们的晚餐。丽不习惯这种看似奢华的场合，不知如何开始，直到明日香从她的购物袋里拿出了一包一次性塑料容器。她装了一盒芦笋和土豆；照着她的样子，丽又装了两盒米饭和苹果酥。酥脆的外皮在她指尖下碎裂。明日香把四个容器放进了冰箱。
+
+They sat on Rei's bed to eat, as the only table was dusty and covered with bloody bandages. Each balanced a plate on her lap, and neither spoke. Slowly, the sun lowered itself until it was no longer visible behind the edifices of Tokyo-3.  
+她们坐在丽的床上吃饭，因为唯一的桌子布满灰尘，上面还堆着带血的绷带。每人腿上放着一个盘子，两人都沉默不语。慢慢地，太阳下沉，直到被第三新东京市的建筑群完全遮住，不再可见。
+
+Asuka stood up reluctantly. "I should go."  
+明日香不情愿地站起身来。“我该走了。”
+
+Rei rose as well. "I will accompany you home."  
+丽也站了起来。“我会陪你回家。”
+
+"Don't—I'll be fine. Just don't forget Shinji's food tomorrow. And thanks for the meal."  
+“不用——我会没事的。只是别忘了明天给真嗣带吃的。还有，谢谢你的饭。”
+
+"You're welcome." “不客气。”
+
+The words were out of her mouth before she knew it. Rei was surprised at herself. _Had she really said it? 'You're welcome'?_  
+话不自觉地脱口而出。丽自己都感到惊讶。她真的说了吗？'不客气'？
+
+"So I'll see you first thing at the hospital tomorrow?"  
+“那我明天一早就去医院找你？”
+
+"Yes, I will be there."  
+“是的，我会到的。”
+
+"See you then." “到时候见。”
+
+Rei waited until Asuka's footsteps were no longer audible on the steps. She closed the door slowly and locked it, then did the same with her windows. The room was suddenly devoid of excitement. Feeling as if she had just experienced a real treat which was now coming to an end, Rei made her way slowly to the bed, picked up the two empty plates, and headed for the kitchen.  
+丽等阿斯卡的脚步声在楼梯上消失后，才缓缓关上门并上锁，接着又同样锁上了窗户。房间突然间失去了活力。感觉就像刚刚经历了一场真实的盛宴，现在即将落幕，丽慢慢走向床边，拿起两个空盘子，向厨房走去。
+
+---
+
+Author's Note: Short chapter. I'm posting the rest of this story now, so not much to say in this note—just one thing: I know the summary has been bothersome in that it gives away a good part of the story, and I've gotten a good number of reviews asking me to change it. I've held out because I haven't wanted to hint at all at what would be coming in the last chapter(s), but the next part will be somewhat unpredictable—or so I hope. Anyway, I've added a small edit to the summary, hopefully not giving too much away.
+
+The song that I used in this chapter is the German version of "The Gift" by Brosis. Having absolutely no knowledge of the German language other than the fact that "Seele" means "soul", I randomly selected a song and a stanza and had a German-speaking friend translate it for me. It comes out to something along the lines of "You know, I will always be honest with you, and you know, I am the one you can turn to, anytime, all over, anywhere, you know I will always be there…"  
+本章使用的歌曲是 Brosis 演唱的德语版《The Gift》。除了知道“Seele”意为“灵魂”外，我对德语一窍不通，于是随机选了一首歌和一个诗节，请一位会讲德语的朋友帮我翻译。大意是“你知道，我会永远对你诚实，你也知道，我是你可以随时依靠的人，无论何时，无论何地，你知道我会一直在那里……”
+
+(I really did intend, once upon a time, to get the rest of this story churned out by March 26—my apologies, yet again.)  
+(曾经有一段时间，我真的打算在 3 月 26 日前完成这个故事的其余部分——再次表示歉意。)
 
 ---
 ### Chapter 7: demise

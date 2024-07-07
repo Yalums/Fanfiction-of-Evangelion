@@ -4,51 +4,51 @@
     "type": "split",
     "children": [
       {
-        "id": "1dca9dace8816ecd",
+        "id": "cbe7a9c6208b45db",
         "type": "tabs",
         "children": [
           {
-            "id": "545ba5be142a3691",
+            "id": "a972885b8a727e9b",
             "type": "leaf",
             "state": {
               "type": "markdown",
               "state": {
-                "file": "sydneyeliza - Finding Asuka Langley.md",
+                "file": "A Writer With No Name - Asuka's First Back Rub.md",
                 "mode": "source",
                 "source": false
               }
             }
           },
           {
-            "id": "fe2e8947a702f2b9",
+            "id": "003adcc74794f75c",
             "type": "leaf",
             "state": {
               "type": "markdown",
               "state": {
-                "file": "未命名 1.md",
+                "file": "A Writer With No Name - Asuka's First Back Rub.md",
                 "mode": "source",
                 "source": false
               }
-            },
-            "group": "8eaf8c5376505e39"
+            }
           }
         ],
         "currentTab": 1
       },
       {
-        "id": "cbe7a9c6208b45db",
+        "id": "77486d70a3c1c0aa",
         "type": "tabs",
         "children": [
           {
-            "id": "a2939902a25c9c29",
+            "id": "af6936ca154d9b02",
             "type": "leaf",
             "state": {
-              "type": "outline",
+              "type": "markdown",
               "state": {
-                "file": "未命名 1.md"
+                "file": "A. LaRosa - Rough Waters.md",
+                "mode": "source",
+                "source": false
               }
-            },
-            "group": "8eaf8c5376505e39"
+            }
           }
         ]
       }
@@ -96,8 +96,7 @@
               }
             }
           }
-        ],
-        "currentTab": 2
+        ]
       }
     ],
     "direction": "horizontal",
@@ -117,7 +116,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "未命名 1.md",
+                "file": "A. LaRosa - Rough Waters.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -134,7 +133,7 @@
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "未命名 1.md",
+                "file": "A. LaRosa - Rough Waters.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               }
@@ -157,7 +156,7 @@
             "state": {
               "type": "outline",
               "state": {
-                "file": "未命名 1.md"
+                "file": "A. LaRosa - Rough Waters.md"
               }
             }
           }
@@ -178,16 +177,18 @@
       "workspaces:管理工作区布局": false
     }
   },
-  "active": "fe2e8947a702f2b9",
+  "active": "af6936ca154d9b02",
   "lastOpenFiles": [
+    "A Writer With No Name - Therapy (Shinji x Asuka).md",
+    "A Writer With No Name - Strip Poker.md",
+    "A Writer With No Name - Asuka's First Back Rub.md",
+    "sydneyeliza - Transplant.md",
     "sydneyeliza - Finding Asuka Langley.md",
-    "未命名 1.md",
     "kira862 - ❤️Two of Us.md",
     "kira862 - ❤️Spawn of Adam.md",
     "jcmoorehead - Braver Than We Are.md",
     "Jullytta - My first kiss was a little like this.md",
     "Panther2G - Advice and Trust Backstage.md",
-    "未命名.md",
     "Bardic Jester - ❤️This Way.md",
     "Consciousness Rising - Peace and Company.md",
     "SheriffJohnStone - Moon.md",
@@ -203,8 +204,6 @@
     "TailoftheDevil - Angel.md",
     "Tashikawa - Shinji, Asuka and The Last Angel.md",
     "AgentKaji - ❤️The Asuka Variations.md",
-    "Bardic Jester - This Way.md",
-    "DeadlyPole - 🍋Shinji and Asuka.md",
-    "Da Games Elite - The Little Angel.md"
+    "Bardic Jester - This Way.md"
   ]
 }
