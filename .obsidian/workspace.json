@@ -13,29 +13,42 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "kira862 - ❤️Two of Us.md",
+                "file": "sydneyeliza - Finding Asuka Langley.md",
+                "mode": "source",
+                "source": false
+              }
+            }
+          },
+          {
+            "id": "fe2e8947a702f2b9",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "未命名 1.md",
                 "mode": "source",
                 "source": false
               }
             },
-            "group": "ef4ed6e4b7667142"
+            "group": "8eaf8c5376505e39"
           }
-        ]
+        ],
+        "currentTab": 1
       },
       {
-        "id": "e300cd618a38c14b",
+        "id": "cbe7a9c6208b45db",
         "type": "tabs",
         "children": [
           {
-            "id": "73c5726d8f8f33b0",
+            "id": "a2939902a25c9c29",
             "type": "leaf",
             "state": {
               "type": "outline",
               "state": {
-                "file": "kira862 - ❤️Two of Us.md"
+                "file": "未命名 1.md"
               }
             },
-            "group": "ef4ed6e4b7667142"
+            "group": "8eaf8c5376505e39"
           }
         ]
       }
@@ -74,7 +87,7 @@
             "state": {
               "type": "search",
               "state": {
-                "query": "",
+                "query": "file:find",
                 "matchingCase": false,
                 "explainSearch": true,
                 "collapseAll": true,
@@ -83,7 +96,8 @@
               }
             }
           }
-        ]
+        ],
+        "currentTab": 2
       }
     ],
     "direction": "horizontal",
@@ -103,7 +117,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "kira862 - ❤️Two of Us.md",
+                "file": "未命名 1.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -120,7 +134,7 @@
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "kira862 - ❤️Two of Us.md",
+                "file": "未命名 1.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               }
@@ -143,7 +157,7 @@
             "state": {
               "type": "outline",
               "state": {
-                "file": "kira862 - ❤️Two of Us.md"
+                "file": "未命名 1.md"
               }
             }
           }
@@ -164,11 +178,13 @@
       "workspaces:管理工作区布局": false
     }
   },
-  "active": "73c5726d8f8f33b0",
+  "active": "fe2e8947a702f2b9",
   "lastOpenFiles": [
+    "sydneyeliza - Finding Asuka Langley.md",
+    "未命名 1.md",
+    "kira862 - ❤️Two of Us.md",
     "kira862 - ❤️Spawn of Adam.md",
     "jcmoorehead - Braver Than We Are.md",
-    "kira862 - ❤️Two of Us.md",
     "Jullytta - My first kiss was a little like this.md",
     "Panther2G - Advice and Trust Backstage.md",
     "未命名.md",
@@ -189,8 +205,6 @@
     "AgentKaji - ❤️The Asuka Variations.md",
     "Bardic Jester - This Way.md",
     "DeadlyPole - 🍋Shinji and Asuka.md",
-    "Da Games Elite - The Little Angel.md",
-    "Marco Strange - Underneath.md",
-    "Marshall Banana - Asuka Strikes.md"
+    "Da Games Elite - The Little Angel.md"
   ]
 }
