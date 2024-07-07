@@ -1,4 +1,5 @@
 [YourBlandestNightmare](https://www.fanfiction.net/u/13453602/YourBlandestNightmare)
+
 "Good morning, Ikari." “早上好，碇。”
 
 She sat next to him and asked what they were playing. He told her the name of the piece.  
