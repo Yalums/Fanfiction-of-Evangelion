@@ -4,49 +4,63 @@
     "type": "split",
     "children": [
       {
-        "id": "f2dad683a52c2c16",
+        "id": "778cd30d54f2f938",
         "type": "tabs",
         "children": [
           {
-            "id": "689771af73d562f3",
+            "id": "0036be5ed69d8121",
             "type": "leaf",
             "state": {
               "type": "markdown",
               "state": {
-                "file": "YourBlandestNightmare - What Comes After Winter.md",
+                "file": "Daquarma - Open Your Eyes.md",
                 "mode": "source",
                 "source": false
               }
             }
           },
           {
-            "id": "9201e8479ad00d6f",
-            "type": "leaf",
-            "state": {
-              "type": "pdf",
-              "state": {
-                "file": "同 人合集/漫长的告白（新世纪福音战士嗣香同人合集）.pdf"
-              }
-            }
-          }
-        ],
-        "currentTab": 1
-      },
-      {
-        "id": "9ef23ba36231fe87",
-        "type": "tabs",
-        "children": [
-          {
-            "id": "698460dee3559ad0",
+            "id": "a2f7136f3fe6d748",
             "type": "leaf",
             "state": {
               "type": "markdown",
               "state": {
-                "file": "YourBlandestNightmare - Come To Me, In The Bitter Winter.md",
+                "file": "💨reddit -  MistahZarathushtra Something To Say.md",
                 "mode": "source",
                 "source": false
               }
             }
+          },
+          {
+            "id": "c2cd3dd0ba27152e",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "A Writer With No Name - Asuka's First Back Rub.md",
+                "mode": "source",
+                "source": false
+              }
+            },
+            "group": "613e5a53229c59f5"
+          }
+        ],
+        "currentTab": 2
+      },
+      {
+        "id": "a0826e8d0f19a11d",
+        "type": "tabs",
+        "children": [
+          {
+            "id": "78f149062a5d4ab3",
+            "type": "leaf",
+            "state": {
+              "type": "outline",
+              "state": {
+                "file": "A Writer With No Name - Asuka's First Back Rub.md"
+              }
+            },
+            "group": "613e5a53229c59f5"
           }
         ]
       }
@@ -85,7 +99,7 @@
             "state": {
               "type": "search",
               "state": {
-                "query": "file:will you",
+                "query": "m.fanfiction.ne",
                 "matchingCase": false,
                 "explainSearch": true,
                 "collapseAll": true,
@@ -114,7 +128,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "YourBlandestNightmare - Come To Me, In The Bitter Winter.md",
+                "file": "A Writer With No Name - Asuka's First Back Rub.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -131,7 +145,7 @@
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "YourBlandestNightmare - Come To Me, In The Bitter Winter.md",
+                "file": "A Writer With No Name - Asuka's First Back Rub.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               }
@@ -154,7 +168,7 @@
             "state": {
               "type": "outline",
               "state": {
-                "file": "YourBlandestNightmare - Come To Me, In The Bitter Winter.md"
+                "file": "A Writer With No Name - Asuka's First Back Rub.md"
               }
             }
           }
@@ -169,47 +183,49 @@
     "hiddenItems": {
       "switcher:打开快速切换": false,
       "graph:查看关系图谱": false,
-      "canvas:新建白板": false,
-      "templates:插入模板": false,
+      "canvas:新建白板": true,
+      "templates:插入模板": true,
       "command-palette:打开命令面板": false,
-      "workspaces:管理工作区布局": false
+      "workspaces:管理工作区布局": true
     }
   },
-  "active": "698460dee3559ad0",
+  "active": "c2cd3dd0ba27152e",
   "lastOpenFiles": [
-    "YourBlandestNightmare - Eight Notes.md",
-    "YourBlandestNightmare - What Comes After Winter.md",
-    "YourBlandestNightmare - Summer Contest：A Reminder That I Hated You.md",
-    "YourBlandestNightmare - Lucky Rolls.md",
-    "YourBlandestNightmare - Come To Me, In The Bitter Winter.md",
-    "YourBlandestNightmare - Broken Hands.md",
-    "YourBlandestNightmare - Till Booze Do Us (Not) Part.md",
-    "SheriffJohnStone - Moon.md",
-    "同 人合集/漫长的告白（新世纪福音战士嗣香同人合集）.pdf",
-    "SamJaz - Walls of Jericho.md",
-    "Da Games Elite - The Little Angel.md",
-    "同 人合集/EVA同人合集.pdf",
-    "同 人合集/EVA同人合集（碇真嗣×明日香）.pdf",
-    "同 人合集/EVA同人合集（第二辑）.pdf",
-    "Daquarma - ❤️Open Your Eyes.md",
-    "同 人合集",
-    "EVA同人合集（第二辑）.pdf",
-    "EVA同人合集.pdf",
-    "EVA同人合集（碇真嗣×明日香）.pdf",
-    "DeadlyPole - 🍋Shinji and Asuka.md",
-    "Da Games Elite - In the Case of Asuka Langley Sohryu.md",
-    "Consciousness Rising - Peace and Company.md",
-    "Bardic Jester - This Way.md",
-    "Karina Kineshi - ❤️On Growing Roses.md",
-    "Karina Kineshi - To My Dearest Honey.md",
-    "Karina Kineshi - A Beautiful Day for Piggyback Rides.md",
-    "Norsehound - Asuka's Birthday.md",
-    "Norsehound - Splint.md",
-    "Ohimesama - I will look you in the eye.md",
-    "Norsehound - Panacea.md",
-    "Norsehound - Longing.md",
-    "Norsehound - From Dust (ROE).md",
-    "Norsehound - ❤️Lazarus Sense.md",
-    "jcmoorehead - The Division Bell.md"
+    "💨reddit -  MistahZarathushtra Something To Say.md",
+    "💨reddit -  How far would Asuka go to hurting Shinji.md",
+    "writer jm - My Protector.md",
+    "MissMinoriN - Every Effing Day.md",
+    "MissMinoriN - I Like You, A.md",
+    "MissMinoriN - Stage Play.md",
+    "MisterHalt - Cracking Skulls and Stealing Hearts.md",
+    "notyourprob - Preemptive Strike.md",
+    "Persona Ohnlyne - The Switch.md",
+    "PompeyMagnus - Ikari the King.md",
+    "PompeyMagnus - The Rules of Attraction.md",
+    "Ps3udonym - PenPen's Pent up Predicament.md",
+    "Ps3udonym - Possibilities.md",
+    "Ps3udonym - Rain.md",
+    "Ranma sensei - Toppling the Wall of Jericho.md",
+    "RazorGene - All The Things She Said.md",
+    "RazorGene - You're Beautiful.md",
+    "soul.assassin.547 - Eva Light and Water.md",
+    "Sylphion - A Perfect Fantasy.md",
+    "TheOneThing - Warm My Heart.md",
+    "Titan6970 - Costume-conned.md",
+    "Xairathan - A Walk In the Rain.md",
+    "xxivxo - Push and Pull.md",
+    "xxivxo - Refusing to Accept.md",
+    "YamiPaladinofChaos - At Death's Door.md",
+    "YamiPaladinofChaos - Downpour.md",
+    "git",
+    "新建文件夹",
+    "git/git.7z",
+    "Obsidian-Archive-of-EVA-main.7z",
+    "LICENSE",
+    "Obsidian-Archive-of-EVA",
+    "Obsidian-Archive-of-EVA.7z",
+    "Workspace/Sincerely Yours(1-10).pdf",
+    "Workspace",
+    "CollectionPDF/漫长的告白（新世纪福音战士嗣香同人合集）.pdf"
   ]
 }

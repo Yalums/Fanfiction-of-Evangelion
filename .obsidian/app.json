@@ -10,10 +10,10 @@
   "readableLineLength": true,
   "pdfExportSettings": {
     "includeName": true,
-    "pageSize": "A4",
+    "pageSize": "A5",
     "landscape": false,
     "margin": "2",
-    "downscalePercent": 85
+    "downscalePercent": 70
   },
   "rightToLeft": false
 }

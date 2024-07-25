@@ -1,3 +1,10 @@
+---
+Status: complete
+Size: Short, Poetic
+Timeline: NGE
+OOC: WAFF
+Comment: Yes
+---
 [Ps3udonym](https://fanfiction.net/u/465540/)
 Rain fell on two pedestrians, the constant pitter-patter of water on umbrella drowning out the din of early morning rush hour. The small, flimsy canvas barely covered them, forcing the two to squeeze close against each other to stay sheltered. Close enough to each other that a certain Japanese boy could almost smell the faintest hint of a certain redhead's shampoo.  
 雨滴落在两位行人身上，伞面上持续的滴答声淹没了清晨高峰期的喧嚣。那把小而脆弱的伞布勉强遮住他们，迫使两人紧贴在一起以保持干燥。近到那个日本男孩几乎能闻到某个红发女孩洗发水的淡淡香气。
@@ -269,3 +276,68 @@ Edit: Thanks to those who pointed out that I had Asuka's surname mixed up, for s
 
 C&C is welcomed and encouraged! Even if it's just to tell me I suck. =D  
 欢迎并鼓励评论与建议！即便只是告诉我我做得不好，也请直言不讳。=D
+
+---
+### Comment
+[Fresh C](https://www.fanfiction.net/u/798429/Fresh-C):
+not bad. Short and fluffy and in character for the most part. You'd think asuka wouldn't be so forward in such a situation, but at the same time I wouldn't have thought she'd try to kiss him in the series either. So no foul on characterization.  
+还不错。简短而轻松，大部分时候都很符合角色性格。你可能会认为在这种情境下，明日香不会这么直接，但同时我也不会想到她在原作中会试图吻他。所以在角色塑造上没有问题。  
+  
+If this is the first fan fic you've ever written then you're definitely off to a good start. If it isn't, then it's still a nice story. You should write more. You're decent at this, and I bet you'll only get better. I'll keep my eye out for you.  
+如果这是你写的第一篇同人文，那你绝对有个不错的开始。如果不是，那这也是个好故事。你应该多写一些。你在这方面做得不错，我敢打赌你会越来越好。我会留意你的作品。
+
+[purplesparkz02](https://www.fanfiction.net/u/1149901/purplesparkz02):
+this is the very first ever shinjiasuka fic i've read and it was awesome.i was a reishinji fan but you turned me around. good story.i agree w/ your point that the two of them can share these little moments...if only this was shown in the anime.  
+这是我读过的第一篇 shinjiasuka 同人文，非常精彩。我原本是 reishinji 的粉丝，但你让我改变了看法。好故事。我同意你的观点，他们俩可以分享这些小瞬间……要是这在动画里也能展现就好了。  
+  
+asuka was so bitchy in the anime, shinji so much of a weakling and rei...unfeeling and mysterious.  
+动漫里的明日香真是太泼辣了，真嗣软弱得要命，而绫波...冷漠又神秘。
+
+Cole:i really enjoyed that, it was refreshing :-). i really do wish that you would continue this as a chapter based story, it really is good writing. And i have always wanted to see shinji and asuka paired up together (without the disturbing "lemon"), please if you take requests at all, take this one. Make a continuation, or a different story similar to this, but make it a happy ending, because i feel very strongly that they could easily fall in love under the right circumstances: asuka has sort of a love/hate thing for shinji, and well shinji doesnt really hate anything...cept Gendo, and he certainly cares for asuka so i think its quite possible  
+我真的很喜欢这个，它让人耳目一新:-)。我真的希望你能继续以chapter为基础的故事，这真的是很好的写作。我一直想看到真嗣和明日香在一起（没有那些令人不安的“柠檬”情节），如果你接受请求的话，请接受这个。创作一个续集，或者一个类似的不同故事，但要有一个幸福的结局，因为我觉得在适当的情况下，他们很容易坠入爱河：明日香对真嗣有一种爱恨交织的情感，而真嗣除了对源堂之外，并不真正讨厌任何东西，他当然也关心明日香，所以我认为这是很有可能的
+
+Let me rewrite my review, i dont think i got enough of my points across. I highly enjoyed reading this, i myself didn't much wrong with it. however, the story would be better off if you were to continue it because nobody likes a cliff hanger if theres no continuation haha. they're annoying and make you feel...for lack of a better phrase "cock-blocked", however in an emotional way rather than sexual. i mean none such as an insult, but you have a serious skill in this vibe and i think you should build off this. also, i just wanted you to know that this is among the first things that made me smile to myself in ages, this has literally helped me be just a little happier with my day, which actually sucked.  
+让我重写我的评论，我觉得我之前的观点表达得不够充分。我非常喜欢阅读这篇作品，我自己并没有发现什么大问题。不过，如果作者能继续写下去，故事会更好，因为没人喜欢悬念却没有后续，哈哈。那种感觉很烦人，让你觉得……找不到更好的词来形容，就像被“情感上阻挠”了一样，虽然不是性方面的。我这么说绝非侮辱，但你在这方面确实有天赋，我认为你应该在此基础上继续发展。另外，我只想告诉你，这是我很久以来第一次独自微笑的原因之一，这篇作品真的让我的一天稍微快乐了一些，尽管那天其实过得很糟糕。  
+  
+essential points of my review: excellent writing, great feelings portayed properly, needs continuation, please follow suite :), sincerest thanks, and hopeful waiting, Cole  
+我的评论要点：写作出色，情感描绘到位，需要后续，请继续努力 :)，衷心感谢，期待等待，Cole
+
+Rocky:
+Hmm... I am very impressed with this standard of work.  
+嗯...我对这个水准的工作印象非常深刻。  
+  
+It is definitely much better than many of the fictions in this category, especially considering that there are way more than a thousand works.  
+这无疑比这个类别中的许多小说都要好，尤其是考虑到作品数量远超一千部。  
+  
+Very good flow. Smooth. I like the way you used the lines.  
+叙述流畅，顺滑。我喜欢你运用这些句子的方式。  
+  
+It gives you a very warm glow while reading.  
+阅读时给人一种非常温暖的感觉。  
+  
+Comforting,eh. 很治愈，是吧。  
+  
+But somehow, it seems a rather distant piece of work, like we are watching them through small picture frame, in monochrome. While this is not bad in any sense, i think that you might like to try writing from a different perspective. It is totally up to you, though.  
+但不知为何，这部作品似乎有些遥远，就像我们透过小小的画框，以黑白的方式观看他们。虽然这绝不是坏事，但我认为你或许可以尝试从不同的角度来写作。当然，这完全取决于你。  
+  
+I enjoy your plot line and especially the definitely descriptive dictions, which intersect and somehow deepens the story.  
+我喜欢你的情节线索，尤其是那些绝对描述性的措辞，它们交织在一起，某种程度上深化了故事。  
+  
+Finally, i suggest that as an improvement, you could go 2 paths. One is to go for the monochromic story, where things just seem so far away and yet so close to one's heart ( what you are doing now, albeit a little more ... ), the other is a first person perspective that makes the world revolve around you, but in sepia ( a little tinge of emotion, but then again feeling like the past ). I hope you get the monochrome and sepia metaphors.  
+最后，我建议你可以选择两条改进路径。一条是走向单色故事，事物看似遥远却又贴近心灵（你现在所做的，尽管再稍微多一点...），另一条是第一人称视角，让世界围绕着你转，但带着一丝怀旧的棕色调（略带情感，但又感觉像是过去）。希望你能理解黑白与棕色的隐喻。  
+  
+You might also want to try 2nd person.  
+你或许也可以尝试第二人称叙述。  
+  
+Other than that, i think that your story is wonderful. Absolutely. Truly.  
+除此之外，我觉得你的故事非常精彩。绝对如此。真的。  
+  
+Quick! Write more !  
+快点！多写些！  
+  
+Yours Sincerely, 此致敬礼，  
+  
+Rocky  洛基
+
+[Incognito girl](https://www.fanfiction.net/u/675427/Incognito-girl): aw who doesnt like anice little piece of fluff now and then? short and sweet. kinda wish there was more though, but i'm greedy!  
+啊，谁不喜欢偶尔来点轻松愉快的小甜饼呢？简短而甜美。虽然有点希望有更多内容，但我真是贪心！

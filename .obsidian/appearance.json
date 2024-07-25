@@ -1,8 +1,8 @@
 {
-  "theme": "moonstone",
-  "cssTheme": "Shiba Inu",
+  "theme": "obsidian",
+  "cssTheme": "ITS Theme",
   "accentColor": "#d10000",
-  "baseFontSize": 22,
+  "baseFontSize": 18,
   "nativeMenus": false,
   "textFontFamily": "微软雅黑",
   "interfaceFontFamily": "TsangerJinKai01 W03",
