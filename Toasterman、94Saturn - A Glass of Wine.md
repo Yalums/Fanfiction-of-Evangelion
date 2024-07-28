@@ -2,3 +2,6 @@
 
 Floodbringer翻译
 [[A Glass of Wine.pdf#page=1&selection=0,0,0,15|A Glass of Wine, page 1]]
+
+蓝锋翻译
+[[A Glass of Wine Rebuilt.pdf#page=3&selection=1,0,1,37|A Glass of Wine Rebuilt, page 3]]

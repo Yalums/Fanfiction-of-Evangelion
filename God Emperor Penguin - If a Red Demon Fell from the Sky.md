@@ -1,11 +1,10 @@
 [God Emperor Penguin](https://fanfiction.net/u/2324139/)
-**Chapter One 第一章**
 
-_When a Demon Falls from the Sky  
-当恶魔从天而降  
-_
+At his father's orders, Ikari Shinji arrives in Tokyo-3 when the fiery demon, Soryu Asuka Langley, parachutes in from the sky. After some misunderstandings, Asuka and Shinji find themselves both friends and rivals: working together duo-piloting Eva Unit-01 against the Angel menace. But Asuka finds there's more to Unit-01 than anyone realizes.
+在父亲的命令下，碇真嗣来到了第三新东京市，而火热的恶魔——惣流·明日香·兰格雷则从天而降。经过一些误会，明日香和真嗣发现自己既是朋友也是对手：他们一起作为Eva初号机的双驾驶员，共同对抗使徒的威胁。但明日香发现初号机比任何人意识到的都要复杂。
 
 ---
+### Chapter 1
 
 "Due to the present state of emergency, all phone lines are currently disabled. Please seek the nearest shelter-" _Thud_.  
 “由于目前处于紧急状态，所有电话线路已暂时停用。请前往最近的避难所——”砰。

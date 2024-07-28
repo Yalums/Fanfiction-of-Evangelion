@@ -3,7 +3,7 @@ Status: abandoned
 Size: Middle
 Timeline: NGE
 OOC: WAFF
-Comment: no
+Comment: No
 ---
 [MissMinoriN](https://www.fanfiction.net/u/3392488/)
 

@@ -13,7 +13,7 @@
     "pageSize": "A5",
     "landscape": false,
     "margin": "2",
-    "downscalePercent": 70
+    "downscalePercent": 65
   },
   "rightToLeft": false
 }

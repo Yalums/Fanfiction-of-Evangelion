@@ -2,7 +2,7 @@
 Status: complete
 Size: Short, Tomorrowland Shot
 Timeline: NGE
-OOC: Anima Asuka
+OOC: WAFF
 Comment: Yes
 ---
 [Glass-and-Turpentine](https://www.fanfiction.net/u/753366/Glass-and-Turpentine)

@@ -1,4 +1,4 @@
-### [grommile](https://archiveofourown.org/users/grommile/pseuds/grommile)
+[grommile](https://archiveofourown.org/users/grommile/pseuds/grommile)
 
 The designers of the Evangelion neural interface had gone to some trouble to protect the pilot from being absorbed or mentally contaminated by the Evangelion.  
 设计 EVA 神经接口的设计师们费尽心思，以保护驾驶员不被 EVA 吸收或精神污染。

@@ -1,3 +1,9 @@
+---
+Comment: Yes
+Timeline: NGE
+Size: Middle, Neutral Shot
+Status: complete
+---
 [hidinginplainsight](https://www.fanfiction.net/u/2644639/hidinginplainsight)
 
 Late at night in the middle of a power outage, Asuka realizes she might have to turn to her roommate for help staying warm.  
@@ -3008,3 +3014,177 @@ After a moment, he saw Asuka smile back.
 
 "Dummy," she whispered into the darkness, and then she removed her shirt.  
 “傻瓜，”她对着黑暗低语，随后脱下了衬衫。
+
+### Comment
+A very bitter-sweet ending, more bitter than sweet. Only thing that it irks me is how unfair you portrait Asuka. Her pride and huge ego comes from much more tragic childhood compare to Shinji. In this story she suffered too much (near rape, loosing her eye, nearly loosing her arm, horrible scars - she paid that price for saving his life) compared to that wimp of a main character. When she was recovering he didn't even try to get in touch with her, claiming that he didn't know that to say, even the simple "thanks for saving my life" would be enough. But that was beneath his strenght, a simply coward that was proclaiming his love for her.  
+一个苦乐参半的结局，苦涩多于甜蜜。唯一让我感到不快的是你对明日香的刻画有多么不公。她的骄傲和巨大的自我源于比真嗣更为悲惨的童年。在这故事中，她遭受了太多（差点被强奸，失去一只眼睛，几乎失去手臂，留下了可怕的伤疤——她为救他付出了这样的代价），相比之下，那个懦弱的主角显得微不足道。在她康复期间，他甚至没有尝试联系她，声称不知道该说什么，哪怕是一句简单的“谢谢你救了我的命”也足够了。但这对于他来说太难了，一个简单懦弱的人，却宣称爱她。
+
+Japanese honorifics are not needed and kinda cringy and so is 'baka'(you know there's a perfectly good english translation for that word?), Second Impact screwed global climate, there hasn't been snow for years and Touji shouldn't be whinded from a little walk up the hill, he's a school jock. Your writting ain't bad but these things really grind my gears so far.  
+日语敬语并不需要，而且有点让人尴尬，“笨蛋”（你知道这个词有完全合适的英文翻译吗？）也是如此。第二次冲击破坏了全球气候，已经多年没有下雪了，而冬二不应该因为爬个小山就受伤，他可是学校里的运动健将。你的写作还不错，但这些细节真的让我很抓狂。
+
+**noonefromnowhere**: thanks m8 谢谢兄弟  
+realy needed that one  
+真的很需要那个  
+and i think that scars are neat  
+而且我觉得伤疤很酷  
+they are probably the most visible mark of some sort of a mistake and growth that had come out of it  
+它们很可能是某种错误及其带来的成长的最为明显的标志  
+and i'm happy eyes can't get scarred  
+而且我很庆幸眼睛不会留下伤疤
+
+[bittersweet-stories](https://www.fanfiction.net/u/12389913/bittersweet-stories): As in the wise words of Taylor Swift “Say my name and everything just stops. I don’t want you like a best friend. Only bought this dress so you could take it off.” I AM IN LOVE WITH THIS STORY OMG. MY HEART NEEDS URGENT THERAPY! TYSM FOR THIS STORY!  
+正如泰勒·斯威夫特的智慧之言：“念出我的名字，一切便戛然而止。我不要你只当最好的朋友。买这条裙子就是为了让你脱下。”我完全爱上了这个故事，天哪！我的心需要紧急治疗！非常感谢你写了这个故事！
+
+[xwcezq](https://www.fanfiction.net/u/14594987/xwcezq): Bruh, Asuka of all people invites Toji out on a date? I'm not even gonna bother reading after this point, disappointing fic.  
+兄弟，居然是明日香邀请真治出去约会？看到这里我都不想再读下去了，失望的小说。
+
+[Daggerxxx](https://www.fanfiction.net/u/2672577/Daggerxxx): Shitty story. The only thing that was interesting was the initial plot. The author should have stopped at the first chapter, lol. And then the complete crap went. Asuka invites Touji from all people, alcohol at 14, yeah yeah.  
+烂故事。唯一有趣的是最初的情节。作者本应在第一章就停笔，哈哈。然后就是一团糟。明日香居然邀请了所有人中的托基，14 岁就喝酒，呵呵。
+
+**Meep**: Hi, just wanted to leave my thoughts after reading this yesterday (you're probably not reading these anymore since the story is pretty old but what the heck). I really enjoyed where everything was going up until the last 2 chapters. I just found it lazy and unrealistic how you kinda just ended any sort of relationship between Asuka and Shinji with the four year timeskip (seeing as how much Shinji wanted to see her after the battle). It also really bothered me how Asuka's virginity was just gone after the time-skip without any real explaination nor warrancy from the plot. The way you built it up in the previous chapters is that they both really wanted to when the time was right, working it up to be something cathartic later on. To kind of reitterate what another review said, it was just kind of thrown out for the sake of it and it kinda killed the story for me. Don't get me wrong though, I think you have a real knack for writing and everything up until the final chapters was very well thought out and realistic. Keep writing!  
+嗨，只是想在昨天读完这个故事后留下我的想法（你可能不再读这些了，因为故事已经很老了，但管他呢）。我真的很喜欢之前的发展，直到最后两章。我只是觉得你用四年的时间跳跃来结束明日香和真嗣之间的关系很懒惰且不真实（考虑到真嗣在战斗后多么想见她）。明日香在时间跳跃后突然失去贞操，没有任何真正的解释或情节支持，这也让我很困扰。在前几章中，你构建了他们双方都希望在时机成熟时实现的关系，将其塑造成一种宣泄的体验。有点重复另一个评论所说的，这只是为了故事需要而草率处理，这让我对故事失去了兴趣。不过别误会，我认为你真的很擅长写作，直到最后几章都非常有条理和真实。继续写作吧！
+
+[Hoodiebud](https://www.fanfiction.net/u/13403003/Hoodiebud): PHEEEEEEEEEEEEEEEEWWWWWWWWWW  
+呜哇哇哇哇哇哇哇哇哇哇哇哇哇哇哇哇哇！  
+  
+I didn't think anyone had the guts to almost kill Asuka from out of nowhere! However, those last lines, oh God they're good. Because they've finally gotten something.  
+我没想到有人会突然之间几乎把明日香置于死地！不过，最后那几句话，天啊，真是太精彩了。因为他们终于得到了一些东西。  
+  
+Genuine, mature hope. 真正的、成熟的希望。  
+  
+And because of that, it's 100% guaranteed they both will have grandchildren next to their death bed.  
+正因为如此，他们百分百确定在临终床榻旁会有孙辈陪伴。
+
+[AGK572](https://www.fanfiction.net/u/6601237/AGK572): Liked everything in this story except for how you threw away their relationship for 4 years, also about asuka's virginity being thrown out the window just for the sake of it. Sorry for sounding mean but the rest of the story I honestly liked.  
+除了为了剧情需要让他们的关系空白了四年，以及为了剧情需要牺牲了明日香的贞操这一点，其他部分我都挺喜欢的。抱歉说得有点直白，但故事的其他部分我真的很喜欢。
+
+[Destrark](https://www.fanfiction.net/u/2759212/Destrark): Um What? The cockpit isn't in the head. Its in the spine. If it was in the head, Shinji would be dead in the first episode when Sachiel smashes its laser arm through Unit 01's eye. It causes feedback pain or damage depending on how synced the pilot is but it wouldn't touch them physically.  
+呃，什么？驾驶舱不在头部，而是在脊柱中。如果它在头部，真嗣在第一集就会被萨基尔用激光手臂贯穿初号机的眼睛时死去。这会导致反馈疼痛或损伤，具体取决于驾驶员与机体的同步程度，但不会对他们造成物理伤害。
+
+So I assume Seele and Gendo's scenarios don't apply to this AU? Fine. Still annoyed about the last chapter, that was lazy writing. If you'd decided to move the cockpit to the skull (not sure how, its full of brains) then you should have said that beforehand. Or said how the angel flipped Unit 02 around and slammed the knife into the Entry Plug, (and used its AT field to get around the armor) although that would still have smashed her head apart as well as bisecting her instead of just bisecting most of her body. As it is, the Angels attack must have suddenly teleported through Unit 02's head, neck and into the upper chest to reach Asuka.  
+所以我猜 Seele 和 Gendo 的情节不适用于这个 AU？好吧。对上一章还是很不爽，那写得太敷衍了。如果你决定把驾驶舱移到头骨里（虽然不知道怎么做到的，那里全是脑子），那你应该事先说明。或者解释天使是如何翻转初号机并把刀插进插入栓的（利用 AT 力场穿透装甲），尽管那样她的头也会被砸碎，而不是只把她的身体大部分切开。这样一来，天使的攻击必定是突然穿透了初号机的头部、颈部并进入上胸才到达明日香的。
+
+[Mark Geoffrey Norrish](https://www.fanfiction.net/u/4707801/Mark-Geoffrey-Norrish): I particularly liked when Asuka dragged Touji on a date; it felt a very IC response, which is hard to do when you're making characters too neurotic for romance have romance.  
+我特别喜欢当明日香拖着真嗣去约会的那段；这感觉非常符合角色，很难做到让那些因为过于神经质而不适合谈恋爱的角色谈恋爱。  
+Also, having a new Angel was good. One can only read so many alternate takes on killing Zeruel.  
+另外，引入一个新的天使也很好。关于杀死 Zeruel 的变体已经读得太多了。  
+I didn't so much like the leaning on the fourth wall. It can be fine, but after six and a half conventional chapters, it felt incongruous.  
+我不太喜欢这种打破第四面墙的手法。偶尔为之尚可，但在经历了六章半的传统叙事之后，它显得有些突兀。
+
+[00zau](https://www.fanfiction.net/u/4672643/00zau): I liked it, right until the Angel attack. The "asuka gets scarred up and angsts about it" has been done by many post-impact fics, and been done better and longer. I didn't think it fit in with where the fic was headed prior to that point. I was looking forward to were they're relationship would head based on what had already happened in the story, and heading straight into a near-death followed by a 4 year timeskip made the rest of the story nearly meaningless to the conclusion; after 4 years, little beyond "we had some sexual tension, right?" seemed to remain. But yeah, I liked were it was going, and it seemed well done up until that point. Assuming that the last chapter was meant to be non-canon (what with the fourth wall breaking and Toji quoting the Lion King), it might have been a good idea to mark it as such.  
+我本来很喜欢，直到天使袭击那部分。"明日香受伤并对此感到痛苦"的情节在很多后冲击事件的同人中都有，而且处理得更好、更长。我认为这与小说在那之前的发展方向不符。我之前很期待他们基于故事已发生情节的关系会如何发展，而直接进入濒死体验后紧接着四年的跳跃，使得故事的其余部分几乎对结局毫无意义；四年后，除了"我们有些性张力，对吧？"之外，似乎所剩无几。不过，是的，我喜欢它之前的发展方向，而且在那之前似乎处理得很好。假设最后一章是非正统的（考虑到打破第四面墙和东治引用《狮子王》），将其标记为非正统可能是个好主意。
+
+[Tales from the Lee](https://www.fanfiction.net/u/3920012/Tales-from-the-Lee): This is a good story and in the effort of attracting more readers, I'm going to give you a legitimate review so newcomers can see.  
+这是一个好故事，为了吸引更多读者，我将给你一个真实的评价，以便新来者可以看到。  
+  
+This is a great story. It is certainly well written, having little to no grammar and spelling errors. The characters remain true to their original selves and progress in a feasible manner.  
+这是一个精彩的故事。无疑，它的文笔出色，几乎没有什么语法和拼写错误。角色们保持了他们原有的特质，并以一种合理的方式发展。  
+  
+I feel as a reader that the only thing that needs saying is that anyone looking to read this story must have a good grasp of the characters beforehand. I commend you for not going into depth explaining the background of the characters, the reader should know that already. However I do need to emphasize that a large portion of Asuka's character is based around the persona she shows. She hides behind the identity she has to avoid getting close with people. Anyone who has seen the original series or the derivative films knows this and for that reason it need to be said that readers should not look into this particular work until they've seen that. It makes the payoff far better when one does watch the character progression in this story.  
+作为读者，我认为需要强调的是，任何想要阅读这个故事的人都应该事先对角色有深入的了解。我赞赏你没有深入解释角色的背景，读者应该已经知道这些。但我必须强调，明日香这个角色很大程度上是基于她所展现的人格。她隐藏在自己的身份背后，以避免与人亲近。任何看过原系列或衍生电影的人都知道这一点，因此有必要指出，读者在阅读这部作品之前应该先了解原作。这样，当他们看到角色在这部故事中的发展时，会获得更好的体验。  
+  
+It's like someone watching the Eva Rebuild before the original NGE. One of the best moments in the films comes from knowing how the characters were in the first series and that moment is lost is you don't pay attention to the source material.  
+这就像有人先看了《EVA 新剧场版》再去看原版《新世纪福音战士》。电影中最精彩的时刻之一来自于了解角色在第一部系列中的样子，如果你不关注原作，这个瞬间就会失去意义。  
+  
+At any rate, this is a great story and I would recommend any fans of the series to explore this.  
+无论如何，这是一个精彩的故事，我推荐所有系列的粉丝去探索这一部。
+
+[Kount Xero](https://www.fanfiction.net/u/498231/Kount-Xero): Heheeeeeeey this was actually pretty sweet! When it comes to this pairing, I usually prefer ungodly amounts of misery involved, because Shinji is too cute to NOT torture and Asuka is... well, Asuka.  
+嘿嘿嘿嘿嘿，这其实挺甜蜜的！说到这种配对，我通常更喜欢掺杂大量痛苦，因为真嗣太可爱了，不折磨他简直说不过去，而明日香嘛，就是明日香。  
+  
+BUT, for the most part, you have their personalities down to a t, even when they "grow up." That's a big plus: writing each as one-dimensional characters is easy, but grasping their intricacies, Asuka's especially, is hard, and you excel in that.  
+但大多数情况下，你把他们的性格刻画得淋漓尽致，即便在他们“长大”后也是如此。这是一个很大的加分点：将每个角色写成单维人物很容易，但要把握他们的复杂性，尤其是明日香的，却很难，而你在这方面做得非常出色。  
+  
+Second, I liked the context. I liked how, in a different sort of setting, if a few key things were different (Kaji and Misato, the blackouts) things might have turned out so much better for our beloved pain machines. It's that chaos thing, where you shift one variable and the whole structure changes. And I love that.  
+其次，我喜欢这个背景设定。我喜欢在不同的情境下，如果一些关键因素有所不同（比如加持和美里，还有停电），我们心爱的痛苦机器人的命运可能会好得多。这就是那种混沌效应，改变一个变量，整个结构就会发生变化。我对此深感喜爱。  
+  
+The sequence of events - wonderful. That whole party scene - wonderful. The - holy balls did we- bit, hilarious, especially Asuka's "OMG NO!" reaction and the quick check-up. Laughed HARD. Then the battle, the years passed, it's just. Wowzers, man. Loved this one.  
+事件的顺序——精彩绝伦。整个派对场景——精彩绝伦。那句“天哪，我们——”的部分，尤其是明日香的“天啊，不要！”反应和迅速的检查，真是笑死我了。然后是战斗，岁月流逝，这一切，真是太棒了，老兄。非常喜欢这一段。
+
+[Scarabeye3000](https://www.fanfiction.net/u/615920/Scarabeye3000):That was excellent ...  
+那真是太棒了...  
+  
+Your story-telling is one of the most beautiful that I have ever read. If you know rojo the great, or even Rakna, the way you write evokes the same feeling in me.  
+你的叙事是我读过的最美之一。如果你认识 rojo 大师，或是 Rakna，你写作的方式在我心中唤起了同样的感受。  
+  
+And for me, if my emotions are touched the way you did with the story, well, jeez, you are very good.  
+对我来说，如果我的情感能被你的故事触动到这种程度，那么，天哪，你真的很出色。  
+  
+This hadn't happened for a long time now, but this has been one of my favorite stories. Since 2004 when I joined I only add fanfics that affects me so much, that I really felt the emotions that you were trying to convey. I'm a hard reader to please, but I am not just pleased with your work.  
+这种情况已经很久没有发生了，但这是我最喜欢的故事之一。自从 2004 年加入以来，我只添加那些深深影响我的同人小说，我真的感受到了你试图传达的情感。我是一个难以取悦的读者，但我对你的作品不仅仅是满意。  
+  
+I am thrilled and fulfilled, thank you for this excellent story.  
+我感到非常激动和满足，感谢你带来这么精彩的故事。  
+  
+Keep up the good work, and again seeing that your a new author, it surprises me that there are still people that has a talent for this kinds of endeavors.  
+继续保持优秀的工作，再次看到你是一位新作者，这让我惊讶于还有人在这种努力中拥有如此天赋。  
+  
+Cheers, 干杯，
+
+[logan](https://www.fanfiction.net/u/9011/logan): You really do owe a heartfelt apology to the 4th wall for the abuse you have wrought upon it this chapter.  
+你真的欠第四面墙一个由衷的道歉，这一章你可把它折腾得不轻。  
+  
+Ah, just kidding. actually I really like your sense of humor and it fits surprisingly well in this series (which is downright odd given the soul-crushing, eye-crossing gourge-rising nature of Evangelion). I'm looking forward to reading your other stories for more of the same so please don't leave this aspect out of future fics.  
+啊，开个玩笑。实际上我真的很喜欢你的幽默感，它在这部系列中出奇地合适（考虑到《新世纪福音战士》那种令人心碎、眼花缭乱、胃里翻江倒海的性质，这真是奇怪）。我期待着阅读你的其他故事，希望能看到更多同样的风格，所以请不要在未来的同人作品中去掉这一点。  
+  
+The last chapter didn't really work well for me. The pacing was odd. It seemed to slow down and then speed up in the wrong places, but you recovered pretty well with this one and i left it happy. hope to read some more from you soon!  
+最后一章对我来说效果并不理想。节奏有些奇怪，似乎该慢的地方快，该快的地方又慢了，不过这一章你挽回得不错，我读完后感到满意。期待不久能读到你的更多作品！
+
+[raitora](https://www.fanfiction.net/u/4334502/raitora): Excellent strory! One of the best EVA fics I've read in a long time for sure. The story had a very realistic feel to it as did the relationship between Asuka and Shinji. I liked how you didn't just save Asuka and have things be all WAFFy right after the last battle scene. I've always thought it would be difficult for Asuka and Shinji to accept their feelings for one another. Having them seperated for four years and get some life expirience makes the chances of them having a healthy relationship more propable and real. Too many Asuka and Shinji fics are really OOC in my opinion as 14yr old Asuka and Shinji are just too troubled and young to have a real lasting relationship, well at least a remotey healthy one. So well handeled! Really liked the scene with Touji by the end too! Will definately be checking out your most reecent story next.  
+精彩的故事！这是我很久以来读过的最好的 EVA 同人之一。故事非常真实，明日香和真嗣之间的关系也是如此。我喜欢你没有在最后一战后立刻让明日香得救并让一切变得温馨。我一直认为明日香和真嗣接受彼此的感情会很困难。让他们分开四年并获得一些生活经验，使他们拥有健康关系的可能性更大，也更真实。在我看来，太多明日香和真嗣的同人作品中，14 岁的他们因为太过困扰和年轻，无法拥有真正持久的关系，至少是相对健康的关系。处理得非常好！也很喜欢结尾时与冬二的那场戏！肯定会去看看你最新的故事。
+
+[sm8430328](https://www.fanfiction.net/u/3427374/sm8430328): Yes, that was... bleak. Very bleak and quite depressing... but it's okay! I'll admit, I found it a teeny bit OOC in parts (i.e. I don't think Shinji would swear, even at thal level of anger) but that might be just me. Actually, it's usually always just me, haha... Anypoo, the story did something right by making me stick with it and not drop it after the first chapter, so yay!  
+是的，那真是...阴暗。非常阴暗且相当压抑...但没关系！我承认，我觉得有些部分有点不符合角色性格（比如我不认为真嗣会在那种愤怒程度下咒骂），但这可能只是我个人的看法。实际上，通常总是我一个人这么想，哈哈...总之，这个故事做得对的地方在于让我坚持读下去，而不是在第一章后就放弃，所以好样的！  
+  
+Melikes! 我喜欢！  
+  
+/Novaki/ /诺瓦基/
+
+[Julian Chester](https://www.fanfiction.net/u/2996723/Julian-Chester): It's been a long ride, but it's been well worth it. I really liked how you ended it. Bittersweet, but that is best. I am glad they were able to admit it to each other though, at the last.  
+虽然过程漫长，但非常值得。我真的很喜欢你的结局。虽然有些苦涩，但这是最好的。我很高兴他们在最后能够向彼此坦白。  
+  
+It bothered me a little at the last chapter, trying to figure out which Angel they were fighting, and where your tale fits into the canonical Evangelion timeline. I am still curious, but only in an academic, idly curious way, for the simple reason that this is not that kind of story. Many Evangelion fanfiction authors have followed the established, canonical timeline closely, sometimes even slavishly. Many of those have done so even as they introduce their own minor variations and divergences. You didn't screw around with any of that nonsense. You took the story and made it your own, and told a tale that you wanted to tell. You took some of the most dysfunctional, crazy characters in anime history and you brought them through to a good and satisfactory ending, and you did it without breaking character.  
+最后一章让我有点困扰，试图弄清楚他们正在与哪个天使战斗，以及你的故事如何融入《新世纪福音战士》的官方时间线。我仍然感到好奇，但只是出于学术上的，闲暇时的兴趣，因为这不是那种类型的故事。许多《新世纪福音战士》的同人作者都严格遵循已建立的官方时间线，有时甚至过于死板。许多人在引入自己的小变化和分歧时也是如此。你没有被那些胡言乱语所困扰。你拿起了故事，让它成为你自己的，讲述了一个你想讲述的故事。你把动漫史上最功能失调、疯狂的角色们带到了一个美好且令人满意的结局，而且没有破坏角色的性格。  
+  
+You were bold in your writing, doing as you pleased while still staying true to the spirit of the original. I like that. You have made a fine success here. This deserves to be known as one of the better Evangelion fanfics out there. You deserve praise for actually thinking about what the results of the events of the story would actually be, if they occurred. Even in a city with construction companies on call 24 hours a day like Tokyo-3, the constant Angel attacks would have made a proper mess of the power generation and distribution systems, and the rolling blackouts make perfectly good sense in that context, particularly considering the events following the Sendai earthquake. And when I bothered to think about it, it doesn't make much sense that Japan would be stuck in an eternal summer, just because an explosion a thousand times more powerful than a fusion bomb went off at the South Pole and obliterated Antarctica. The risen sea levels DO make sense, but I can't think of a logical reason for the eternal summer. If anything, global warming ought to have come to a halt, considering that half the world's population died in a matter of months, most of them in one day. And furthermore, all the particulate matter in the air from Antarctica being destroyed ought to have blotted out the sun over most of the world, leading to an exceptionally cold year following Second Impact (and a pretty massive crop failure into the bargain), and even though fifteen years have passed by the time the story occurs, one has to wonder how much of that effect is still around.  
+你的写作大胆而自由，既随心所欲又不失原作精神，我很欣赏这一点。你在这里取得了出色的成就，这绝对堪称是较优秀的 EVA 同人作品之一。你值得赞扬，因为你真正思考了故事事件若真实发生会带来的后果。即使在东京-3 这样全天候有建筑公司待命的城市，频繁的使徒袭击也必然会对发电与配电系统造成严重破坏，因此轮流停电在此背景下显得合情合理，尤其是考虑到仙台地震后的情况。而且，当我细想时，日本陷入永恒夏日的设定并不合理，仅仅因为南极发生了一场比核聚变炸弹强千倍的爆炸并摧毁了南极洲。海平面上升确实有其道理，但我找不到永恒夏日的逻辑依据。相反，考虑到全球半数人口在短短几个月内，多数在一天之内死亡，全球变暖理应停止。 而且，南极洲毁灭产生的所有颗粒物本应遮蔽全球大部分地区的阳光，导致第二次冲击后的一年异常寒冷（以及相当严重的农作物歉收），尽管故事发生时已过去十五年，人们仍不禁要问，这种影响还有多少残留。  
+  
+I liked it. I liked all of it, most particularly the last thousand words or so, at the wedding. It was a very poignant way to end it.  
+我很喜欢。整篇我都喜欢，尤其是最后大约一千字，婚礼部分。这是结束故事的非常感人的方式。  
+  
+Well done. 做得好。
+
+[Blood Maelstrom](https://www.fanfiction.net/u/1740765/Blood-Maelstrom): The story is very warming to read for the warmth between asuka and shinji.  
+这个故事读起来非常温馨，尤其是明日香和真嗣之间的温情。  
+  
+And although this new event of being in the same bed together (of course this happens often but this story's different in a sense of how it projected it, which was human instinct and lust and or just blah) is kind of displeasing..you know it just seems to shake the foundations of the story in an uncomfortable way, but hey it's still good.  
+虽然这次他们同床共枕的新情节（当然这在故事中经常发生，但这个故事以一种不同的方式呈现，即人性本能和欲望，或者只是无聊）有点令人不快……你知道，它似乎以一种不舒服的方式动摇了故事的基础，但嘿，它仍然很好。
+
+[Julian Chester](https://www.fanfiction.net/u/2996723/Julian-Chester): This has to be one of the best Evangelion fanfics I have read. That's tall praise, considering I've spent the last week or so immersing myself in many of the better ones.  
+这绝对是我读过的最好的《新世纪福音战士》同人小说之一。这评价可不低，毕竟我过去一周左右的时间都在沉浸于阅读许多优秀的作品。  
+  
+You get full points for your inclusion of accurate German (as a German speaker, I love it when authors give Asuka lines in German), and extra points for knowing how and where to use an Eszett.  
+你因准确使用德语而获得满分（作为德语使用者，我很喜欢作者让明日香说德语），并且因知道何时何地使用 Eszett（ß）而额外加分。  
+  
+I really loved how you made the characters true to their original characterization, and yet how they reacted so differently. This kind of constant misunderstanding and suppression of one's true feelings is classic Evangelion behavior for Asuka and Shinji, and yet in this case the true feelings came forth eventually. I don't think using "in vino veritas" was a cop-out at all. I think it's a perfectly logical thing was for Asuka to react, just as how she found herself in that situation was a perfectly reasonable thing for Asuka to do (and besides, with her age and how she's built, she couldn't possibly be a heavyweight at drinking; even being part German doesn't carry you over that line, not when you're a skinny little 14 year old girl).  
+我非常喜欢你如何让角色忠实于他们原有的性格，同时又让他们有如此不同的反应。这种对真实情感的持续误解和压抑是《新世纪福音战士》中明日香和真嗣的经典行为，然而在这种情况下，真实情感最终还是流露了出来。我认为使用“酒后吐真言”绝不是逃避，而是对明日香反应的完美逻辑解释，正如她陷入那种情境也是完全合理的（而且，以她的年龄和体型，她不可能是个酒量大的女孩；即使她是德国血统，对于一个瘦小的 14 岁少女来说，这也不可能跨越那条线）。  
+  
+That's about all I have to say for right now. I'll be looking forward to future chapters. I am very curious to see how you resolve this; I don't expect a happily ever after ending, but I would like to see Asuka and Shinji actually admit how they feel about each other, and manage to carve out a little bit of happiness in their dirty world. The two of them are broken goods, and yet they seem to make each other whole. You write beautifully, like a professional almost, and I want to see how you finish this.  
+这大概就是我目前想说的全部了。我期待着未来章节的到来。我非常好奇你会如何解决这一切；我不期待一个童话般的完美结局，但我希望看到明日香和真嗣能真正承认彼此的情感，并在他们那充满污秽的世界中努力争取一丝幸福。他们两人虽已破碎，却似乎能让对方变得完整。你的文笔优美，几乎像专业作家一般，我期待看到你如何为这个故事画上句点。
+
+[Incognito girl](https://www.fanfiction.net/u/675427/Incognito-girl): pleeeeeease tell me shinji stops them. she's obviously still drunk. he's already shown so much backbone, he needs to strait up take his own words and say not tonight!  
+求求你告诉我，真嗣会阻止他们。她显然还醉着。他已经展现了很多勇气，他需要直接用他自己的话来说：今晚不行！  
+  
+Kinda pissed that you had asuka give in to peer pressure. i think that as a pilot that would be enough reason for her to say i'm not afraid to say no to children like you or something like that. but i know you did it for the plot. i was really hoping for her to stand up for herself in a positive way. but i was glad that everyone was looking out for her.  
+有点生气你让明日香屈服于同伴压力。我认为作为一个驾驶员，这足以让她说“我不怕对你们这些孩子说不”之类的话。但我知道你是为了剧情需要。我真的很希望她能以一种积极的方式为自己挺身而出。但我很高兴大家都在照顾她。
+
+[song six](https://www.fanfiction.net/u/1105582/song-six): Someone said Shinji was really OOC, they're kind of wrong. I think he does seem to come out a little OOC with his thoughts about asuka but he still acts more in character with the original in the manga than the anime did. If anything the anime got him OOC. I'll just assume you read the manga and got it right. plus, in a ways you made him your own. The one in the manga talks back to Asuka and has more of a temper than an emo problem like the anime one.  
+有人说真嗣表现得非常不符合角色，他们有点错了。我认为他在关于明日香的想法上确实显得有些不符合角色，但他在漫画中的行为比在动画中更贴近原作。如果说有什么不符合角色的话，那也是动画中的他。我会假设你读过漫画并理解正确。此外，在某种程度上，你让他成为了你自己的角色。漫画中的他会对明日香回嘴，脾气更大，不像动画中那样是个情绪化的问题少年。  
+  
+I can't tell you how nice it is to be able to read an evagelion fic after so long. Especially one that's recent and not abandoned in 2007 or something...It's been awhile! I'm really enjoying this alot. you've made the characters your own while keeping them within their personality. I'm also enjoying Asuka's way of thinking. She would definitely find it logical to try and prove to herself her kiss with Shinji was meaningless. I also found Touji to be hilarious in that scene for some reason! Imagining his reaction was funny!  
+我无法告诉你，时隔这么久还能读到一篇《新世纪福音战士》的同人文是多么美妙。尤其是这篇是近期的，而不是 2007 年那种被遗弃的作品...真是久违了！我非常享受这个故事。你让角色们保持了他们的个性，同时又赋予了他们新的生命。我也非常喜欢明日香那种思考方式。她肯定会觉得试图证明自己和真嗣的吻毫无意义是合乎逻辑的。不知为何，我还觉得那一幕中的冬二非常搞笑！想象他的反应真是太有趣了！  
+  
+thankyou for writing this and please keep writing!  
+感谢你写下这个故事，请继续创作！  
+  
+- songsix

@@ -2,7 +2,7 @@
 Status: complete
 Size: Very Short POV
 Timeline: NGE
-OOC: Anima Asuka
+OOC: WAFF
 Comment: Yes
 ---
 The long awaited afterchapter for Never Let You Go. Prepare to be disappointed. Shinji's POV, this time around.  

@@ -2,7 +2,7 @@
 Status: complete
 Size: Short
 Timeline: NGE
-OOC: Anima Asuka
+OOC: WAFF
 Comment: No
 ---
 [Ps3udonym](https://www.fanfiction.net/u/465540/)  

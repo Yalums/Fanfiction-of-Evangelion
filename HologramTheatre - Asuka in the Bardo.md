@@ -1,3 +1,8 @@
+---
+Status: in progress
+Size: Long
+Comment: No
+---
 [HologramTheatre](https://www.fanfiction.net/u/14828821/HologramTheatre)
 _bardo (noun): the intermediate or astral state of the soul after death and before rebirth (Merriam-Webster Dictionary)  
 中阴（名词）：灵魂死后与重生之间的中间或星光状态（韦氏词典）_
@@ -62,7 +67,7 @@ Although I am pleased with how it originally turned out, there were always some 
 虽然我对原作的成果感到满意，但总有些地方我希望能够回去修改或更好地规划，尤其是故事早期的部分，当时我并不确定故事的走向。我想，没有比现在更好的时机来尝试修改了。我们拭目以待进展如何。
 
 ---
-### Asuka Discarnate
+### Chapter 2 Asuka Discarnate
 Crumpled up and abandoned, the former Evangelion pilot Asuka Langley Soryu laid on the floor of Misato's kitchen. The room was thoroughly trashed. The table and chairs were overturned and broken apart. Asuka laid where she had been left for dead after her sole companion, Shinji Ikari, discarded her in favor of more apocalyptic ambitions. She didn't know how long it had been. It felt like only seconds ago, but it could have easily been centuries or longer. She was aware of existing in a ceaseless present time.  
 皱巴巴地被遗弃，前福音战士驾驶员惣流·明日香·兰格雷躺在美里厨房的地板上。房间被彻底毁坏。桌椅被掀翻并拆散。明日香躺在她被遗弃的地方，她的唯一同伴碇真嗣为了更末日的野心而抛弃了她。她不知道已经过去了多久。感觉就像几秒钟前，但也可能已经是几个世纪甚至更久。她意识到自己存在于一个无休止的现在时态中。
 
@@ -471,7 +476,7 @@ Asuka shoved past Rei and punched the elevator's Emergency Stop button. The door
 つづく
 
 ___
-### Burial at Sea
+### Chapter 3 Burial at Sea
 Asuka couldn't feel the pleasant sea breeze blowing over her through all the layers of clothing she had wrapped herself in before coming on deck. She had originally picked out a simple yellow sun dress for her Japanese debut, but it left her feeling exposed this time around. Instead, she wore a long and loose-fitting dress with a faint floral print. Over that she wore a heavy cardigan and over that a bomber jacket she had snatched from a naval aviator's locker.  
 明日香感受不到吹拂过她的宜人的海风，因为她来甲板前把自己裹了好几层衣服。她原本为她的日本首秀挑选了一件简单的黄色太阳裙，但这次却让她感到暴露。于是，她换上了一件带有淡淡花卉图案的长款宽松连衣裙。外面套了一件厚重的开襟毛衣，再外面是一件从海军飞行员储物柜里抓来的飞行员夹克。
 
@@ -1960,5 +1965,940 @@ It whispered to Asuka a memory in her own voice: "I don't even want kids!"
 
 Black spread across the white until only pinpoints of brilliance showed through. The stars had come out. There was nowhere left in the heavens for Balthazar's ghost to hide so it left her alone. Asuka stepped into the crunching cold winter's night.  
 黑色蔓延至白色之上，直至只剩下点点璀璨透出。星星出来了。天空中已无处供巴尔萨泽的幽灵藏身，于是它离开了她。明日香踏入了嘎吱作响的寒冷冬夜。
+
+つづく
+
+### Chapter 4 Homesick
+
+Asuka took up two reeking trash bags and marched her charges outside to the dumpsters. One clattered as it held a several weeks' accumulation of beer cans, the other rustled and squished with the remains of half-eaten instant noodle containers. Both stank which helped a chore-shy Asuka far less reluctant to set herself to the task. The still-undiscovered purpose behind Misato's frantic cleaning spree kept her puzzled. She supposed that her boyfriend, Mr. Kaji, was due for a visit, but Misato's urgency felt off.
+明日香拎起两个散发着恶臭的垃圾袋，带着她的“俘虏”们走向外面的垃圾箱。一个袋子里装满了积攒数周的啤酒罐，发出叮当作响的声音，另一个则沙沙作响，挤压着半吃剩的速食面盒。两个袋子都臭气熏天，这让原本懒于做家务的明日香少了几分抗拒，开始着手处理这项任务。美里疯狂大扫除背后的未解之谜仍让她感到困惑。她猜想，大概是男友加持先生要来访，但美里的急迫感似乎有些过头了。
+
+"He's okay, I guess," Asuka told the trash. "But since when is he worth all this effort? It's not like she's not already getting laid. Pathetic! Imagine rearranging your life around some guy."
+“我想他还好吧，”明日香对着垃圾说，“但什么时候他值得这么大费周章了？又不是说她没在享受。真是可悲！想象一下，为了某个男人重新安排自己的生活。”
+
+Their apartment had never been cleaner. Misato and Asuka had scrubbed, dusted, mopped, polished, picked up, and tidied the place to a degree unlike Asuka had seen ever since Misato had taken her in some years ago. Past visits by Mr. Kaji and his own adoptee had inspired Misato to triage the garbage before, though never to such an extent.
+他们的公寓从未如此干净过。美里和明日香擦洗、除尘、拖地、抛光、收拾、整理，将这个地方打扫得比明日香记忆中自从几年前美里收养她以来所见过的任何时候都要干净。虽然之前加濑先生和他的养子来访时也曾激励美里提前清理垃圾，但从未达到过这样的程度。
+
+"It's not like he's never been here before. He knows she's a big slob. No offense," Asuka said. "Then again, they're usually wasted when they barge in and then he sneaks out while it's still dark. Like I don't know! Or can't hear! Gross!"
+“又不是他第一次来这里。他知道她是个大懒虫。无意冒犯，”明日香说。“不过话说回来，他们通常都是醉醺醺地闯进来，然后他在天还没亮的时候就偷偷溜走。好像我不知道！或者听不见似的！真恶心！”
+
+Asuka hurled the first bag into the can collection bin. It sailed in with room to spare and hit the hollow bottom with a deafening racket. Her aim was off with the second bag. It got stuck on the edge of the bin for burnables and didn't quite tumble inside.
+明日香将第一个袋子扔进了垃圾收集箱。它轻松地飞了进去，撞击空荡荡的底部发出震耳欲聋的响声。第二个袋子她的准头却偏了，卡在了可燃垃圾箱的边缘，没能完全掉进去。
+
+"Oh no, is she thinking about marriage? And she tricked me into helping lay her trap? I guess she's getting old. Clock's ticking. Soon she'll be a barren and won't get to replace me with one of her own."
+"哦不，她是在考虑结婚吗？还骗我帮她布下陷阱？看来她是真的老了。时间不等人。很快她就会失去生育能力，没法用自己的人取代我了。"
+
+She planted a high kick precisely where she had to to send the bag into the bin. It fell in with a wet smack.
+她准确地踢出一记高踢，正中目标，将袋子送进了垃圾桶。袋子落入时发出一声湿漉漉的啪嗒声。
+
+When she arrived back at the apartment, there were two more pairs of shoes in the entrance that hadn't been there before.
+当她回到公寓时，入口处多了两双之前没有的鞋子。
+
+"Asuka?" Misato called from the kitchen. "Come in! What took you so long?"
+"明日香？" 美里从厨房喊道。"进来吧！你怎么这么慢？"
+
+"Nothing, Misato! Coming, Misato!" Asuka growled back, kicking her shoes off and into the guests' to make a chaotic heap. She stomped her way into the kitchen to meet three faces smiling back at her from around the table.
+"没什么，美里！来了，美里！" 明日香咆哮着回应，一脚把鞋子踢进客人的鞋堆里，制造出一团混乱。她跺着脚走进厨房，看到桌子周围有三张笑脸正对着她。
+
+"Hello, Asuka-chan!" said Mr. Kaji. She hated how casual he was with her and how it put her at ease before she could catch herself. Asuka supposed that's how Misato got taken in by his charms.
+"你好，明日香酱！" 加治先生说道。她讨厌他对待她的随意态度，以及这种态度在她意识到之前就让她感到放松。明日香猜想这就是美里被他的魅力所吸引的原因。
+
+"Hello, Soryu-san," Shinji murmured towards the floor by Asuka's feet. On the other hand, Asuka enjoyed the deference she received from Mr. Kaji's ward.
+“你好，Soryu-san，”真嗣对着明日香脚边的地板低声说道。另一方面，明日香享受着来自加持先生的养子所表现出的尊敬。
+
+"Uh, hi. What's going on?"
+“呃，嗨。发生什么事了？”
+
+Misato gave Asuka her best maternal frown. "Asuka! Please, come sit! Ryoji and I have some news."
+美里给了明日香一个最慈母般的皱眉。“明日香！请过来坐下！我和良治有些消息要告诉你。”
+
+"Oh no, you're breaking up? So sad! Hey, that's my seat, Ikari!"
+"哦不，你们要分手了？真可惜！嘿，那是我的座位，碇！"
+
+She slapped the back of Shinji's head before he had a chance to stand.
+她一巴掌拍在真嗣的后脑勺上，他还没来得及站起来。
+
+"Oh! I'm sorry!" he mumbled, scrambling over to the other chair. Mr. Kaji laughed while Misato tutted. Asuka scrunched her nose when she sat down: the chair was already warm.
+"哦！对不起！"他咕哝着，慌忙挪到另一张椅子上。加持先生笑了，而美里则啧啧出声。明日香坐下时皱了皱鼻子：椅子已经温热了。
+
+"Alright you two, enough for a while, OK? Me and Ryoji have some news. It turns out that their apartment building was condemned by the city inspector after the last aftershock."
+"好了，你们俩，先停一下，好吗？我和 Ryoji 有些消息。原来他们的公寓楼在上次余震后被城市检查员判定为危楼。"
+
+It was then that Asuka noticed the suitcases.
+这时，Asuka 注意到了那些行李箱。
+
+"Oh no," she blurted out. "Oh no no no..."
+"哦不，"她脱口而出。"哦不不不..."
+
+"And, well, this was something we were thinking about doing, anyway, so..."
+"而且，这个嘛，我们本来就考虑过要这么做，所以..."
+
+Mr. Kaji took Misato's hand and squeezed.
+加持先生握住了美里小姐的手，轻轻捏了捏。
+
+"So I proposed to her," he said.
+"所以我向她求婚了，"他说道。
+
+Asuka's jaw dropped. Out of the corner of her eye she could see that Shinji beamed with joy.
+明日香的下巴掉了下来。她眼角的余光看到真嗣脸上洋溢着喜悦。
+
+"And Misato invited us to come live here with you two," he said directly to Asuka. "If that's alright with you?"
+“美里邀请我们和你俩一起住在这里，”他直接对明日香说。“如果你觉得没问题的话？”
+
+"It's not," she said. “不行，”她说。
+
+"She doesn't get a vote!" Misato retorted before planting a big kiss on Mr. Kaji's cheek.
+"她没有投票权！" 美里反驳道，随即在加持先生的脸颊上重重地亲了一口。
+
+"Well where's that one going to go?" Asuka snarled back, pointing at Shinji with her thumb. "If you think I'll share my room with some perverted little boy...!"
+"那他打算住哪儿？" 明日香咆哮着回击，用拇指指着真嗣。"如果你以为我会和某个变态小男孩共住一间房...！"
+
+"Oh no, he'll go in that smaller room. That's why we cleared it out."
+"哦不，他会住在那个小一点的房间里。这就是我们清理它的原因。"
+
+"But that's barely more than a closet! Where is Mr. Kaji going to sleep?"
+"但那地方几乎只能算是个壁橱！加治先生要睡哪儿呢？"
+
+Asuka flinched at her own oversight. Am I stupid?
+明日香因自己的疏忽而畏缩。我是不是太蠢了？
+
+Misato burst out laughing. Mr. Kaji struggled but failed to keep himself from smirking knowingly at his wife-to-be. Asuka felt her face flush deep red. She turned to Shinji and saw he was similarly blushing.
+美里爆发出大笑。加治先生努力克制但仍忍不住得意地对未婚妻微笑。明日香感到自己的脸涨得通红。她转向真嗣，看到他也同样脸红着。
+
+"I'll tell you all about that when you're older!" Misato laughed.
+"等你长大了我再告诉你！" 美里笑着说。
+
+After the other two had left to gather more of their belongings, Asuka helped Misato wash the dishes. She was typically difficult when it came to chores, but recent events left her too unsteady to affect her usual attitude.
+另外两人离开去收拾更多行李后，明日香帮美里洗碗。她平时做家务总是很挑剔，但最近发生的事情让她心神不宁，无法保持平时的态度。
+
+"Talk to me. I know you're angry," said Misato. She bumped Asuka lightly with her hip.
+"跟我说说吧，我知道你在生气。" 美里说道，轻轻地用臀部碰了碰明日香。
+
+Asuka let the dish she scrubbed splash down into the sink.
+明日香让手中正在擦洗的盘子哗啦一声落入水槽。
+
+"I'm not angry with you! You deserve to be happy. I don't—! I'd never—!"
+"我没有生你的气！你应该幸福。我——！我绝不会——！"
+
+"I know that, Asuka-chan," Misato said. She pulled her into a soapy side embrace. Asuka flinched at Misato's damp touch.
+"我知道，明日香酱，"美里说道。她将她拥入沾满泡沫的怀抱。明日香因美里潮湿的触碰而微微一颤。
+
+"Can't we just get a pet?" she suggested. "How about a penguin?"
+"我们不能养只宠物吗？"她提议道，"比如一只企鹅？"
+
+Misato laughed. "A penguin?!"
+美里笑了。"企鹅？！"
+
+Asuka rested her head against Misato's collarbone. She listened to the beating of her heart and waited until her own was just as steady before continuing.
+明日香将头靠在美里的锁骨上。她聆听着她的心跳，直到自己的心跳也变得同样平稳，才继续说道。
+
+"It's just that they might hear me. When I cry at night, you know?"
+"只是他们可能会听到我。当我夜里哭泣时，你知道吗？"
+
+Misato let out a breath. She sat down at the table and pulled Asuka sideways into her lap.
+美里叹了口气。她坐在桌旁，将明日香拉到自己的腿上。
+
+"What if we tried to get you some help again?"
+"如果我们再试着帮你寻求一些帮助呢？"
+
+Asuka shook her head. She clamped her eyes shut.
+明日香摇了摇头。她紧紧闭上了眼睛。
+
+"Asuka, I know I'm not your..." Misato said, eliding over the difficult word. "But since you came to me, since you entered my life, I've tried to do my best to do right by you. What did I know about raising a kid? What do I know now? I'm not all that much older than you."
+"明日香，我知道我不是你的……" 美里说，避开了那个难以启齿的词。"但自从你来到我身边，自从你进入我的生活，我一直在尽力做到最好，对你负责。我当初知道怎么养孩子吗？现在又知道多少呢？我其实也没比你大多少。"
+
+Asuka snorted. 明日香哼了一声。
+
+"You little—!" Misato yelped and gave her a little shake, which also shook loose a tear from the corner of her eye. It fell with a pat onto Asuka's cheek below.
+"你这个小——！" 美里惊叫一声，轻轻摇晃了她一下，这一摇也让她眼角的一滴泪珠滑落，啪嗒一声落在明日香的脸颊上。
+
+"I've made a lot of stupid mistakes in my life. One of them was pushing Ryoji away. Then I made a lot more mistakes before I realized I could undo some of them. When I looked him up, the worst part wasn't worrying if he had found somebody else. Isn't that strange? I could have taken heartbreak. Goodness knows I've had my heart broken over and over. My worst fear was if I could say the words I couldn't say all those years ago."
+"我这辈子犯过很多愚蠢的错误。其中一个就是把碇唯推开。之后我又犯了很多错误，直到我意识到有些错误是可以弥补的。当我去找他时，最让我担心的不是他是否已经找到了别人。这难道不奇怪吗？我本可以承受心碎的痛苦。天知道我的心已经碎了一次又一次。我最害怕的是，我能否说出那些多年前没能说出口的话。"
+
+Misato paused, her face all aglow. Asuka looked up at her and was taken by how beautiful Misato looked when her mind was elsewhere.
+美里停顿了一下，她的脸庞熠熠生辉。明日香抬头看着她，被美里心不在焉时的美丽所吸引。
+
+"It meant admitting how all of our time together had meant more than it appeared on the surface. That not letting him in was a choice and that I chose poorly. I don't know if any of this even makes sense. Just don't give up on yourself, okay? I'll never give up on you, I promise. I love you so much."
+"这意味着承认我们在一起的时光实际上比表面看起来更有意义。不让他进入是我的选择，而我选择错了。我不知道这些是否说得通。只是不要放弃自己，好吗？我永远不会放弃你，我保证。我非常爱你。"
+
+Visions took the place of sight. A doll. A noose. Her mother swaying back and forth.
+视觉取代了视线。一个玩偶。一根绞索。她的母亲前后摇摆。
+
+Asuka shook her head again.
+明日香再次摇了摇头。
+
+"I can't. I can't, I can't, I can't."
+"我做不到。我做不到，做不到，做不到。"
+
+On the walk to school the next day, the bright glare of the morning sun nearly met its match in how Asuka glowered at Shinji.
+第二天上学路上，早晨明亮的阳光几乎比不上明日香对真嗣的怒视。
+
+"Come on, Ikari, keep up!" Asuka said, taking hold of Shinji's hand. "I agreed to walk you to school, not carry you there!"
+"快点，碇，跟上！" 明日香说着，抓住了真嗣的手。"我答应陪你上学，可没说要背你过去！"
+
+Shinji kept gawking at the sleek, modern skyline of Tokyo-3. Like many children, he had been orphaned by the Second Great Kanto Earthquake. Somehow he had come into the care of Ryoji Kaji who lived in Tokyo-2, a ramshackle development thrown together by the UN emergency authorities to house millions of homeless people as expediently as possible.
+真嗣目不转睛地盯着东京-3 那流线型、现代感十足的都市天际线。和许多孩子一样，他在第二次关东大地震中失去了双亲。不知怎么地，他来到了碇源堂的照顾之下，后者住在东京-2，一个由联合国紧急当局仓促搭建的临时居住区，旨在尽可能迅速地安置数百万无家可归者。
+
+Asuka, on the other hand, had grown up in the so-called earthquake-proof Tokyo-3 developed by the NERV Corporation, an NGO that employed her own guardian and formerly her parents. Asuka considered herself orphaned by the same cataclysm, but it wasn't the earthquake that killed her mother.
+另一方面，明日香在由 NERV 公司开发的所谓抗震东京-3 长大，这家非政府组织雇佣了她的监护人，也曾是她父母的雇主。明日香认为自己同样因那场灾难而成为孤儿，但夺走她母亲的并非地震。
+
+Pushing those feelings back into the deep numbness within her soul, she yanked Shinji along the sidewalk towards the school.
+她将这些情感重新压入灵魂深处的麻木之中，拽着真嗣沿着人行道向学校走去。
+
+She felt a twinge inside herself pulling her away from the wrong path, like a tug at her sleeve. Asuka stopped hauling Shinji forward and let him draw even with her.
+她感到内心一阵拉扯，将她从错误的道路上拽回，就像有人轻扯她的衣袖。明日香停下拖着真嗣前进的脚步，让他与自己并肩而行。
+
+"I'm sorry, that was rude of me," Asuka whispered, hardly believing the words coming out of her mouth.
+“对不起，我刚才那样很没礼貌，”明日香低声说道，几乎不敢相信这些话是从自己嘴里说出来的。
+
+"Oh no, I'm sorry for being so slow. It's just I've hardly been here before. It's all so new to me. Mr. Kaji and me come from Tokyo-2. I'm sorry, you probably know that already."
+“哦不，该道歉的是我，我太慢了。只是我之前几乎没来过这里。对我来说一切都很新鲜。我和加持先生来自第二新东京市。对不起，你可能已经知道了。”
+
+She bit her tongue before she could call him a wimp.
+她咬住舌头，才没叫他一声懦夫。
+
+"I did but that's OK. You were orphaned by the Second Quake, too?"
+“我也是，不过没关系。你也是第二次地震后成为孤儿的吗？”
+
+"Too? Oh, uh, yeah." “也是？哦，呃，对。”
+
+Asuka flinched at her own slip-up. Of course Mr. Kaji must have told him her family history. Of course he'd know that his mother didn't really die in the quake, just that she died because of it. She swallowed another bitter outburst and decided to let that pass.
+明日香因自己的失言而畏缩。当然，加治先生一定告诉过他她的家庭背景。当然，他会知道他的母亲并非真的死于地震，只是因地震而死。她咽下了另一股苦涩的冲动，决定让这件事过去。
+
+There has to be a better way to go about this... Woah, I'm still holding his hand.
+一定有更好的办法来处理这件事...哇，我还在握着他的手。
+
+"So, I don't know, what was that like for you?" she asked.
+“那么，我不知道，那对你来说是什么感觉？”她问道。
+
+Shinji eyed Asuka carefully.
+真嗣小心翼翼地打量着明日香。
+
+"It was hard at first. I'm sure you know. But after a while I learned that you have to focus on living, you know? When things calmed down, Mr. Kaji found me. I realized that there was still life all around. Maybe even that I owed it to my parents, to everyone who died, to keep living for their sake. I know that it can be harder for others..."
+“起初确实很难，你肯定知道。但过了一段时间，我学会了必须专注于生活，你知道吗？当事情平息下来，加持先生找到了我。我意识到周围依然充满生机。也许我甚至欠我的父母，欠所有死去的人，为了他们的缘故继续活下去。我知道这对其他人来说可能更难……”
+
+He gave her hand a squeeze before releasing it. They had reached the schoolyard.
+他握紧她的手，然后松开。他们已经到达了校园。
+
+"Yeah, I guess," said Asuka, not sure about the jolt that ran up her arm.
+"嗯，我想是吧，" 明日香说道，不确定手臂上传来的那股电流是什么感觉。
+
+Mr. Fuyutsuki raised his eyebrow when he saw Asuka enter class 2-A with Shinji in tow.
+看到明日香带着真嗣进入 2-A 班，冬月先生扬起了眉毛。
+
+"Has Soryu-kun met a young man?"
+"索吕同学遇到过年轻男子吗？"
+
+"You mean my future stepbrother?"
+"你是说我的未来继兄？"
+
+Mr. Fuyutsuki's eyes bulged out, but he recovered from his initial shock quickly.
+冬月先生的眼睛瞪得大大的，但他很快从最初的震惊中恢复过来。
+
+"Ah, so you must be Shinji Ikari-kun, our new student? Why don't you introduce yourself to the class?"
+"啊，那你一定是我们的新学生，真嗣同学吧？不如向全班做个自我介绍？"
+
+Shinji did as he was told. He wrote his name on the blackboard in thin, tidy strokes. The other students murmured half-hearted greetings.
+真嗣照做了。他在黑板上用细长、整齐的笔画写下了自己的名字。其他学生则半心半意地向他打招呼。
+
+"Now why don't you sit in that empty desk by the window, Ikari-kun?"
+“那么，为什么不坐在窗边那个空位上呢，碇君？”
+
+"Yes, Fuyutsuki-sensei!" “好的，冬月老师！”
+
+"Perfect, let's begin today's lesson on life before the Second Kanto Earthquake."
+“完美，让我们开始今天的课程，主题是关东大地震前的社会生活。”
+
+The classroom groaned in unison.
+教室里齐声叹息。
+
+When the lunch bell chimed, Asuka shot out of her chair and made for Shinji but she was too slow. The class dunce squad, Toji and Kensuke, had already cornered him.
+午餐铃声一响，明日香立刻从椅子上弹起，冲向真嗣，但她还是慢了一步。班级里的笨蛋二人组，东治和健司，已经抢先堵住了他。
+
+"Hey Ikari, welcome to Tokyo-3! My name's Kensuke Aida!"
+"嘿，碇，欢迎来到第三新东京市！我叫相田健介！"
+
+"I'm Toji, nice to meet ya! When we heard about a transfer, we were afraid it was going to be another chick. They can be so stuck up, y'know?"
+"我是东治，很高兴见到你！听说有转学生来，我们还担心又是个女生呢。她们有时候可真难伺候，你知道的吧？"
+
+Shinji smiled pleasantly and bowed to each.
+真嗣微笑着，向每个人鞠了一躬。
+
+"Yeah this class is already, uh, whatever the opposite of a sausage fest is. Hey! Speaking of die Wurst..." Kensuke began before Asuka shoved the two of them aside.
+"是啊，这课已经，呃，反正就是跟‘香肠聚会’相反的那种。嘿！说到香肠……" 真嗣刚开口，就被明日香一把推到了一边。
+
+"Back off, Dummköpfe, he's mine for lunch."
+"滚开，笨蛋们，午餐时间他是我的。"
+
+"Woah, slow down, we saw him first!" whined Toji.
+"哇，慢点，我们可是先看到的！" 冬二抱怨道。
+
+"Actually I did because I saw him right after I woke up! So if you'll—! No! Wait a minute!"
+"实际上我确实看到了，因为我醒来后立刻就看到了他！所以如果你愿意——！不！等一下！"
+
+The boys in the class broke into a low whistle.
+班上的男生们发出了一阵低低的口哨声。
+
+"It's not like that!" she snapped.
+"不是那样的！"她厉声说道。
+
+"Children, children! Let's act rational, please," Mr. Fuyutsuki called out.
+"孩子们，孩子们！请理智一点，" 富士树先生喊道。
+
+"Soryu-san," Shinji said, "I'd love for you to show me around sometime, but I'd like to meet some new people first, okay? We'll have plenty of time to catch up at home."
+"副岛小姐，" 真嗣说，"我很想让你带我四处看看，但我还是想先认识一些新朋友，好吗？我们在家有的是时间叙旧。"
+
+The girls in the class oohed and ahhed this time, but were shut down by an icy blue glare from Asuka. I still get all those notes from your so-called boyfriends! Don't make me read them out loud!
+班上的女生们这次又发出了赞叹声，但被明日香冰冷的蓝色目光给镇住了。我仍然收到你那些所谓的男朋友的纸条！别逼我大声读出来！
+
+She turned to Shinji. 她转向真嗣。
+
+"Fine! See you at home, then, bye!"
+“好吧！那回家见，再见！”
+
+Pivoting on her heel, Asuka stormed out of the class with her bento.
+阿斯卡转身，带着她的便当怒气冲冲地走出了教室。
+
+Asuka sat under a shady tree in the schoolyard. The cool spring air along with the shade was uncomfortably cold, but she refused to budge. She also refused to eat, instead gripping her bento box shut with white knuckles.
+明日香坐在校园里一棵树荫下。凉爽的春风和树荫带来的却是令人不适的寒冷，但她拒绝移动。她也拒绝进食，只是紧紧地握住她的便当盒，指节因用力而发白。
+
+"Why am I in such a rush? What is wrong with me? I have all the time in the world to do this! Calm down! Stupid! Stupid! Stupid!"
+“我为什么这么急躁？我这是怎么了？我有的是时间来做这件事！冷静下来！笨蛋！笨蛋！笨蛋！”
+
+In the distance, she could hear Toji speaking.
+远处，她能听到东治在说话。
+
+"Your funeral, bud! See ya back at class!"
+"你的葬礼，伙计！回教室见！"
+
+Asuka looked over in the direction of Toji's voice to see Shinji approaching her while his newly made friends rapidly retreated.
+明日香顺着剑的声音望去，看到真嗣正向她走来，而他新结识的朋友们迅速退开。
+
+"Hey, Soryu-san! Mind if I sit here?"
+"嘿，惣流同学！介意我坐这儿吗？"
+
+Asuka scowled at him, but remembered herself. She scooted over to allow him to sit, which only increased her discomfort. The new patch of bench where she sat was cold. She patted the empty spot rather than speak lest she spit some venom and ruin the mood.
+明日香对他皱了皱眉，但还是克制住了自己。她挪了挪位置，让他可以坐下，这反而加剧了她的不适。她新坐的那块长凳冰凉。她拍了拍空位，而不是开口说话，生怕一出口就吐出些毒液，破坏了气氛。
+
+"Thanks! Hey, I hope I didn't hurt your feelings earlier. I wanted to get off on the right foot with Suzuhara-kun and Aida-kun back there, that's all."
+“谢谢！嘿，希望我之前没伤到你的感情。我只是想和铃原君还有相田君那边有个好的开始，仅此而已。”
+
+"No, that's fine, Ikari-kun," Asuka said. Then, swallowing bile, she forced out, "Sorry for being a bitch about it."
+“不，没关系，碇君，”明日香说。然后，咽下苦涩，她勉强挤出一句，“抱歉，我刚才太刻薄了。”
+
+Shinji laughed lightly, which gave Asuka a light feeling in her stomach.
+真嗣轻声笑了，这让明日香心中涌起一阵轻快的感觉。
+
+"You weren't, truly! You seemed like you wanted to talk to me, though, so here I am. What's up?"
+“你不是认真的吧！不过你看起来想和我聊聊，所以我来了。怎么了？”
+
+Asuka cocked her head at Shinji.
+明日香歪着头看向真嗣。
+
+"Huh? Now it's too easy?"
+"嗯？现在太简单了吗？"
+
+"Huh?" “啊？”
+
+Asuka waved away his confusion.
+明日香挥手驱散他的困惑。
+
+"Well," she started, placing her bento box aside and smoothing her skirt. "It was about what we were talking about earlier. You know. Orphans and stuff?"
+"那么，"她开始说，把便当盒放在一边，整理了一下裙子。"是关于我们之前谈论的事情。你知道的。孤儿之类的事？"
+
+Shinji nodded. He turned his full attention onto her.
+真嗣点点头。他将全部注意力转向她。
+
+"Well, my father died in the quake but not my mother. My mother, she died later than that."
+“嗯，我父亲在地震中去世了，但我母亲没有。我母亲，她是在那之后去世的。”
+
+"I know," Shinji whispered, then gasped when a strange grimace crossed Asuka's face. "Oh, I'm so sorry! I mean, Mr. Kaji had told me so I'd know, you know? But you tell it. I want to hear it from you."
+“我知道，”真嗣低声说，随即倒吸一口气，因为明日香脸上掠过一丝奇怪的苦笑。“哦，我很抱歉！我是说，加持先生已经告诉我了，所以我才知道，你知道吗？但你说出来吧。我想听你亲口说。”
+
+He reached over to Asuka to give her shoulder a brief squeeze. Her soul felt like it was somersaulting across the sun. Her eyes stung but she found it was easy to smile at him.
+他伸手过去轻轻捏了捏明日香的肩膀。她的灵魂仿佛在太阳上翻滚。她的眼睛刺痛，但她发现对他微笑很容易。
+
+"It started with a doll."
+“一切始于一个玩偶。”
+
+On the walk home, Asuka indulged all of Shinji's curiosity about Tokyo-3. The elaborate stress dampeners built under every highrise fascinated him. He showed a great interest in earthquake engineering which mortified Asuka. She couldn't understand why he'd want to study the force that killed his family. Each stop to examine this or that mechanism delayed them, but that worked to her advantage. It gave her time to think.
+在回家的路上，明日香纵容了真嗣对第三新东京市的好奇心。每座高楼下的复杂减震器让他着迷。他对地震工程表现出浓厚的兴趣，这让明日香感到尴尬。她无法理解他为何想研究那个夺走他家人的力量。每次停下来检查这个或那个机制都让他们耽搁，但这正合她的意。这给了她思考的时间。
+
+She had spilled her guts about her mother back at the schoolyard. Some of the details she gave didn't feel quite real, but they rang true and he accepted it all without question. After she finished, all he did was lean forward and embrace her. She thought she might pop like a balloon.
+她在学校操场上倾吐了关于母亲的种种。她所透露的一些细节虽显得不太真实，却令人信服，而他毫无保留地接受了这一切。待她讲述完毕，他只是倾身向前，紧紧拥抱了她。她觉得自己仿佛要像气球一样爆裂开来。
+
+Look at that idiot.
+看那个傻瓜。
+
+Shinji leaned over a ledge to peer into an aftershock absorber he found particularly engrossing.
+真嗣俯身靠在栏杆上，凝视着一台他特别感兴趣的减震器。
+
+Asuka felt her cheeks tingling.
+明日香感到双颊微微发麻。
+
+I think I could love him.
+我想我会爱上他。
+
+"Come on, silly, let's go home," she said, hooking her arm through his. Shinji, his eyes agape, let her lead him away.
+“走吧，傻瓜，我们回家，”她说着，挽起他的手臂。真嗣瞪大了眼睛，任由她牵着自己离开。
+
+Back at the apartment, they found a note in Misato's hasty scrawl.
+回到公寓，他们发现了一张米萨托潦草字迹的便条。
+
+Dear Shinji ❤ and Asuka ❤
+亲爱的真嗣❤和明日香❤
+Your very responsible guardians are
+你们非常负责任的监护人
+getting very drunk at the reception
+在招待会上喝得酩酊大醉
+tonight and will stay at hotel.
+今晚将住在酒店。
+Food in fridge. 冰箱里有食物。
+ASUKA:  明日香：
+(1) NO BEER  （1）禁止啤酒
+(2) BE NICE TO SHIN-CHAN
+（2）对新之助要友好
+❤LOVE❤  ❤爱❤
+
+She had signed it with a lipstick print.
+她用唇印签了名。
+
+Asuka threw the fridge door wide. "So you want a beer?" she asked Shinji. He stammered out a polite refusal.
+明日香猛地拉开冰箱门。“你想喝啤酒吗？”她问真嗣。他结结巴巴地婉拒了。
+
+Suddenly self-conscious, she added "I only drink one occasionally, honest. Guess it makes me feel like a grown up, you know? She keeps herself so stocked up that she never notices one or two gone."
+突然感到有些不自在，她补充道：“我偶尔才喝一次，真的。猜想这让我感觉像个成年人，你知道吗？她总是备得满满的，所以从不会注意到少了一两罐。”
+
+Shinji shrugged. He still didn't accept one. Asuka cracked hers open and sipped.
+真嗣耸了耸肩。他仍然没有接受一瓶。明日香打开自己的那罐，轻轻啜了一口。
+
+"Sorry about the food in advance. All we got is instant crap and frozen stuff."
+“提前为食物道歉。我们只有速食垃圾和冷冻食品。”
+
+Shinji stopped staring at the beer in her hand. His eyes lit up and met Asuka's.
+真嗣停止了盯着手中啤酒的目光。他的眼睛一亮，与明日香的眼神相遇。
+
+"I could cook something if you like," he offered. Asuka raised her eyebrow.
+"如果你愿意，我可以做点吃的，"他提议道。明日香挑了挑眉。
+
+"So my new roommate cooks, huh? You any good?"
+"这么说，我的新室友还会做饭？你做得好吗？"
+
+"Well, Mr. Kaji thinks so!" Shinji said. He puffed out his chest. "I've had a lot of practice. He doesn't exactly keep a regular schedule so I'm on my own when it comes to meals. He gives me an allowance and calls it my 'chef's salary' but I'd do it for free, anyway. It's not like I pay for the food, and he's done so much for me."
+"嗯，加治先生也是这么认为的！" 真嗣说道，挺起了胸膛。"我练习了很多次。他并没有固定的作息时间，所以做饭的时候我基本上都是自己来。他给我零花钱，称之为我的'厨师薪水'，但即使没有报酬，我也会做的。反正食物也不是我买的，而且他为我做了这么多。"
+
+"Wunderbar! Then the kitchen is yours, Chef Ikari," Asuka said with a sarcastically deep bow.
+"太棒了！那么厨房就交给你了，一尓卡里大厨，" 明日香带着讽刺的深鞠躬说道。"
+
+"Wun-deru-ba-ru?" Shinji sounded out. "That's funny! What's that?"
+"温-德-鲁-巴-鲁？" 真嗣一字一顿地念道。"真有趣！这是什么意思？"
+
+"Yeah, sure. I'm going to go change." She tugged her red ribbon loose and off her neck.
+“当然，我这就去换衣服。”她解开脖子上的红色丝带，轻轻扯下。
+
+Shinji looked away shyly.
+真嗣害羞地别开了视线。
+
+Mein Gott, he's so precious.
+我的天，他真是太可爱了。
+
+"Hey, Shinji? Can I call you that?"
+“嘿，真嗣？我可以这么叫你吗？”
+
+Shinji smiled at her for the first time.
+真嗣第一次对她微笑了。
+
+"Yeah, um, Asuka." “嗯，呃，明日香。”
+
+Asuka let herself shake once she reached the privacy of her room.
+在回到自己房间的私密空间后，明日香才让自己颤抖起来。
+
+"A whole night alone with him? Misato, thank you for being so neglectful!"
+“整晚都和他单独在一起？美里，谢谢你这么疏忽大意！”
+
+Asuka drained the beer. 明日香一口气喝干了啤酒。
+
+Asuka took off her school dress, blouse, and socks, tossing them every which way. Ordinarily she and Misato dressed quite casually around each other. It's just us girls, nothing to be shy about, she'd say. Asuka supposed that would have to change. Misato had said some comments to her about how she was "filling out" recently. Asuka supposed she had meant it as a compliment, but the memory filled her with cool apprehension.
+明日香脱下校服、衬衫和袜子，随手乱扔。平时她和美里互相之间穿着都很随意。她常说：‘就我们女孩子，没什么好害羞的。’明日香觉得这得改变了。美里最近对她说了些关于她‘丰满起来’的话。明日香猜她是想夸奖，但这个记忆让她感到一阵凉意。
+
+Asuka looked down. 明日香低头看去。
+
+"I should at least wear a shirt or I'll shock the poor boy."
+“至少得穿件衬衫，不然会吓到那可怜的男孩。”
+
+She ducked into a loose yellow tee and put on a pair of blue shorts.
+她迅速套上一件宽松的黄色 T 恤，穿上一条蓝色短裤。
+
+Asuka flopped down onto her bed. Her stomach ached with two kinds of hunger. She rolled over and stared up at the ceiling. The fluorescent fixture above her bed threw light without warmth. Asuka stared into it until her vision became a milky blur, then she draped an arm over her eyes.
+明日香一屁股坐在床上。她的胃因两种饥饿而隐隐作痛。她翻身躺下，盯着天花板。床上方的那盏荧光灯投下光亮，却毫无温度。明日香凝视着它，直到视线变得模糊不清，然后她用手臂遮住了眼睛。
+
+"Shinji," she rehearsed in a whisper. His name—too well-suited to say with a sneer—she practiced over and over until it slipped out like a sigh.
+“真嗣，”她低声练习着。这个名字——太适合带着嘲讽说出口——她一遍遍练习，直到它像一声叹息般自然地滑出唇边。
+
+"Shinji, I know that we barely know each other, but it feels like we have always known each other."
+"真嗣，我知道我们彼此了解甚少，但感觉上我们似乎一直都很熟悉。"
+
+That's so lame, she thought.
+真老套，她心想。
+
+"Shinji, I know that we barely know each other, but it feels like we understand each other better than anybody."
+"真嗣，我知道我们彼此了解甚少，但感觉上我们比任何人都更能理解对方。"
+
+Yeah, that's better. 是啊，这样好多了。
+
+"I've never been able to talk about my life like that. You made it so easy. I..."
+“我从未能这样谈论我的生活。你让它变得如此轻松。我……”
+
+I love you. 我爱你。
+
+"I think I love you."
+“我想我是爱上你了。”
+
+Damn it. 该死。
+
+"Do you think you could love me, too?"
+“你觉得你也会爱上我吗？”
+
+Asuka took a deep breath. The air tasted like a fresh meal. She got up, bleary-eyed, and stumbled out of her room. She was starving.
+明日香深吸了一口气。空气尝起来像是一顿新鲜的美食。她睡眼惺忪地起身，踉跄着走出房间。她饿极了。
+
+Shinji spun around when he heard Asuka approach. He wore Misato's immaculate green apron, still creased from its long rest tucked away in a drawer. He nodded to her shyly, then turned away to serve.
+真嗣听到明日香走近时转过身来。他穿着美里那件整洁的绿色围裙，依旧保持着长久以来藏在抽屉里的折痕。他羞涩地向她点头致意，然后转身去上菜。
+
+"Kawaii. That's probably the first time somebody's worn that."
+“好可爱。这大概是第一次有人穿上它吧。”
+
+"Sorry, I hope you like it," Shinji said, gesturing to the food to deflect attention from himself. "There, uh, wasn't much to work with."
+"对不起，希望你喜欢。" 真嗣说着，指了指食物，试图转移对自己的注意力。"呃，能用的食材不多。"
+
+Asuka dropped into her seat.
+明日香坐了下来。
+
+"I'm not surprised," she said, feeling embarrassed at her and Misato's living situation. Her stomach growled as if to chide her.
+"我并不惊讶，" 她说，对自己和美里糟糕的生活状况感到尴尬。她的肚子咕噜作响，仿佛在责备她。
+
+"Well maybe Miss Katsuragi will take me shopping with her sometime? Or I could do the shopping myself."
+"或许哪天桂木小姐会带我去购物呢？或者我自己去购物也行。"
+
+"If you took over groceries, she'd probably marry you, instead. Hah! Are you seriously blushing right now?!"
+"如果你接管了采购，她说不定会嫁给你，而不是我。哈哈！你真的脸红了吗？！"
+
+Shinji laid out the food and took off the apron. Asuka noticed that he himself had changed into something more casual. She smiled a secret smile to herself.
+真嗣摆好食物，脱下了围裙。明日香注意到他已经换上了更休闲的服装。她暗自笑了笑。
+
+"Look at you, already making yourself at home. With me."
+"看看你，已经在这里如鱼得水了。跟我一起。"
+
+Shinji nearly fumbled the serving platter. There was rice and some kind of meat and vegetable in a sauce. Asuka gulped, hoping the meat was still fresh. Shinji described all the ways he improvised to make the food, mostly looking at the serving dishes or down at his own in between quick glances at her. Asuka only looked at him. She felt her cheeks flushing but didn't care. The food was delicious. She dreaded dessert.
+真嗣差点把托盘弄掉了。上面有米饭，某种肉和蔬菜，还有酱汁。明日香咽了咽口水，希望肉还是新鲜的。真嗣描述了他如何即兴制作这些食物，大部分时间他要么看着盘子，要么低头看着自己的，偶尔快速瞥她一眼。明日香只是盯着他看。她感觉自己的脸颊在发烫，但并不在意。食物非常美味。她害怕甜点。
+
+Asuka finished first since Shinji talked so much. He hardly gave himself time to eat. She made a point to consume the final morsel on her plate with one big lick. She beamed at Shinji, who smiled and nodded back. Before his own chopsticks hit his empty plate, Asuka was already up and out of her seat to collect their dirty dishes.
+明日香先吃完了，因为真嗣说得太多，他几乎没有时间吃东西。她特意用一大口舔干净了盘子里最后一点食物。她对着真嗣露出灿烂的笑容，他也微笑着点头回应。还没等他的筷子碰到空盘子，明日香已经起身离开座位去收拾脏盘子了。
+
+"We can save the rest for lunch tomorrow. I'll pack it up," Shinji said, starting to get up.
+"剩下的留到明天午饭吧。我来打包。" 真嗣说着，开始起身。
+
+"Yeah, yeah. Wait a minute, though?" Asuka said, dumping the dishes in the sink.
+"是，是。不过等一下？" 明日香说着，把盘子扔进了水槽。
+
+She sat in the chair next to Shinji's. Her heart was pounding.
+她坐在真嗣旁边的椅子上。她的心跳得厉害。
+
+"Hey, Shinji?" "嘿，真嗣？"
+
+Shinji turned towards her. He quickly glanced down, then back up to her face. She realized he might have noticed her hands were shaking so she gripped her knees.
+真嗣转向她。他迅速瞥了一眼下方，然后又抬头看向她的脸。她意识到他可能注意到了她的手在颤抖，于是她紧紧抓住膝盖。
+
+"Yes?" “是的？”
+
+Asuka took a deep breath.
+明日香深吸了一口气。
+
+"Shinji, do you want to watch TV?"
+“真嗣，你想看电视吗？”
+
+Several hours later, Asuka was back in her bedroom and alone with her thoughts. They had watched TV, washed the dishes, and parted for the night without her ever mustering the courage to say what had to be said. She felt as though a train was barreling towards her but it never came. She'd have to jump in front of it first.
+几个小时后，明日香回到了自己的卧室，独自面对自己的思绪。他们看了电视，洗了碗碟，然后在夜晚分开，她始终没有鼓起勇气说出必须说的话。她感觉仿佛有一列火车正向她冲来，却从未真正到来。她必须先跳到它前面。
+
+Asuka held her breath and listened. There wasn't a sound in the apartment aside from her heartbeat.
+明日香屏住呼吸，仔细聆听。公寓里除了她的心跳声，一片寂静。
+
+"No snoring. Good. Would have been a deal-breaker."
+“没有打呼声。很好。那可是个破坏交易的因素。”
+
+She hopped out of bed and made her way through the silver darkness towards her door. Not carefully enough since she tripped and fell over the clothes she had shed earlier. Stifling a curse, she held her breath again and listened. Stillness. Silence.
+她从床上跳下来，穿过银色的黑暗向门口走去。不够小心，因为她绊倒在自己之前脱下的衣服上。她忍住咒骂，再次屏住呼吸倾听。依旧静谧，一片沉默。
+
+I'm afraid to make a sound but I'm about to go wake him up. Are you stupid, Asuka?
+我害怕发出声音，但我即将去叫醒他。你是不是傻，明日香？
+
+She got up and kicked the tangled clothes into a dark corner then marched out into the hall.
+她起身将纠缠的衣服踢到黑暗的角落，然后大步走出房间进入走廊。
+
+"Shinji? You awake? Shinji? I'm coming in."
+“真嗣？你醒着吗？真嗣？我要进来了。”
+
+She slid his door open a crack. A thin rail of light from the hall illuminated Shinji in bed. His back was to her.
+她轻轻推开他的房门，露出一道缝隙。走廊的一束微光洒在床上，照亮了背对着她的真嗣。
+
+"Hey Shinji?" “嘿，真嗣？”
+
+Shinji stirred. 真嗣动了动。
+
+"Asuka? Is everything alright?"
+“明日香？一切都还好吗？”
+
+"Well... Shinji, can I come in? Please?"
+"嗯... 真嗣，我能进来吗？请？"
+
+"Okay," he said, rolling over to face her.
+"好的，"他说着，翻身面对她。
+
+Asuka crossed the threshold and sat at the foot of his bed. Shinji propped himself up on his elbow. He blinked.
+明日香跨过门槛，坐在他的床尾。真嗣用肘部撑起自己。他眨了眨眼。
+
+She inhaled a big breath.
+她深吸了一口气。
+
+"Shinji, I know that, um, that we barely—"
+"真嗣，我知道，呃，我们几乎——"
+
+"Wait! Stop, please," Shinji said. He drew himself up into a sitting position. "I heard you."
+"等等！请停下来，" 真嗣说道。他坐直了身子。"我听到了。"
+
+Starbursts erupted across Asuka's vision. Her heart tumbled into her gut. He had changed clothes before dinner, she realized, which meant he had gone into his new room. The room just across the hall from hers.
+星光在明日香眼前迸发。她的心跳跌入了腹中。她意识到，他在晚餐前换了衣服，这意味着他进入了他的新房间。就在她对面的房间。
+
+"I'm sorry, I didn't mean to listen! But you said my name! I thought you were talking to me, at least at first!"
+“对不起，我不是故意偷听的！但你提到了我的名字！我以为你至少一开始是在跟我说话！”
+
+"You idiot," Asuka said to herself. "So you heard everything?"
+“你这个白痴，”明日香自言自语道，“所以你听到了所有的事？”
+
+"I think so." "我想是的。"
+
+Asuka nearly cracked. She twisted her face tight to keep it all in.
+明日香几乎要崩溃了。她紧绷着脸，努力不让情绪外露。
+
+"Okay. You heard. So how do you feel about what you heard?"
+"好吧。你听到了。那么，你对听到的事情有什么感觉？"
+
+Shinji hugged himself into a ball. He may as well have dove into the sea and swam for another continent. His body language said everything she was about to hear.
+真嗣把自己紧紧抱成一团。他仿佛是潜入了大海，游向另一个大陆。他的肢体语言已经说明了她即将听到的一切。
+
+"To tell you the truth, I worry for you. I don't think we have as much in common as you think. I mean, we do. We have Miss Katsuragi and Mr. Kaji. And we're both orphans. But, well, I'm sorry, but there's some hurt in the past that I've left behind. It's hard, I'm still working at it, but I'm doing my best to move beyond it."
+说实话，我很担心你。我觉得我们并没有你想象中那么多的共同点。我的意思是，我们有，我们有葛城小姐和加持先生。而且我们都是孤儿。但是，嗯，我很抱歉，但过去有些伤痛我已经放下。这很难，我仍在努力克服，但我正尽我所能地向前看。
+
+Asuka clenched and released her fists. She wanted to pound on Shinji's face to show him how it really felt to be hurt, even though her pain lay in a place so deep no one could ever reach it from the surface.
+明日香紧握并松开拳头。她想揍真嗣的脸，让他感受真正的痛苦，尽管她的痛楚深藏于内心深处，无人能从表面触及。
+
+"And I'm not saying that whatever you feel, what you're struggling with, that it's not hard for you. That you should just get over it. I'm not saying that at all. But it's not good for me to talk about what happened to our parents when I'm trying to put that into the past."
+"我不是说你感受到的，你正在挣扎的，对你来说不难。不是说你应该轻易克服它。我绝不是那个意思。但当我试图把那段关于我们父母的记忆抛诸脑后时，谈论这些对我并不好。"
+
+"I don't know if Miss Katsuragi and Mr. Kaji getting married makes us brother and sister. We don't have to call each other that. I'd so much like for us to become friends, though, Asuka. I can tell you're in pain because I was in pain. I want to help you. There's just stuff I can't help you with myself."
+"我不知道桂木小姐和加持先生结婚是否意味着我们成了兄妹。我们不必非得那样称呼对方。不过，我非常希望我们能成为朋友，明日香。我能看出你很痛苦，因为我自己也曾经历过。我想帮助你。只是有些事情我自己也无能为力。"
+
+Asuka held her face in her hands and let the tears flow. He made it so easy to betray herself.
+明日香双手捂住脸，任由泪水流淌。他让她如此轻易地背叛了自己。
+
+"To answer your question, though, we're about to become family, Asuka. I'll love you and Miss Katsuragi just as much as Mr. Kaji."
+"尽管如此，回答你的问题，我们即将成为一家人了，明日香。我会像爱加治先生一样爱你和葛城小姐。"
+
+"You know that's not what I meant," Asuka hissed through her hands. Shinji had no response.
+"你知道我不是那个意思，"明日香透过双手低声说道。真嗣无言以对。"
+
+"So was that enough?" Asuka said to nobody in particular. "Is my humiliation over?" She looked up at the ceiling expecting it to come tumbling down.
+"那么，这就够了吗？"明日香对着空气说道，"我的羞辱结束了吗？"她抬头望向天花板，仿佛期待它会轰然塌下。"
+
+Shinji cocked his head to the side.
+真嗣歪了歪头。
+
+"Please don't feel embarrassed, I won't tell."
+“请别觉得尴尬，我不会说出去的。”
+
+"I wasn't talking to you, you idiot!"
+“我刚才不是在跟你说话，你这个笨蛋！”
+
+Asuka ran back to her room and slammed the door.
+明日香跑回自己的房间，砰地一声关上了门。
+
+When Asuka woke up, it was a fine summer day for a wedding. The ceremony went without a hitch. Asuka was shocked to see how sharp Mr. Kaji looked with a fresh shave and an unwrinkled shirt. She was also shocked at how low the neckline was on Misato's gown.
+当明日香醒来时，这是一个适合婚礼的美好夏日。仪式顺利进行，没有出现任何差错。明日香惊讶地看到剃了胡子、穿着整洁衬衫的加治先生看起来多么精神。她也惊讶于美里婚纱的领口开得如此之低。
+
+The newlyweds danced their first dance while all the guests gawked. Asuka used the opportunity to slip away from Shinji, his new girlfriend from a different class, and the rest of the wedding party gathered around the dance floor. She spotted a familiar blonde lady with an empty seat beside her.
+新婚夫妇跳起了他们的第一支舞，所有宾客都目不转睛。明日香趁机从真嗣、他不同班的新女友以及围在舞池旁的婚礼宾客中溜走。她注意到一位熟悉的金发女士旁边有一个空座位。
+
+"Anybody sitting here?" Asuka asked, flopping into the seat without waiting for an answer.
+"这里有人坐吗？" 明日香问道，不等回答就一屁股坐下了。
+
+"Asuka? I work with Misato. Well, we're friends. We've met, don't you remember? It's Ritsuko Akagi."
+"明日香？我和美里一起工作。嗯，我们是朋友。我们见过面的，你不记得了吗？我是赤木律子。"
+
+"Cool." "酷。"
+
+"Want to talk?" "想聊聊吗？"
+
+"No."
+
+"Then I'll talk." "那我就说了。"
+
+"Can't you go sit somewhere else?"
+"你不能去别的地方坐吗？"
+
+"You're clearly eyeing her new ward and look like you need a distraction. We call you her 'ward' at work, too. Whenever somebody refers to you as Misato's daughter, she protests."
+"你显然在盯着她新收的养女看，看起来你需要点转移注意力的事。我们在工作中也称你为她的‘养女’。每当有人称你为 Misato 的女儿时，她都会抗议。"
+
+"Thanks, that makes me feel super."
+"谢谢，这让我感觉超好。"
+
+"Ah, it's not like that. She feels like she doesn't deserve the honor of being called your mother. At first we thought it was a clumsy expression of humility, but at this point some people worry. I don't. She told me not to, so I don't."
+"啊，不是那样的。她觉得自己不配被称为你的母亲。起初我们以为这是一种笨拙的谦逊表达，但到了现在，有些人开始担心。我不担心。她告诉我不要担心，所以我就不担心。"
+
+"Misato should make better friends."
+"美里应该交些更好的朋友。"
+
+Ritsuko seemed on edge even though they were far from the commotion and energy on the dance floor. Asuka's intuition tingled.
+尽管离舞池的喧嚣和活力很远，律子看起来还是很紧张。明日香的本能警觉起来。
+
+"Do you smoke?" "你抽烟吗？"
+
+"Hmm?" Ritsuko snorted. She sniffed at herself and shrugged. "How could you tell?"
+"嗯？" 律子哼了一声。她闻了闻自己，耸耸肩。"你怎么看出来的？"
+
+"You want to go smoke?"
+"你想去抽根烟吗？"
+
+"Do you smoke?" "你抽烟吗？"
+
+"No, but I've been meaning to take it up."
+"不，但我一直想学。"
+
+Asuka and Ritsuko rounded a corner of the function hall so they could have some privacy from the other smokers by the entrance. Ritsuko lit a cigarette and handed it to Asuka, then lit another and took a deep drag.
+明日香和律子绕过宴会厅的一角，以便远离入口处其他吸烟者，享受一些私人空间。律子点燃了一支烟，递给明日香，然后又点燃一支，深深吸了一口。
+
+"My girlfriend just broke up with me. She told me that she needed me and I called her a liar. I made her cry. She looked so pathetic that I had to leave for a while and when I came back she broke up with me."
+"我女朋友刚和我分手了。她告诉我她需要我，而我却骂她撒谎。我让她哭了。她看起来那么可怜，我不得不离开一会儿，等我回来时，她已经和我分手了。"
+
+Asuka burst out laughing.
+明日香突然爆发出大笑。
+
+"Damn. That's cold, lady."
+"该死。真冷酷，女士。"
+
+"She was lying! Nobody needs me. If I walked out of NERV tomorrow, nothing would change. They could continue on as though I were never there. I'm too good at writing documentation, you see. I'm told the secret is to make yourself indispensable, otherwise you're disposable."
+"她在撒谎！没人需要我。如果我明天离开 NERV，一切都不会改变。他们可以继续前行，仿佛我从未存在过。你知道，我太擅长写文档了。我被告知，秘诀是让自己不可或缺，否则你就是可有可无的。"
+
+Asuka glanced over to Ritsuko only to catch her looking back.
+明日香瞥向律子，却正好与她对视。
+
+"You going to smoke that?"
+“你要抽那个吗？”
+
+Asuka looked at the strange burning thing in her hand.
+明日香看着手中那奇怪的燃烧物。
+
+"I don't know how." “我不知道怎么做。”
+
+Ritsuko sighed. "Ok, first put it between your lips. Suck in just a little into your mouth but don't inhale! Oh no!"
+律子叹了口气。“好吧，首先把它放在你的嘴唇之间。轻轻吸一小口到嘴里，但不要吸入肺部！哦不！”
+
+Asuka was already coughing and retching. She hurled the cigarette to the ground and smashed it under her heel.
+明日香已经开始咳嗽和干呕。她把香烟扔到地上，用鞋跟碾碎了它。
+
+"Alright, enough smoking lessons for one day."
+"好了，今天的抽烟课就到此为止吧。"
+
+Ritsuko held out her phone to Asuka with the photo app open.
+律子将手机递给明日香，照片应用已经打开。
+
+"This is my ex. Am I stupid or what?"
+"这是我前男友。我是不是很傻？"
+
+Asuka thumbed through a few images of a mousy woman with short, brown hair. She was clearly a few years younger than Ritsuko, but not too young. Asuka could tell because she had a pleasant aura to her in all the pictures. The world hadn't beaten her down yet. She was very cute. There was one picture of the two of them. Ritsuko wore an official-looking lab coat and her ex held a NERV mug.
+明日香翻阅着几张照片，上面是一个有着短发棕色头发的胆怯女子。她显然比律子年轻几岁，但并不太年轻。明日香能看出来，因为在所有照片中，她都散发着一种愉悦的气息。世界还未将她击垮。她非常可爱。有一张照片是她们两人的合照。律子穿着一件正式的实验室外套，而她的前女友则拿着一个 NERV 的马克杯。
+
+Asuka rolled her eyes. "You worked with her, too? You really are stupid."
+明日香翻了个白眼。"你也和她共事过？你真是蠢透了。"
+
+Ritsuko chuckled. 律子轻声笑了起来。
+
+"You live with him, don't you?" she said, indicating the hall with her cigarette. "Talk about awkward."
+"你和他住在一起，对吧？" 她用香烟指了指走廊，"真是尴尬。"
+
+Asuka gritted her teeth. 明日香咬紧牙关。
+
+"Who are you, the NERV therapist?"
+"你是谁，NERV 的心理医生吗？"
+
+"What's awkward is that I did need her," Ritsuko said. She blew some smoke away from Asuka. "Desperately, in fact. But I still behaved so irrationally around her, like she threatened me."
+"尴尬的是，我的确需要她，" 律子说。她吹散了些烟雾，不让它们靠近明日香。"实际上是非常需要。但我还是在她周围表现得那么不理智，好像她威胁到了我。"
+
+Asuka recalled the mousy girl with the earnest eyes.
+明日香回想起那个眼神真挚、胆小的女孩。
+
+"She threatened you?" "她威胁你？"
+
+"Sure. It put me on the defensive. Fight or flight, an atavistic reaction. Have you ever heard of the Hedgehog's Dilemma?"
+"当然。这让我处于防御状态。战斗或逃跑，一种返祖反应。你听说过‘刺猬困境’吗？"
+
+"What's that? Sounds like a cartoon for babies," Asuka was impatient with all Ritsuko's meandering. She crossed her arms to make her displeasure known. "How'd she threaten you?"
+"那是什么？听起来像是给婴儿看的卡通，" 明日香对律子兜圈子的方式感到不耐烦。她交叉双臂以示不满。"她是怎么威胁你的？"
+
+"By being essential, of course. I made an empirical observation: I needed her because when she wasn't there it destroyed me. It's a lot of power to cede to somebody. I held on to the self-destruct code, though. Look at us. Two strong women talking about their lost loves."
+"当然是通过不可或缺性。我做了一个实证观察：我需要她，因为当她不在时，我就会崩溃。把这么多权力交给某人，压力很大。不过，我保留了自毁代码。看看我们。两个坚强的女人在谈论她们失去的爱。"
+
+Ritsuko pulled another drag from the cigarette and ashed it.
+律子又吸了一口烟，弹了弹烟灰。
+
+"Here's a hypothetical, instead: What would you do if, say, you were trapped and somebody else was in control of your air supply? Would you try to escape? Would you beg?"
+“换个假设吧：如果你被困住了，而你的空气供应掌握在别人手里，你会试图逃跑吗？还是会乞求？”
+
+White rage blinded Asuka.
+白色的愤怒蒙蔽了明日香。
+
+"I'd hold my breath," she muttered.
+"我会屏住呼吸，"她喃喃道。
+
+"So you do understand. Irrational behavior, in my opinion, though I'm not that kind of doctor. I made my role in her life very clear to her, but I obfuscated what part she played in mine. I thought that would make me indispensable. I think it made me vexing to be around."
+"所以你确实明白。在我看来，这是非理性的行为，虽然我不是那种医生。我向她明确了我在这段关系中的角色，但我对她在我生活中的作用含糊其辞。我原以为这会让我变得不可或缺。我想这反倒让我变得令人烦恼。
+
+"Did your cats take her side?"
+"你的猫们站在她那边了吗？"
+
+Ritsuko tittered, but she did brush away a gray cat hair from her dark blue dress.
+律子轻声笑了起来，但还是从深蓝色的裙子上拂去了一根灰色的猫毛。
+
+"Well I'm not like you," said Asuka. "I told him. I made it very clear. What idiot hasn't heard about what happened to the Walls of Jericho? Should I have said the Maginot Line, instead? That'd be slutty!"
+"好吧，我和你不一样，"明日香说道。"我告诉他了。我表达得很清楚。哪个傻瓜没听说过耶利哥城墙的事？我是不是该换成马其诺防线，那样才够骚？"
+
+"Hmm, yes, slutty," Ritsuko agreed.
+"嗯，没错，够骚的，"律子附和道。
+
+"And you know what he did?"
+"你知道他做了什么吗？"
+
+"Blew his horn, no doubt."
+"肯定是吹了喇叭。"
+
+Asuka flushed crimson. 明日香的脸涨得通红。
+
+"No! He did nothing! Nothing."
+"不！他什么都没做！什么都没做。"
+
+Asuka held herself taut for as long as she was able, then let herself collapse. Ritsuko puffed to her side.
+明日香尽可能长时间地紧绷着自己，然后才让自己瘫倒。律子喘着气来到她身边。
+
+"At work, I program all kinds of earthquake models to accurately predict how a structure will respond to different scenarios. You'd be easy to model: a seamless concrete cube, about yea high, filled solid. I could throw a Third Kanto at you and predict zero casualties, but that's because you don't let anybody inside."
+"在工作中，我编写各种地震模型来准确预测建筑物在不同情况下的反应。你很容易建模：一个无缝的混凝土立方体，大约这么高，填得满满的。我可以向你投掷一场关东大地震，预测零伤亡，但这只是因为你不让任何人进入。"
+
+She took another drag. 她又吸了一口。
+
+"Have you ever seen those videos of dogs who won't walk through an open glass door? They stand there begging to be let inside until their owner steps over the threshold themselves? So cute."
+“你看过那些视频吗？狗狗们不愿意穿过敞开的玻璃门，它们站在那儿乞求主人让它们进去，直到主人自己跨过门槛？太可爱了。”
+
+"Doctor Animal Fetishist, you might have a point. I should have kept the idiot on a leash. And neutered him."
+“动物恋物癖医生，你说得有道理。我应该给那蠢货拴上绳子，还应该给他绝育。”
+
+Ritsuko flicked her spent cigarette into an uncertain oblivion. Asuka could no longer hear the boisterous party inside.
+律子将燃尽的烟蒂弹入未知的虚无。明日香再也听不到屋内喧闹的派对声。
+
+"If you do depend on somebody, you should let him know. Test him all you want, but reach out just enough so he knows it's not a trick."
+“如果你真的依赖某个人，你应该让他知道。尽管你可以尽情考验他，但也要适当地伸出援手，让他明白这不是一场骗局。”
+
+"Depend on somebody like you do on nicotine?"
+“依赖某个人，就像你依赖尼古丁那样？”
+
+"An imperfect analogy. Cigarettes don't keep me in their purse. Make yourself the first one he seeks, not the last. Do you want him to feel relieved when you're not around? Be indispensable."
+一个不完美的比喻。香烟不会让我留在她们的包里。让自己成为他首先寻求的人，而不是最后。你希望他不在你身边时感到解脱吗？要成为不可或缺的存在。
+
+A chilly tightness tugged in Asuka's chest.
+一股寒意紧紧揪住了明日香的心。
+
+A memory from his mind echoed into hers: "I'm scared of both Misato and Ayanami... Help me, help me, Asuka... Come on, wake up... Call me an idiot like usual!"
+一段来自他记忆的回声在她心中响起：“我害怕美里和绫波...帮帮我，帮帮我，明日香...快点，醒醒...像往常一样叫我白痴！”
+
+"What if he did something bad?"
+"如果他做了什么坏事呢？"
+
+"Who? That nice boy inside?" Ritsuko said, gesturing to where the function hall had been. It had been consumed by an expanding whiteness as well.
+"谁？里面那个好孩子吗？" 律子说道，指向原本是宴会厅的地方。那里已经被一片不断扩大的白色吞噬了。
+
+"You know who I mean. You know which one this is about."
+"你知道我说的是谁。你知道我们在谈论哪一个。"
+
+Ritsuko looked away. Earth and sky had lost distinction to an all-encompassing pale glow. A cold wind blew out of the north. Asuka hugged herself to stay warm. Ritsuko wasn't affected.
+律子别过头去。大地与天空已失去界限，被一片无边的苍白光芒所笼罩。北风凛冽，吹得明日香紧紧抱住自己取暖。而律子却丝毫不受影响。
+
+"That's right, you wouldn't remember winters," she observed.
+“没错，你不会记得冬天的样子，”她评论道。
+
+"I know what a 'winter' was, I'm not stupid."
+“我知道什么是‘冬天’，我可不傻。”
+
+"Knowledge can be a poor substitute for experience, in my experience," said Ritsuko. "So back to my point: Don't forgive him. I've never forgiven anybody for anything in my life and look how far I've come. Immortality and with somebody who loved me all along. And I never would have let her in otherwise. Is she your plus one?"
+"知识在经验面前往往显得苍白无力，这是我亲身体会到的，" 律子说道。"所以回到我的观点：不要原谅他。我一生中从未原谅过任何人，看看我走到了哪里。获得了永生，还有一直爱着我的人陪伴。否则我绝不会让她靠近。她是你的伴儿吗？"
+
+Ritsuko pointed to a figure in the distance. Asuka squinted.
+律子指向远处的一个身影。明日香眯起了眼睛。
+
+"You wore a school uniform to a wedding? You're embarrassing, Ayanami."
+"你穿着校服来参加婚礼？真丢人，绫波。"
+
+Asuka stepped forward. Her foot fell with a cold crunch. She looked back to see the final guest had disappeared. She looked down and saw her toes were covered in snow.
+明日香向前迈步。她的脚落下时发出冰冷的嘎吱声。她回头一看，发现最后一位客人已经消失不见。她低头一看，发现自己的脚趾被雪覆盖。
+
+"And you're late." “而你迟到了。”
+
+"I do not choose when to come."
+“我无法选择何时到来。”
+
+Asuka jabbed a finger at Rei. "Why is it that when you and the idiot play god, you get everything you want? But when I try it out for myself, all I get is punishment?"
+明日香用手指戳了戳绫波。“为什么你和那个白痴玩上帝游戏时，总能得到想要的一切？而我一试，却只换来惩罚？”
+
+"The human soul abhors a vacuum, thus Complementation within Instrumentality. Here you can leave aside all pretense though not your truly held desires."
+“人类灵魂厌恶真空，因此才在补完计划中寻求互补。在这里，你可以放下所有伪装，尽管不能抛弃内心真正的渴望。”
+
+"I didn't want to get stuck here with that limp imitation that shared his name."
+“我可不想被困在这里，和那个名字相同却软弱无力的仿制品在一起。”
+
+"You are not honest with yourself. You would rather suffer defeat than be proven wrong. It is untenable."
+"你对自己并不诚实。你宁愿承受失败，也不愿被证明是错的。这是站不住脚的。"
+
+Asuka pressed ahead into the wind. Rei, while facing Asuka, stayed always the same distance apart. Although Rei's voice pierced the wind, Asuka found that she had to shout to be heard.
+明日香顶着风前行。绫波面对着明日香，始终保持着相同的距离。尽管绫波的声音穿透了风，明日香发现她必须大声喊才能被听到。
+
+"I'm never wrong, not about him! I proved it again: the Shinji I needed doesn't exist. I proved that I don't need him to live. Empirically!"
+"我绝不会错，尤其是关于他！我再次证明了：我所需要的真嗣并不存在。我证明了我不需要他也能活下去。这是基于事实的！"
+
+"You perceive defeat as a decision, but fallibility as fate. What is forgiveness? Is it to lose? Or is it to acknowledge error? Which would put forgiveness within your power?"
+"你视失败为一种决定，而可错性为命运。何为宽恕？是认输吗？还是承认错误？哪一种能让你掌握宽恕的力量？"
+
+Rei sang. Asuka recognized the melody from when she was young but not the English lyrics Rei used.
+丽唱着歌。明日香认得这个旋律，是她小时候听过的，但丽用的英文歌词她却不熟悉。
+
+"I think as I please
+"我随心所欲地思考"
+And this gives me pleasure
+这让我感到愉悦
+My conscience decrees 我的良知如此裁决
+This right I must treasure"
+这份权利我必须珍视
+
+"Those aren't the words!"
+“那些不是她的话！”
+
+"Not the words of your mother."
+“不是你母亲的话。”
+
+Rei faded into nothing. Asuka trudged forward towards where she had been. Shapes separated out of the nothingness: the ground, trees, houses. The featureless white sky lost its brilliance. Gray cracks appeared from which jagged blackness bled in twitching, spreading rays. A shapeless shadow of a figure darted between the darkest gaps.
+丽渐渐消融于无形。明日香拖着沉重的步伐，走向她曾经所在的地方。形态从虚无中分离出来：地面、树木、房屋。无特征的白色天空失去了光彩。灰色的裂缝出现，从中渗出颤动的、蔓延的黑色射线。一个无形的影子在黑暗的缝隙间穿梭。
+
+It whispered to Asuka a memory in her own voice: "I don't even want kids!"
+它以明日香自己的声音向她低语，唤起一段记忆：“我甚至不想要孩子！”
+
+"Go away!" “走开！”
+
+Black spread across the white until only pinpoints of brilliance showed through. The stars had come out. There was nowhere left in the heavens for Balthazar's ghost to hide so it left her alone. Asuka stepped into the crunching cold winter's night.
+黑色蔓延至白色，直到仅剩点点光芒透出。星星已经亮起。巴尔萨泽的幽灵在天空中无处藏身，于是离开了她。明日香踏入了嘎吱作响的寒冷冬夜。
 
 つづく
